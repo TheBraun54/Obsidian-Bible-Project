@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall put on the holy linen coat, and he shall have the linen breeches upon his flesh, and shall be girded with the linen girdle, and with the linen mitre shall he be attired: they are the holy garments; and he shall bathe his flesh in water, and put them on.
+He shall put on the holy linen coat, and he shall have the linen breeches on his body, and shall put on the linen sash, and he shall be clothed with the linen turban. They are the holy garments. He shall bathe his body in water, and put them on.

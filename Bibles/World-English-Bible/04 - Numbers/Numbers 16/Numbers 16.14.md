@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover thou hast not brought us into a land flowing with milk and honey, nor given us inheritance of fields and vineyards: wilt thou put out the eyes of these men? we will not come up.
+Moreover you haven't brought us into a land flowing with milk and honey, nor given us inheritance of fields and vineyards: will you put out the eyes of these men? We won't come up."

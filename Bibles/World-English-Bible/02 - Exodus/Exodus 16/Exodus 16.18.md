@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they measured it with an omer, he that gathered much had nothing over, and he that gathered little had no lack; they gathered every man according to his eating.
+When they measured it with an omer, he who gathered much had nothing over, and he who gathered little had no lack. They gathered every man according to his eating.

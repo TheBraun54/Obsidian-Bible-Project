@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said unto Haman, The silver is given to thee, the people also, to do with them as it seemeth good to thee.
+The king said to Haman, "The silver is given to you, the people also, to do with them as it seems good to you."

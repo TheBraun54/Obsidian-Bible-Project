@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The same dealt craftily with our race, and ill-treated our fathers, that they should cast out their babes to the end they might not live.
+The same took advantage of our race, and mistreated our fathers, and forced them to throw out their babies, so that they wouldn't stay alive.

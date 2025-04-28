@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said David to Jonathan, Who shall tell me if perchance thy father answer thee roughly?
+Then David said to Jonathan, "Who shall tell me if perchance your father answers you roughly?"

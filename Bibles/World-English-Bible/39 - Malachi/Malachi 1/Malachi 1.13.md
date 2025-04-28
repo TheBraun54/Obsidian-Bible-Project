@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye say also, Behold, what a weariness is it! and ye have snuffed at it, saith Jehovah of hosts; and ye have brought that which was taken by violence, and the lame, and the sick; thus ye bring the offering: should I accept this at your hand? saith Jehovah.
+You say also, 'Behold, what a weariness it is!' and you have sniffed at it," says Yahweh of Armies; "and you have brought that which was taken by violence, the lame, and the sick; thus you bring the offering. Should I accept this at your hand?" says Yahweh.

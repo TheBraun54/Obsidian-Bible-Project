@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, Jehovah hath proclaimed unto the end of the earth, Say ye to the daughter of Zion, Behold, thy salvation cometh; behold, his reward is with him, and his recompense before him.
+Behold, Yahweh has proclaimed to the end of the earth, "Say to the daughter of Zion, 'Behold, your salvation comes. Behold, his reward is with him, and his recompense before him.'"

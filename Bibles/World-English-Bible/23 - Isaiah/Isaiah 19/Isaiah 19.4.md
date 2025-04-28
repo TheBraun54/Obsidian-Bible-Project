@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will give over the Egyptians into the hand of a cruel lord; and a fierce king shall rule over them, saith the Lord, Jehovah of hosts.
+I will give over the Egyptians into the hand of a cruel lord. A fierce king will rule over them," says the Lord, Yahweh of Armies.

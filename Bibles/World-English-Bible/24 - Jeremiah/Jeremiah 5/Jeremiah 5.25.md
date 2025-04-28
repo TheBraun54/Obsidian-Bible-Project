@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Your iniquities have turned away these things, and your sins have withholden good from you.
+"Your iniquities have turned away these things, and your sins have withheld good from you.

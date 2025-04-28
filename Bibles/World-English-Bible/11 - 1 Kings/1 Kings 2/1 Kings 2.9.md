@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore hold him not guiltless, for thou art a wise man; and thou wilt know what thou oughtest to do unto him, and thou shalt bring his hoar head down to Sheol with blood.
+Now therefore don't hold him guiltless, for you are a wise man; and you will know what you ought to do to him, and you shall bring his gray head down to Sheol with blood."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let those that fear thee turn unto me; And they shall know thy testimonies.
+Let those who fear you turn to me. They will know your statutes.

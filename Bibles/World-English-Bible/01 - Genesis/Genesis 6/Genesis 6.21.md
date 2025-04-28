@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And take thou unto thee of all food that is eaten, and gather it to thee; and it shall be for food for thee, and for them.
+Take with you of all food that is eaten, and gather it to yourself; and it will be for food for you, and for them."

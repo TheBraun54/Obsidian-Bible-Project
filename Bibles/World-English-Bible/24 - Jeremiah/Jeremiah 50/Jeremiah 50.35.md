@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A sword is upon the Chaldeans, saith Jehovah, and upon the inhabitants of Babylon, and upon her princes, and upon her wise men.
+A sword is on the Chaldeans, says Yahweh, and on the inhabitants of Babylon, and on her princes, and on her wise men.

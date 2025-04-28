@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou, son of man, show the house to the house of Israel, that they may be ashamed of their iniquities; and let them measure the pattern.
+You, son of man, show the house to the house of Israel, that they may be ashamed of their iniquities; and let them measure the pattern.

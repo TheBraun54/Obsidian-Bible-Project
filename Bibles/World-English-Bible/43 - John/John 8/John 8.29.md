@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that sent me is with me; he hath not left me alone; for I do always the things that are pleasing to him.
+He who sent me is with me. The Father hasn't left me alone, for I always do the things that are pleasing to him."

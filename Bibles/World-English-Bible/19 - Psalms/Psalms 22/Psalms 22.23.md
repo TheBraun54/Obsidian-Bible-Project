@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye that fear Jehovah, praise him; All ye the seed of Jacob, glorify him; And stand in awe of him, all ye the seed of Israel.
+You who fear Yahweh, praise him! All you descendants of Jacob, glorify him! Stand in awe of him, all you descendants of Israel!

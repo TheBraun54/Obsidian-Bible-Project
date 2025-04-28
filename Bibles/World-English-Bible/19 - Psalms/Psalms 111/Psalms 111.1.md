@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Praise ye Jehovah. I will give thanks unto Jehovah with my whole heart, In the council of the upright, and in the congregation.
+Praise Yah! I will give thanks to Yahweh with my whole heart, in the council of the upright, and in the congregation.

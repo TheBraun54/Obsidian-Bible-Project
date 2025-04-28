@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in those days cometh John the Baptist, preaching in the wilderness of Judaea, saying,
+In those days, John the Baptizer came, preaching in the wilderness of Judea, saying,

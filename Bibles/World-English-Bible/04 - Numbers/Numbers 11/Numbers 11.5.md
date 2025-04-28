@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We remember the fish, which we did eat in Egypt for nought; the cucumbers, and the melons, and the leeks, and the onions, and the garlic:
+We remember the fish, which we ate in Egypt for nothing; the cucumbers, and the melons, and the leeks, and the onions, and the garlic;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if it be not so now, who will prove me a liar, And make my speech nothing worth?
+If it isn't so now, who will prove me a liar, and make my speech worth nothing?"

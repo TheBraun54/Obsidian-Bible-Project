@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they hearkened not, neither inclined their ear, but made their neck stiff, that they might not hear, and might not receive instruction.
+But they didn't listen, neither turn their ear, but made their neck stiff, that they might not hear, and might not receive instruction.

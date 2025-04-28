@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But because I say the truth, ye believe me not.
+But because I tell the truth, you don't believe me.

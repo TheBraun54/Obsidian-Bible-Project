@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus hath Jehovah said unto me, I will be still, and I will behold in my dwelling-place, like clear heat in sunshine, like a cloud of dew in the heat of harvest.
+For Yahweh said to me, "I will be still, and I will see in my dwelling place, like clear heat in sunshine, like a cloud of dew in the heat of harvest."

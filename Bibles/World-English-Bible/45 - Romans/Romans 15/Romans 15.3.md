@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Christ also pleased not himself; but, as it is written, The reproaches of them that reproached thee fell upon me.
+For even Christ didn't please himself. But, as it is written, "The reproaches of those who reproached you fell on me."

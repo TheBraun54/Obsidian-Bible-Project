@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if men strive together, and hurt a woman with child, so that her fruit depart, and yet no harm follow; he shall be surely fined, according as the woman's husband shall lay upon him; and he shall pay as the judges determine.
+"If men fight and hurt a pregnant woman so that she gives birth prematurely, and yet no harm follows, he shall be surely fined as much as the woman's husband demands and the judges allow.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Israel sent messengers unto Sihon king of the Amorites, the king of Heshbon; and Israel said unto him, Let us pass, we pray thee, through thy land unto my place.
+Israel sent messengers to Sihon king of the Amorites, the king of Heshbon; and Israel said to him, 'Please let us pass through your land to my place.'

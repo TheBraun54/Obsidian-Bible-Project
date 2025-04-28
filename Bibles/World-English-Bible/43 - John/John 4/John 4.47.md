@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When he heard that Jesus was come out of Judaea into Galilee, he went unto him, and besought [him] that he would come down, and heal his son; for he was at the point of death.
+When he heard that Jesus had come out of Judea into Galilee, he went to him, and begged him that he would come down and heal his son, for he was at the point of death.

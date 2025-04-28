@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they took up broken pieces, twelve basketfuls, and also of the fishes.
+They took up twelve baskets full of broken pieces and also of the fish.

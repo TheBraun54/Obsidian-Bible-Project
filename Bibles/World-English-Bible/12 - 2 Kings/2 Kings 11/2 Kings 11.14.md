@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and she looked, and, behold, the king stood by the pillar, as the manner was, and the captains and the trumpets by the king; and all the people of the land rejoiced, and blew trumpets. Then Athaliah rent her clothes, and cried, Treason! treason!
+and she looked, and behold, the king stood by the pillar, as the tradition was, and the captains and the trumpets by the king; and all the people of the land rejoiced, and blew trumpets. Then Athaliah tore her clothes, and cried, "Treason! Treason!"

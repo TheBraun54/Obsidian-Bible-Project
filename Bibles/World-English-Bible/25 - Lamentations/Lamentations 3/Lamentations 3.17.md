@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou hast removed my soul far off from peace; I forgat prosperity.
+You have removed my soul far off from peace; I forgot prosperity.

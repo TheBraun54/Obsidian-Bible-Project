@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wicked, in the pride of his countenance, [saith], He will not require [it] . All his thoughts are, There is no God.
+The wicked, in the pride of his face, has no room in his thoughts for God.

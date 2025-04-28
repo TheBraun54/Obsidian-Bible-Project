@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I answered, Who art thou, Lord? And he said unto me, I am Jesus of Nazareth, whom thou persecutest.
+I answered, 'Who are you, Lord?' He said to me, 'I am Jesus of Nazareth, whom you persecute.'

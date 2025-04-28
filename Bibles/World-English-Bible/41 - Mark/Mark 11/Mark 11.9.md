@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that went before, and they that followed, cried, Hosanna; Blessed [is] he that cometh in the name of the Lord:
+Those who went in front, and those who followed, cried out, "Hosanna! Blessed is he who comes in the name of the Lord!

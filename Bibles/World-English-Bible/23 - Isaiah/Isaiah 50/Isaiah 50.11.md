@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, all ye that kindle a fire, that gird yourselves about with firebrands; walk ye in the flame of your fire, and among the brands that ye have kindled. This shall ye have of my hand; ye shall lie down in sorrow.
+Behold, all you who kindle a fire, who adorn yourselves with torches around yourselves; walk in the flame of your fire, and among the brands that you have kindled. You shall have this of my hand; you shall lie down in sorrow.

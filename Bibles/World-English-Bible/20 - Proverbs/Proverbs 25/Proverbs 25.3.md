@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As the heavens for height, and the earth for depth, So the heart of kings is unsearchable.
+As the heavens for height, and the earth for depth, so the hearts of kings are unsearchable.

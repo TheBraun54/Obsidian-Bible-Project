@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will send my terror before thee, and will discomfit all the people to whom thou shalt come, and I will make all thine enemies turn their backs unto thee.
+I will send my terror before you, and will confuse all the people to whom you come, and I will make all your enemies turn their backs to you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Hazor-hadattah, and Kerioth-hezron (the same is Hazor),
+Hazor Hadattah, Kerioth Hezron (the same is Hazor),

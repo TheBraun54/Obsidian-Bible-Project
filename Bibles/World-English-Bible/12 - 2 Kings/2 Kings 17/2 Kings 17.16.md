@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they forsook all the commandments of Jehovah their God, and made them molten images, even two calves, and made an Asherah, and worshipped all the host of heaven, and served Baal.
+They forsook all the commandments of Yahweh their God, and made them molten images, even two calves, and made an Asherah, and worshiped all the army of the sky, and served Baal.

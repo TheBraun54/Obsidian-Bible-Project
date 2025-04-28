@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For whatsoever is begotten of God overcometh the world: and this is the victory that hath overcome the world, [even] our faith.
+For whatever is born of God overcomes the world. This is the victory that has overcome the world: your faith.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his father went down unto the woman: and Samson made there a feast; for so used the young men to do.
+His father went down to the woman: and Samson made there a feast; for so used the young men to do.

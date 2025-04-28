@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give diligence to present thyself approved unto God, a workman that needeth not to be ashamed, handling aright the word of truth.
+Give diligence to present yourself approved by God, a workman who doesn't need to be ashamed, properly handling the Word of Truth.

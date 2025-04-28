@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if this come to the governor's ears, we will persuade him, and rid you of care.
+If this comes to the governor's ears, we will persuade him and make you free of worry."

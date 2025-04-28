@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The voice of my beloved! behold, he cometh, Leaping upon the mountains, Skipping upon the hills.
+The voice of my beloved! Behold, he comes, leaping on the mountains, skipping on the hills.

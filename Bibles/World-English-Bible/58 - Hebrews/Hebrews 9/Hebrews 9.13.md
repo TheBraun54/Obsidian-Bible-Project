@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if the blood of goats and bulls, and the ashes of a heifer sprinkling them that have been defiled, sanctify unto the cleanness of the flesh:
+For if the blood of goats and bulls, and the ashes of a heifer sprinkling those who have been defiled, sanctify to the cleanness of the flesh:

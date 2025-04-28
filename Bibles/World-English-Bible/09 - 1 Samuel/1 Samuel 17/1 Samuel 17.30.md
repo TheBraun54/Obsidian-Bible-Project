@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he turned away from him toward another, and spake after the same manner: and the people answered him again after the former manner.
+He turned away from him toward another, and spoke like that again; and the people answered him again the same way.

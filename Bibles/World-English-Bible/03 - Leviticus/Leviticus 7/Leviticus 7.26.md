@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall eat no manner of blood, whether it be of bird or of beast, in any of your dwellings.
+You shall not eat any blood, whether it is of bird or of animal, in any of your dwellings.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou givest thy mouth to evil, And thy tongue frameth deceit.
+"You give your mouth to evil. Your tongue frames deceit.

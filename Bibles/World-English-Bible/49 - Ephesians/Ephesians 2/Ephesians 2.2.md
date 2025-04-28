@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-wherein ye once walked according to the course of this world, according to the prince of the powers of the air, of the spirit that now worketh in the sons of disobedience;
+in which you once walked according to the course of this world, according to the prince of the power of the air, the spirit who now works in the children of disobedience;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It shall have two shoulder-pieces joined to the two ends thereof, that it may be joined together.
+It shall have two shoulder straps joined to the two ends of it, that it may be joined together.

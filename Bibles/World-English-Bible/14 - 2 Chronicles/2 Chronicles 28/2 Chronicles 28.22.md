@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the time of his distress did he trespass yet more against Jehovah, this same king Ahaz.
+In the time of his distress did he trespass yet more against Yahweh, this same king Ahaz.

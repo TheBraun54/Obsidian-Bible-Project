@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he gave Joshua the son of Nun a charge, and said, Be strong and of good courage; for thou shalt bring the children of Israel into the land which I sware unto them: and I will be with thee.
+He commissioned Joshua the son of Nun, and said, "Be strong and courageous; for you shall bring the children of Israel into the land which I swore to them: and I will be with you."

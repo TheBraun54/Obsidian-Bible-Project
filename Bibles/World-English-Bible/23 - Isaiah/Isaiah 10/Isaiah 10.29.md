@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-they are gone over the pass; they have taken up their lodging at Geba; Ramah trembleth; Gibeah of Saul is fled.
+They have gone over the pass. They have taken up their lodging at Geba. Ramah trembles. Gibeah of Saul has fled.

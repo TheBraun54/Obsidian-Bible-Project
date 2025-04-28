@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and upon Dibon, and upon Nebo, and upon Beth-diblathaim,
+and on Dibon, and on Nebo, and on Beth Diblathaim,

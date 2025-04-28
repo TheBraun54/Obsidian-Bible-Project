@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he killed it; and Moses sprinkled the blood upon the altar round about.
+He killed it; and Moses sprinkled the blood around on the altar.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there shall be no leaven seen with thee in all thy borders seven days; neither shall any of the flesh, which thou sacrificest the first day at even, remain all night until the morning.
+No yeast shall be seen with you in all your borders seven days; neither shall any of the flesh, which you sacrifice the first day at evening, remain all night until the morning.

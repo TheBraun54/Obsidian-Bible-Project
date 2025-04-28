@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the lord of that servant shall come in a day when he expecteth not, and in an hour when he knoweth not, and shall cut him asunder, and appoint his portion with the unfaithful.
+then the lord of that servant will come in a day when he isn't expecting him, and in an hour that he doesn't know, and will cut him in two, and place his portion with the unfaithful.

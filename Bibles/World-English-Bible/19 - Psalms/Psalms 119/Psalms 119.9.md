@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-BETH. Wherewith shall a young man cleanse his way? By taking heed [thereto] according to thy word.
+How can a young man keep his way pure? By living according to your word.

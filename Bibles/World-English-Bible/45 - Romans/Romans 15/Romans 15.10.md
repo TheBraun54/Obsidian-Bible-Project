@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And again he saith, Rejoice, ye Gentiles, with his people.
+Again he says, "Rejoice, you Gentiles, with his people."

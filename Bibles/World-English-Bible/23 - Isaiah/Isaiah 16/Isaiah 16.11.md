@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore my heart soundeth like a harp for Moab, and mine inward parts for Kir-heres.
+Therefore my heart sounds like a harp for Moab, and my inward parts for Kir Heres.

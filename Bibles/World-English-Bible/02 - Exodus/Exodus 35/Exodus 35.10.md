@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And let every wise-hearted man among you come, and make all that Jehovah hath commanded:
+"'Let every wise-hearted man among you come, and make all that Yahweh has commanded:

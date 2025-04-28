@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou wilt say then, Branches were broken off, that I might be grafted in.
+You will say then, "Branches were broken off, that I might be grafted in."

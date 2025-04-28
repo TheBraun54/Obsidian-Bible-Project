@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The north wind bringeth forth rain: So doth a backbiting tongue an angry countenance.
+The north wind brings forth rain: so a backbiting tongue brings an angry face.

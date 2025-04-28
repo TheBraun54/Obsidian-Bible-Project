@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or are ye ignorant, brethren (for I speak to men who know the law), that the law hath dominion over a man for so long time as he liveth?
+Or don't you know, brothers (for I speak to men who know the law), that the law has dominion over a man for as long as he lives?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou wast the anointed cherub that covereth: and I set thee, [so that] thou wast upon the holy mountain of God; thou hast walked up and down in the midst of the stones of fire.
+You were the anointed cherub who covers: and I set you, [so that] you were on the holy mountain of God; you have walked up and down in the midst of the stones of fire.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he saith unto them, Be not amazed: ye seek Jesus, the Nazarene, who hath been crucified: he is risen; he is not here: behold, the place where they laid him!
+He said to them, "Don't be amazed. You seek Jesus, the Nazarene, who has been crucified. He has risen. He is not here. Behold, the place where they laid him!

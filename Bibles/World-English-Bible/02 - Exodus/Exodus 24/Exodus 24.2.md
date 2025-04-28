@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Moses alone shall come near unto Jehovah; but they shall not come near; neither shall the people go up with him.
+Moses alone shall come near to Yahweh, but they shall not come near, neither shall the people go up with him."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and hast forgotten Jehovah thy Maker, that stretched forth the heavens, and laid the foundations of the earth; and fearest continually all the day because of the fury of the oppressor, when he maketh ready to destroy? and where is the fury of the oppressor?
+and have forgotten Yahweh your Maker, who stretched forth the heavens, and laid the foundations of the earth; and fear continually all the day because of the fury of the oppressor, when he makes ready to destroy? and where is the fury of the oppressor?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah spake unto Gad, David's seer, saying,
+Yahweh spoke to Gad, David's seer, saying,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Look down from heaven, and behold from the habitation of thy holiness and of thy glory: where are thy zeal and thy mighty acts? the yearning of thy heart and thy compassions are restrained toward me.
+Look down from heaven, and see from the habitation of your holiness and of your glory: where are your zeal and your mighty acts? the yearning of your heart and your compassion is restrained toward me.

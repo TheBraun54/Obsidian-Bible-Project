@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And two boards shalt thou make for the corners of the tabernacle in the hinder part.
+You shall make two boards for the corners of the tabernacle in the far part.

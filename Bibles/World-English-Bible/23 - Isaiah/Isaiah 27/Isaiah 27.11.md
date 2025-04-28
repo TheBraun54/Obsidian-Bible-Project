@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the boughs thereof are withered, they shall be broken off; the women shall come, and set them on fire; for it is a people of no understanding: therefore he that made them will not have compassion upon them, and he that formed them will show them no favor.
+When its boughs are withered, they will be broken off. The women will come and set them on fire, for they are a people of no understanding. Therefore he who made them will not have compassion on them, and he who formed them will show them no favor.

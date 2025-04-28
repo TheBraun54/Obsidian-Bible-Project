@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and if it be meet for me to go also, they shall go with me.
+If it is appropriate for me to go also, they will go with me.

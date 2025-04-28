@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The tenth [captain] for the tenth month was Maharai the Netophathite, of the Zerahites: and in his course were twenty and four thousand.
+The tenth [captain] for the tenth month was Maharai the Netophathite, of the Zerahites: and in his division were Twenty-four thousand.

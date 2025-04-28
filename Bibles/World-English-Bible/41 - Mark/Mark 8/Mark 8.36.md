@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For what doth it profit a man, to gain the whole world, and forfeit his life?
+For what does it profit a man, to gain the whole world, and forfeit his life?

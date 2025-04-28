@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She girdeth her loins with strength, And maketh strong her arms.
+She arms her waist with strength, and makes her arms strong.

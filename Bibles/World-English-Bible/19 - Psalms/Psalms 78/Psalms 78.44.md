@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And turned their rivers into blood, And their streams, so that they could not drink.
+he turned their rivers into blood, and their streams, so that they could not drink.

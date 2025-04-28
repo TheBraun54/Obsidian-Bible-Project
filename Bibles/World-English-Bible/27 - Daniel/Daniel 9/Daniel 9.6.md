@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-neither have we hearkened unto thy servants the prophets, that spake in thy name to our kings, our princes, and our fathers, and to all the people of the land.
+neither have we listened to your servants the prophets, who spoke in your name to our kings, our princes, and our fathers, and to all the people of the land.

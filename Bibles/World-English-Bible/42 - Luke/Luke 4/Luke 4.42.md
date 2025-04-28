@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when it was day, he came out and went into a desert place: and the multitudes sought after him, and came unto him, and would have stayed him, that he should not go from them.
+When it was day, he departed and went into an uninhabited place, and the multitudes looked for him, and came to him, and held on to him, so that he wouldn't go away from them.

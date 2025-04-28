@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he that was healed knew not who it was; for Jesus had conveyed himself away, a multitude being in the place.
+But he who was healed didn't know who it was, for Jesus had withdrawn, a crowd being in the place.

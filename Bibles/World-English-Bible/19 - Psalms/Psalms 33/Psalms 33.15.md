@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that fashioneth the hearts of them all, That considereth all their works.
+he who fashions all of their hearts; and he considers all of their works.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will observe thy statutes: Oh forsake me not utterly.
+I will observe your statutes. Don't utterly forsake me. BET

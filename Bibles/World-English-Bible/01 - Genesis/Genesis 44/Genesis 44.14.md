@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Judah and his brethren came to Joseph's house; and he was yet there: and they fell before him on the ground.
+Judah and his brothers came to Joseph's house, and he was still there. They fell on the ground before him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for they could not endure that which was enjoined, If even a beast touch the mountain, it shall be stoned;
+for they could not stand that which was commanded, "If even an animal touches the mountain, it shall be stoned;"

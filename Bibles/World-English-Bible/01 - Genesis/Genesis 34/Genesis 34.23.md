@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall not their cattle and their substance and all their beasts be ours? only let us consent unto them, and they will dwell with us.
+Won't their livestock and their possessions and all their animals be ours? Only let us give our consent to them, and they will dwell with us."

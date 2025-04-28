@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came and besieged him in Abel of Beth-maacah, and they cast up a mound against the city, and it stood against the rampart; and all the people that were with Joab battered the wall, to throw it down.
+They came and besieged him in Abel of Beth Maacah, and they cast up a mound against the city, and it stood against the rampart; and all the people who were with Joab battered the wall, to throw it down.

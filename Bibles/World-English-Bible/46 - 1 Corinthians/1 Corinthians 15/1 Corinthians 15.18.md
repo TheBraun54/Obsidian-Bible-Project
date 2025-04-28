@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then they also that are fallen asleep in Christ have perished.
+Then they also who are fallen asleep in Christ have perished.

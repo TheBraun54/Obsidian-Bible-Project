@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, in the way of thy judgments, O Jehovah, have we waited for thee; to thy name, even to thy memorial [name], is the desire of our soul.
+Yes, in the way of your judgments, Yahweh, have we waited for you. Your name and your renown are the desire of our soul.

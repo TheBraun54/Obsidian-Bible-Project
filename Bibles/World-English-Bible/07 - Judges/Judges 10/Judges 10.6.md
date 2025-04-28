@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel again did that which was evil in the sight of Jehovah, and served the Baalim, and the Ashtaroth, and the gods of Syria, and the gods of Sidon, and the gods of Moab, and the gods of the children of Ammon, and the gods of the Philistines; and they forsook Jehovah, and served him not.
+The children of Israel again did that which was evil in the sight of Yahweh, and served the Baals, and the Ashtaroth, and the gods of Syria, and the gods of Sidon, and the gods of Moab, and the gods of the children of Ammon, and the gods of the Philistines; and they forsook Yahweh, and didn't serve him.

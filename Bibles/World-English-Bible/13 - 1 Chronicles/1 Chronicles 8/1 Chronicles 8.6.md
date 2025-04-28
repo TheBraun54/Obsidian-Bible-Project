@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the sons of Ehud: these are the heads of fathers' [houses] of the inhabitants of Geba, and they carried them captive to Manahath:
+These are the sons of Ehud: these are the heads of fathers' [houses] of the inhabitants of Geba, and they carried them captive to Manahath:

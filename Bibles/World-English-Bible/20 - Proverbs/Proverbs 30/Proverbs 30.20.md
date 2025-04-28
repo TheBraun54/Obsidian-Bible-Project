@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So is the way of an adulterous woman; She eateth, and wipeth her mouth, And saith, I have done no wickedness.
+"So is the way of an adulterous woman: she eats and wipes her mouth, and says, 'I have done nothing wrong.'

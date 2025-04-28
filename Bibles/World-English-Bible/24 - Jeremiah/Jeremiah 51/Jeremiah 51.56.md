@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the destroyer is come upon her, even upon Babylon, and her mighty men are taken, their bows are broken in pieces; for Jehovah is a God of recompenses, he will surely requite.
+for the destroyer is come on her, even on Babylon, and her mighty men are taken, their bows are broken in pieces; for Yahweh is a God of recompenses, he will surely requite.

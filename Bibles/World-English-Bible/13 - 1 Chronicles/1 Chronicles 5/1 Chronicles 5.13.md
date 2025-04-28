@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their brethren of their fathers' houses: Michael, and Meshullam, and Sheba, and Jorai, and Jacan, and Zia, and Eber, seven.
+Their brothers of their fathers' houses: Michael, and Meshullam, and Sheba, and Jorai, and Jacan, and Zia, and Eber, seven.

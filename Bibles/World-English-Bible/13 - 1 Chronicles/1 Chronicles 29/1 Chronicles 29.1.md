@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David the king said unto all the assembly, Solomon my son, whom alone God hath chosen, is yet young and tender, and the work is great; for the palace is not for man, but for Jehovah God.
+David the king said to all the assembly, "Solomon my son, whom alone God has chosen, is yet young and tender, and the work is great; for the palace is not for man, but for Yahweh God.

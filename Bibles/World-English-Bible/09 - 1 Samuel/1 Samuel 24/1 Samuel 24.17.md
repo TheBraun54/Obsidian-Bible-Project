@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said to David, Thou art more righteous than I; for thou hast rendered unto me good, whereas I have rendered unto thee evil.
+He said to David, "You are more righteous than I; for you have done good to me, whereas I have done evil to you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the earth shall answer the grain, and the new wine, and the oil; and they shall answer Jezreel.
+and the earth will respond to the grain, and the new wine, and the oil; and they will respond to Jezreel.

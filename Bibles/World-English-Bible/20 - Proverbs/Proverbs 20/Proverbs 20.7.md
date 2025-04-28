@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A righteous man that walketh in his integrity, Blessed are his children after him.
+A righteous man walks in integrity. Blessed are his children after him.

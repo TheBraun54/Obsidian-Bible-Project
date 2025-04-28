@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass that, when Jeremiah had made an end of speaking unto all the people all the words of Jehovah their God, wherewith Jehovah their God had sent him to them, even all these words,
+It happened that, when Jeremiah had made an end of speaking to all the people all the words of Yahweh their God, with which Yahweh their God had sent him to them, even all these words,

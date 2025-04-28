@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of Heman; the sons of Heman: Bukkiah, Mattaniah, Uzziel, Shebuel, and Jerimoth, Hananiah, Hanani, Eliathah, Giddalti, and Romamti-ezer, Joshbekashah, Mallothi, Hothir, Mahazioth.
+Of Heman; the sons of Heman: Bukkiah, Mattaniah, Uzziel, Shebuel, and Jerimoth, Hananiah, Hanani, Eliathah, Giddalti, and Romamti-Ezer, Joshbekashah, Mallothi, Hothir, Mahazioth.

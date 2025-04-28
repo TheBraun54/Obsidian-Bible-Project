@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the flood was forty days upon the earth; and the waters increased, and bare up the ark, and it was lifted up above the earth.
+The flood was forty days on the earth. The waters increased, and lifted up the ship, and it was lifted up above the earth.

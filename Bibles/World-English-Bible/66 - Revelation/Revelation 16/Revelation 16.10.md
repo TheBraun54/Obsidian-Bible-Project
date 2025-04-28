@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the fifth poured out his bowl upon the throne of the beast; and his kingdom was darkened; and they gnawed their tongues for pain,
+The fifth poured out his bowl on the throne of the beast, and his kingdom was darkened. They gnawed their tongues because of the pain,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And early in the morning he came again into the temple, and all the people came unto him; and he sat down, and taught them.
+Now very early in the morning, he came again into the temple, and all the people came to him. He sat down, and taught them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they shall be ashamed of the oaks which ye have desired, and ye shall be confounded for the gardens that ye have chosen.
+For they shall be ashamed of the oaks which you have desired, and you shall be confounded for the gardens that you have chosen.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To him that led his people through the wilderness; For his lovingkindness [endureth] for ever:
+To him who led his people through the wilderness; for his loving kindness endures forever:

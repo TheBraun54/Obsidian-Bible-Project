@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel of Jehovah came, and sat under the oak which was in Ophrah, that pertained unto Joash the Abiezrite: and his son Gideon was beating out wheat in the winepress, to hide it from the Midianites.
+The angel of Yahweh came, and sat under the oak which was in Ophrah, that pertained to Joash the Abiezrite: and his son Gideon was beating out wheat in the winepress, to hide it from the Midianites.

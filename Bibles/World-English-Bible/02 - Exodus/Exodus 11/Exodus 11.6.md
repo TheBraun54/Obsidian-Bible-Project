@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there shall be a great cry throughout all the land of Egypt, such as there hath not been, nor shall be any more.
+There shall be a great cry throughout all the land of Egypt, such as there has not been, nor shall be any more.

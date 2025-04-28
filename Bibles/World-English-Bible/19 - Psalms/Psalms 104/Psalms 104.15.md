@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And wine that maketh glad the heart of man, [And] oil to make his face to shine, And bread that strengtheneth man's heart.
+wine that makes glad the heart of man, oil to make his face to shine, and bread that strengthens man's heart.

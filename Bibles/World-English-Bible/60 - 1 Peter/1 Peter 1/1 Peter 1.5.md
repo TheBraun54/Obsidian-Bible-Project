@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who by the power of God are guarded through faith unto a salvation ready to be revealed in the last time.
+who by the power of God are guarded through faith for a salvation ready to be revealed in the last time.

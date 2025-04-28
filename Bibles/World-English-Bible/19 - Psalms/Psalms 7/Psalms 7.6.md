@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise, O Jehovah, in thine anger; Lift up thyself against the rage of mine adversaries, And awake for me; thou hast commanded judgment.
+Arise, Yahweh, in your anger. Lift up yourself against the rage of my adversaries. Awake for me. You have commanded judgment.

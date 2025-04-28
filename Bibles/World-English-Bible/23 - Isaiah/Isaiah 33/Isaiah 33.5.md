@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is exalted; for he dwelleth on high: he hath filled Zion with justice and righteousness.
+Yahweh is exalted, for he dwells on high. He has filled Zion with justice and righteousness.

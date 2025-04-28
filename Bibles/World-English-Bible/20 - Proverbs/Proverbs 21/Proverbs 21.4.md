@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A high look, and a proud heart, [Even] the lamp of the wicked, is sin.
+A high look, and a proud heart, the lamp of the wicked, is sin.

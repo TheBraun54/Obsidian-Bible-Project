@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass about three months after, that it was told Judah, saying, Tamar thy daughter-in-law hath played the harlot; and moreover, behold, she is with child by whoredom. And Judah said, Bring her forth, and let her be burnt.
+It happened about three months later, that it was told Judah, saying, "Tamar, your daughter-in-law, has played the prostitute; and moreover, behold, she is with child by prostitution." Judah said, "Bring her forth, and let her be burnt."

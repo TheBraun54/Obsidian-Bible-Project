@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the statutes and ordinances and laws, which Jehovah made between him and the children of Israel in mount Sinai by Moses.
+These are the statutes, ordinances and laws, which Yahweh made between him and the children of Israel in Mount Sinai by Moses.

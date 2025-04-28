@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou, O my God, hast revealed to thy servant that thou wilt build him a house: therefore hath thy servant found [in his heart] to pray before thee.
+For you, my God, have revealed to your servant that you will build him a house. Therefore your servant has found courage to pray before you.

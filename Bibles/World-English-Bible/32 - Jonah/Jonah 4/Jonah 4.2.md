@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he prayed unto Jehovah, and said, I pray thee, O Jehovah, was not this my saying, when I was yet in my country? Therefore I hasted to flee unto Tarshish; for I knew that thou art a gracious God, and merciful, slow to anger, and abundant in lovingkindness, and repentest thee of the evil.
+He prayed to Yahweh, and said, "Please, Yahweh, wasn't this what I said when I was still in my own country? Therefore I hurried to flee to Tarshish, for I knew that you are a gracious God, and merciful, slow to anger, and abundant in loving kindness, and you relent of doing harm.

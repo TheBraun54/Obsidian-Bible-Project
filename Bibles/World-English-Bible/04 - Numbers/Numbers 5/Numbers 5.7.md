@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then he shall confess his sin which he hath done: and he shall make restitution for his guilt in full, and add unto it the fifth part thereof, and give it unto him in respect of whom he hath been guilty.
+then he shall confess his sin which he has done, and he shall make restitution for his guilt in full, and add to it the fifth part of it, and give it to him in respect of whom he has been guilty.

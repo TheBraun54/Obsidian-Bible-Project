@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the overhanging part that remaineth of the curtains of the tent, the half curtain that remaineth, shall hang over the back of the tabernacle.
+The overhanging part that remains of the curtains of the tent, the half curtain that remains, shall hang over the back of the tabernacle.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If a man say, I love God, and hateth his brother, he is a liar: for he that loveth not his brother whom he hath seen, cannot love God whom he hath not seen.
+If a man says, "I love God," and hates his brother, he is a liar; for he who doesn't love his brother whom he has seen, how can he love God whom he has not seen?

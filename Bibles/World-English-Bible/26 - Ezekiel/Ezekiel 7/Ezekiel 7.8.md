@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now will I shortly pour out my wrath upon thee, and accomplish mine anger against thee, and will judge thee according to thy ways; and I will bring upon thee all thine abominations.
+Now will I shortly pour out my wrath on you, and accomplish my anger against you, and will judge you according to your ways; and I will bring on you all your abominations.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Zedekiah the king sent, and took Jeremiah the prophet unto him into the third entry that is in the house of Jehovah: and the king said unto Jeremiah, I will ask thee a thing; hide nothing from me.
+Then Zedekiah the king sent, and took Jeremiah the prophet to him into the third entry that is in the house of Yahweh: and the king said to Jeremiah, I will ask you something. Hide nothing from me.

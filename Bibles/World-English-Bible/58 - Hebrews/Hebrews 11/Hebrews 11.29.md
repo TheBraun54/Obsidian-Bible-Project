@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By faith they passed through the Red sea as by dry land: which the Egyptians assaying to do were swallowed up.
+By faith, they passed through the Red Sea as on dry land. When the Egyptians tried to do so, they were swallowed up.

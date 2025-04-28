@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But in those [sacrifices] there is a remembrance made of sins year by year.
+But in those sacrifices there is a yearly reminder of sins.

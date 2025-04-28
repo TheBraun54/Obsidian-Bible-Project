@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Rehoboam loved Maacah the daughter of Absalom above all his wives and his concubines: (for he took eighteen wives, and threescore concubines, and begat twenty and eight sons and threescore daughters.)
+Rehoboam loved Maacah the daughter of Absalom above all his wives and his concubines: (for he took eighteen wives, and sixty concubines, and became the father of twenty-eight sons and sixty daughters.)

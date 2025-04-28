@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Seir: Lotan, and Shobal, and Zibeon, and Anah, and Dishon, and Ezer, and Dishan.
+The sons of Seir: Lotan, and Shobal, and Zibeon, and Anah, and Dishon, and Ezer, and Dishan.

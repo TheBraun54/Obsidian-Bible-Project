@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A wise man feareth, and departeth from evil; But the fool beareth himself insolently, and is confident.
+A wise man fears, and shuns evil, but the fool is hotheaded and reckless.

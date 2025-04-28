@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed is that servant, whom his lord when he cometh shall find so doing.
+Blessed is that servant whom his lord will find doing so when he comes.

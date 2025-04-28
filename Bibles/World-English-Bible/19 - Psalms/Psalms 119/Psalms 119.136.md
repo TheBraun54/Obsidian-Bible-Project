@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Streams of water run down mine eyes, Because they observe not thy law.
+Streams of tears run down my eyes, because they don't observe your law. TZADI

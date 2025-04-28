@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I also say unto thee, that thou art Peter, and upon this rock I will build my church; and the gates of Hades shall not prevail against it.
+I also tell you that you are Peter, and on this rock I will build my assembly, and the gates of Hades will not prevail against it.

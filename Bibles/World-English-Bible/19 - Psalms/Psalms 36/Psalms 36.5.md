@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy lovingkindness, O Jehovah, is in the heavens; Thy faithfulness [reacheth] unto the skies.
+Your loving kindness, Yahweh, is in the heavens. Your faithfulness reaches to the skies.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let burning coals fall upon them: Let them be cast into the fire, Into deep pits, whence they shall not rise.
+Let burning coals fall on them. Let them be thrown into the fire, into miry pits, from where they never rise.

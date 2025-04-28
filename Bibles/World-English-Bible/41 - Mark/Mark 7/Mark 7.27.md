@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto her, Let the children first be filled: for it is not meet to take the children's bread and cast it to the dogs.
+But Jesus said to her, "Let the children be filled first, for it is not appropriate to take the children's bread and throw it to the dogs."

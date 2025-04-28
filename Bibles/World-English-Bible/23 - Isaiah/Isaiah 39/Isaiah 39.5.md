@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Isaiah to Hezekiah, Hear the word of Jehovah of hosts:
+Then Isaiah said to Hezekiah, "Hear the word of Yahweh of Armies:

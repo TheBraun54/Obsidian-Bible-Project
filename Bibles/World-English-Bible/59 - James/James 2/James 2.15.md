@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If a brother or sister be naked and in lack of daily food,
+And if a brother or sister is naked and in lack of daily food,

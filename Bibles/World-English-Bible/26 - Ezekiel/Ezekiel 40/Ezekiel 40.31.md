@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the arches thereof were toward the outer court; and palm-trees were upon the posts thereof: and the ascent to it had eight steps.
+The arches of it were toward the outer court; and palm trees were on its posts: and the ascent to it had eight steps.

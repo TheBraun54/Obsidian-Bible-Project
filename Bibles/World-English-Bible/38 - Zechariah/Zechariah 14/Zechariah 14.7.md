@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but it shall be one day which is known unto Jehovah; not day, and not night; but it shall come to pass, that at evening time there shall be light.
+It will be a unique day which is known to Yahweh; not day, and not night; but it will come to pass, that at evening time there will be light.

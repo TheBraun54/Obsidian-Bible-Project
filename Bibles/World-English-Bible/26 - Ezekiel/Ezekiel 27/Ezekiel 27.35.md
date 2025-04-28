@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the inhabitants of the isles are astonished at thee, and their kings are horribly afraid; they are troubled in their countenance.
+All the inhabitants of the islands are astonished at you, and their kings are horribly afraid; they are troubled in their face.

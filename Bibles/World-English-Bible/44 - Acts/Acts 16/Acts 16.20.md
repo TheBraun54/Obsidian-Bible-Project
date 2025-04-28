@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when they had brought them unto the magistrates, they said, These men, being Jews, do exceedingly trouble our city,
+When they had brought them to the magistrates, they said, "These men, being Jews, are agitating our city,

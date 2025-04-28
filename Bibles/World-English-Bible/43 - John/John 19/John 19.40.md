@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they took the body of Jesus, and bound it in linen cloths with the spices, as the custom of the Jews is to bury.
+So they took Jesus' body, and bound it in linen cloths with the spices, as the custom of the Jews is to bury.

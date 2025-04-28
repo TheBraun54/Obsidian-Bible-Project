@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul said, Hear now, thou son of Ahitub. And he answered, Here I am, my lord.
+Saul said, "Hear now, you son of Ahitub." He answered, "Here I am, my lord."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jerusalem hath grievously sinned; therefore she is become as an unclean thing; All that honored her despise her, because they have seen her nakedness: Yea, she sigheth, and turneth backward.
+Jerusalem has grievously sinned; therefore she is become as an unclean thing; all who honored her despise her, because they have seen her nakedness: yes, she sighs, and turns backward.

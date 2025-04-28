@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and lest thou lift up thine eyes unto heaven, and when thou seest the sun and the moon and the stars, even all the host of heaven, thou be drawn away and worship them, and serve them, which Jehovah thy God hath allotted unto all the peoples under the whole heaven.
+and lest you lift up your eyes to the sky, and when you see the sun and the moon and the stars, even all the army of the sky, you are drawn away and worship them, and serve them, which Yahweh your God has allotted to all the peoples under the whole sky.

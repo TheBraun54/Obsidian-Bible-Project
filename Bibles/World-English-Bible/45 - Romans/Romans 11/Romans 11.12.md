@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now if their fall, is the riches of the world, and their loss the riches of the Gentiles; how much more their fulness?
+Now if their fall is the riches of the world, and their loss the riches of the Gentiles; how much more their fullness?

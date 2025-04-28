@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they spake unto all the congregation of the children of Israel, saying, The land, which we passed through to spy it out, is an exceeding good land.
+and they spoke to all the congregation of the children of Israel, saying, "The land, which we passed through to spy it out, is an exceeding good land.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With whomsoever of thy servants it be found, let him die, and we also will be my lord's bondmen.
+With whoever of your servants it be found, let him die, and we also will be my lord's bondservants."

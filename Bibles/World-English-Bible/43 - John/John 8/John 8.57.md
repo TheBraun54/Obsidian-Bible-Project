@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Jews therefore said unto him, Thou art not yet fifty years old, and hast thou seen Abraham?
+The Jews therefore said to him, "You are not yet fifty years old, and have you seen Abraham?"

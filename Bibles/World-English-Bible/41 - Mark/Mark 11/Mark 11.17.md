@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he taught, and said unto them, Is it not written, My house shall be called a house of prayer for all the nations? but ye have made it a den of robbers.
+He taught, saying to them, "Isn't it written, 'My house will be called a house of prayer for all the nations?' But you have made it a den of robbers!"

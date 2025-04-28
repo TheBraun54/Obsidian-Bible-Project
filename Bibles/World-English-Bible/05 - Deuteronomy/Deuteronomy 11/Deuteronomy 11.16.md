@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take heed to yourselves, lest your heart be deceived, and ye turn aside, and serve other gods, and worship them;
+Take heed to yourselves, lest your heart be deceived, and you turn aside, and serve other gods, and worship them;

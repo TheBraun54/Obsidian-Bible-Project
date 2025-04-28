@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and let us bring again the ark of our God to us: for we sought not unto it in the days of Saul.
+and let us bring again the ark of our God to us. For we didn't seek it in the days of Saul."

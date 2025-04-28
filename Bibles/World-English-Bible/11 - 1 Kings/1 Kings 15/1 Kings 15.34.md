@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he did that which was evil in the sight of Jehovah, and walked in the way of Jeroboam, and in his sin wherewith he made Israel to sin.
+He did that which was evil in the sight of Yahweh, and walked in the way of Jeroboam, and in his sin with which he made Israel to sin.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover certain women of our company amazed us, having been early at the tomb;
+Also, certain women of our company amazed us, having arrived early at the tomb;

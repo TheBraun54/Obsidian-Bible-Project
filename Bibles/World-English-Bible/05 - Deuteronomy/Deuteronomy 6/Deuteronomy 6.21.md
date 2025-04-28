@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then thou shalt say unto thy son, We were Pharaoh's bondmen in Egypt: and Jehovah brought us out of Egypt with a mighty hand;
+then you shall tell your son, "We were Pharaoh's bondservants in Egypt: and Yahweh brought us out of Egypt with a mighty hand;

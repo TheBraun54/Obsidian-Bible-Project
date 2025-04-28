@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the prophet that brought him back from the way heard thereof, he said, It is the man of God, who was disobedient unto the mouth of Jehovah: therefore Jehovah hath delivered him unto the lion, which hath torn him, and slain him, according to the word of Jehovah, which he spake unto him.
+When the prophet who brought him back from the way heard of it, he said, "It is the man of God who was disobedient to the mouth of Yahweh. Therefore Yahweh has delivered him to the lion, which has mauled him and slain him, according to the word of Yahweh, which he spoke to him."

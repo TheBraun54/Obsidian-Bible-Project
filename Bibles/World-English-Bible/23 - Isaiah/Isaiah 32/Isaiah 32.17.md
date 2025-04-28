@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the work of righteousness shall be peace; and the effect of righteousness, quietness and confidence for ever.
+The work of righteousness will be peace; and the effect of righteousness, quietness and confidence forever.

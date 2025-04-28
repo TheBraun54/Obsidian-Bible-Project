@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when the children of Israel cried unto Jehovah, Jehovah raised them up a saviour, Ehud the son of Gera, the Benjamite, a man left-handed. And the children of Israel sent tribute by him unto Eglon the king of Moab.
+But when the children of Israel cried to Yahweh, Yahweh raised them up a savior, Ehud the son of Gera, the Benjamite, a man left-handed. The children of Israel sent tribute by him to Eglon the king of Moab.

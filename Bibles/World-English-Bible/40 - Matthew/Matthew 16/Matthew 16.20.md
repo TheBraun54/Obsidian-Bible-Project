@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then charged he the disciples that they should tell no man that he was the Christ.
+Then he commanded the disciples that they should tell no one that he was Jesus the Christ.

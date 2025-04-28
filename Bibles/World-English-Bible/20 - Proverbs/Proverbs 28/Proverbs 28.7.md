@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso keepeth the law is a wise son; But he that is a companion of gluttons shameth his father.
+Whoever keeps the law is a wise son; but he who is a companion of gluttons shames his father.

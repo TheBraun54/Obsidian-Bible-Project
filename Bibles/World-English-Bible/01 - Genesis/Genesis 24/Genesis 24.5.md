@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the servant said unto him, Peradventure the woman will not be willing to follow me unto this land: must I needs bring thy son again unto the land from whence thou camest?
+The servant said to him, "What if the woman isn't willing to follow me to this land? Must I bring your son again to the land you came from?"

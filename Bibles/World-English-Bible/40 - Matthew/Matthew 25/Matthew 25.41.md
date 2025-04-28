@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall he say also unto them on the left hand, Depart from me, ye cursed, into the eternal fire which is prepared for the devil and his angels:
+Then he will say also to those on the left hand, 'Depart from me, you cursed, into the eternal fire which is prepared for the devil and his angels;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall walk in all the way which Jehovah your God hath commanded you, that ye may live, and that it may be well with you, and that ye may prolong your days in the land which ye shall possess.
+You shall walk in all the way which Yahweh your God has commanded you, that you may live, and that it may be well with you, and that you may prolong your days in the land which you shall possess.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the men observed diligently, and hasted to catch whether it were his mind; and they said, Thy brother Ben-hadad. Then he said, Go ye, bring him. Then Ben-hadad came forth to him; and he caused him to come up into the chariot.
+Now the men observed diligently, and hurried to take this phrase; and they said, "Your brother Ben Hadad." Then he said, "Go, bring him." Then Ben Hadad came out to him; and he caused him to come up into the chariot.

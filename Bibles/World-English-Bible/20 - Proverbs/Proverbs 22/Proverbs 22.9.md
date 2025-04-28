@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that hath a bountiful eye shall be blessed; For he giveth of his bread to the poor.
+He who has a generous eye will be blessed; for he shares his food with the poor.

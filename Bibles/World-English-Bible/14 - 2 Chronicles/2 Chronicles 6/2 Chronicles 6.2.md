@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I have built thee a house of habitation, and a place for thee to dwell in for ever.
+But I have built you a house of habitation, and a place for you to dwell in forever."

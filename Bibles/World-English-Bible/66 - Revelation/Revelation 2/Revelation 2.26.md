@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that overcometh, and he that keepeth my works unto the end, to him will I give authority over the nations:
+He who overcomes, and he who keeps my works to the end, to him I will give authority over the nations.

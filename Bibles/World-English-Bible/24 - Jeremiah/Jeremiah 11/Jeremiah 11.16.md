@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah called thy name, A green olive-tree, fair with goodly fruit: with the noise of a great tumult he hath kindled fire upon it, and the branches of it are broken.
+Yahweh called your name, A green olive tree, beautiful with goodly fruit: with the noise of a great tumult he has kindled fire on it, and its branches are broken.

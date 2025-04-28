@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they took the money, and did as they were taught: and this saying was spread abroad among the Jews, [and continueth] until this day.
+So they took the money and did as they were told. This saying was spread abroad among the Jews, and continues until this day.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast multiplied thy merchants above the stars of heaven: the canker-worm ravageth, and fleeth away.
+You have increased your merchants more than the stars of the skies. The grasshopper strips, and flees away.

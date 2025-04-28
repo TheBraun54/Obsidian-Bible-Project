@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yet hath he not root in himself, but endureth for a while; and when tribulation or persecution ariseth because of the word, straightway he stumbleth.
+yet he has no root in himself, but endures for a while. When oppression or persecution arises because of the word, immediately he stumbles.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There are four things which are little upon the earth, But they are exceeding wise:
+"There are four things which are little on the earth, but they are exceedingly wise:

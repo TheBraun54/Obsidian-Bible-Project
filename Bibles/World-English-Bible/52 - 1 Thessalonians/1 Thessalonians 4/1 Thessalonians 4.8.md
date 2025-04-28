@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore he that rejecteth, rejecteth not man, but God, who giveth his Holy Spirit unto you.
+Therefore he who rejects this doesn't reject man, but God, who has also given his Holy Spirit to you.

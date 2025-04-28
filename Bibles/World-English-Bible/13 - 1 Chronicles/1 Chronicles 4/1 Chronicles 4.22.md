@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jokim, and the men of Cozeba, and Joash, and Saraph, who had dominion in Moab, and Jashubilehem. And the records are ancient.
+and Jokim, and the men of Cozeba, and Joash, and Saraph, who had dominion in Moab, and Jashubilehem. The records are ancient.

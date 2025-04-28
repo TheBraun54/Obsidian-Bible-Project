@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, that whoso of [all] the families of the earth goeth not up unto Jerusalem to worship the King, Jehovah of hosts, upon them there shall be no rain.
+It will be, that whoever of all the families of the earth doesn't go up to Jerusalem to worship the King, Yahweh of Armies, on them there will be no rain.

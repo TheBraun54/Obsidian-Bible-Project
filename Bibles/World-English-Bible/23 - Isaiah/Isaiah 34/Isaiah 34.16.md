@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seek ye out of the book of Jehovah, and read: no one of these shall be missing, none shall want her mate; for my mouth, it hath commanded, and his Spirit, it hath gathered them.
+Search in the book of Yahweh, and read: not one of these will be missing. none will lack her mate. For my mouth has commanded, and his Spirit has gathered them.

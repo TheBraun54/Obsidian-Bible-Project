@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Hear now my words: if there be a prophet among you, I Jehovah will make myself known unto him in a vision, I will speak with him in a dream.
+He said, "Hear now my words. If there is a prophet among you, I Yahweh will make myself known to him in a vision. I will speak with him in a dream.

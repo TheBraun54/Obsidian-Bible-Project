@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when we had sailed slowly many days, and were come with difficulty over against Cnidus, the wind not further suffering us, we sailed under the lee of Crete, over against Salmone;
+When we had sailed slowly many days, and had come with difficulty opposite Cnidus, the wind not allowing us further, we sailed under the lee of Crete, opposite Salmone.

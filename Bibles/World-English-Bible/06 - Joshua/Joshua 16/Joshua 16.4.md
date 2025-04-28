@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Joseph, Manasseh and Ephraim, took their inheritance.
+The children of Joseph, Manasseh and Ephraim, took their inheritance.

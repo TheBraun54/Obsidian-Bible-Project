@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore I take pleasure in weaknesses, in injuries, in necessities, in persecutions, in distresses, for Christ's sake: for when I am weak, then am I strong.
+Therefore I take pleasure in weaknesses, in injuries, in necessities, in persecutions, in distresses, for Christ's sake. For when I am weak, then am I strong.

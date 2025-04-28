@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath described a boundary upon the face of the waters, Unto the confines of light and darkness.
+He has described a boundary on the surface of the waters, and to the confines of light and darkness.

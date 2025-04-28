@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will bring a sword upon you, that shall execute the vengeance of the covenant; and ye shall be gathered together within your cities: and I will send the pestilence among you; and ye shall be delivered into the hand of the enemy.
+I will bring a sword upon you, that will execute the vengeance of the covenant; and you will be gathered together within your cities: and I will send the pestilence among you; and you will be delivered into the hand of the enemy.

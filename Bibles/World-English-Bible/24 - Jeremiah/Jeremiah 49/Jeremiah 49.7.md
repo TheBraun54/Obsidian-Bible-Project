@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of Edom. Thus saith Jehovah of hosts: Is wisdom no more in Teman? is counsel perished from the prudent? is their wisdom vanished?
+Of Edom. Thus says Yahweh of Armies: Is wisdom no more in Teman? is counsel perished from the prudent? is their wisdom vanished?

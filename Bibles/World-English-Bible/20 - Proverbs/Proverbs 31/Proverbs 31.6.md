@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give strong drink unto him that is ready to perish, And wine unto the bitter in soul:
+Give strong drink to him who is ready to perish; and wine to the bitter in soul:

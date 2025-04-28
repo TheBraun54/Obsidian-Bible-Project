@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then a spirit passed before my face; The hair of my flesh stood up.
+Then a spirit passed before my face. The hair of my flesh stood up.

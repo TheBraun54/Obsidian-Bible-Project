@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover all the chiefs of the priests, and the people, trespassed very greatly after all the abominations of the nations; and they polluted the house of Jehovah which he had hallowed in Jerusalem.
+Moreover all the chiefs of the priests, and the people, trespassed very greatly after all the abominations of the nations; and they polluted the house of Yahweh which he had made holy in Jerusalem.

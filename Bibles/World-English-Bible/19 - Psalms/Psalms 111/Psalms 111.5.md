@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath given food unto them that fear him: He will ever be mindful of his covenant.
+He has given food to those who fear him. He always remembers his covenant.

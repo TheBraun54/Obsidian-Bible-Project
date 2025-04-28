@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As in water face [answereth] to face, So the heart of man to man.
+As water reflects a face, so a man's heart reflects the man.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he cried as a lion: O Lord, I stand continually upon the watch-tower in the day-time, and am set in my ward whole nights;
+He cried like a lion: "Lord, I stand continually on the watchtower in the daytime, and every night I stay at my post.

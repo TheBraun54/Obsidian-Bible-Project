@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And prepare yourselves after your fathers' houses by your courses, according to the writing of David king of Israel, and according to the writing of Solomon his son.
+Prepare yourselves after your fathers' houses by your divisions, according to the writing of David king of Israel, and according to the writing of Solomon his son.

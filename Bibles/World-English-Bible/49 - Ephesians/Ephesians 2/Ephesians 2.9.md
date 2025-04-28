@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-not of works, that no man should glory.
+not of works, that no one would boast.

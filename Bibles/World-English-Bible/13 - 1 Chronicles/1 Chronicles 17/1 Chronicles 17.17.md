@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this was a small thing in thine eyes, O God; but thou hast spoken of thy servant's house for a great while to come, and hast regarded me according to the estate of a man of high degree, O Jehovah God.
+This was a small thing in your eyes, God; but you have spoken of your servant's house for a great while to come, and have respected me according to the estate of a man of high degree, Yahweh God.

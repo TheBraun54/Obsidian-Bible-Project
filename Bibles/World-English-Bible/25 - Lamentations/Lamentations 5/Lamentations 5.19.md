@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou, O Jehovah, abidest for ever; Thy throne is from generation to generation.
+You, Yahweh, remain forever; Your throne is from generation to generation.

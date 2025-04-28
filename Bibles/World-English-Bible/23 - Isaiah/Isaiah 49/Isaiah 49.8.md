@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, In an acceptable time have I answered thee, and in a day of salvation have I helped thee; and I will preserve thee, and give thee for a covenant of the people, to raise up the land, to make them inherit the desolate heritages:
+Thus says Yahweh, "In an acceptable time have I answered you, and in a day of salvation have I helped you; and I will preserve you, and give you for a covenant of the people, to raise up the land, to make them inherit the desolate heritage:

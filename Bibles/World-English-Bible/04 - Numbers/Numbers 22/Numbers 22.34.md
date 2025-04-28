@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Balaam said unto the angel of Jehovah, I have sinned; for I knew not that thou stoodest in the way against me: now therefore, if it displease thee, I will get me back again.
+Balaam said to the angel of Yahweh, "I have sinned; for I didn't know that you stood in the way against me. Now therefore, if it displeases you, I will go back again."

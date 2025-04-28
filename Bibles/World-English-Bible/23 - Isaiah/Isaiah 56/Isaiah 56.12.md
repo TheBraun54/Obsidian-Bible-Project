@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come ye, [say they], I will fetch wine, and we will fill ourselves with strong drink; and to-morrow shall be as this day, [a day] great beyond measure.
+"Come," [say they], "I will get wine, and we will fill ourselves with strong drink; and tomorrow shall be as this day, [a day] great beyond measure."

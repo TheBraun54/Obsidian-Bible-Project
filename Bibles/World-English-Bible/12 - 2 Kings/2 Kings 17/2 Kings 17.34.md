@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Unto this day they do after the former manner: they fear not Jehovah, neither do they after their statutes, or after their ordinances, or after the law or after the commandment which Jehovah commanded the children of Jacob, whom he named Israel;
+To this day they do what they did before: they don't fear Yahweh, neither do they follow their statutes, or their ordinances, or the law or the commandment which Yahweh commanded the children of Jacob, whom he named Israel;

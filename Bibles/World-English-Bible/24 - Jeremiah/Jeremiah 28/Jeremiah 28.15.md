@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said the prophet Jeremiah unto Hananiah the prophet, Hear now, Hananiah: Jehovah hath not sent thee; but thou makest this people to trust in a lie.
+Then the prophet Jeremiah said to Hananiah the prophet, Hear now, Hananiah: Yahweh has not sent you; but you make this people to trust in a lie.

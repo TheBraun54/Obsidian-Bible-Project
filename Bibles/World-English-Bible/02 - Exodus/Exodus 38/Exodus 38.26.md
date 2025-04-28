@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-a beka a head, [that is], half a shekel, after the shekel of the sanctuary, for every one that passed over to them that were numbered, from twenty years old and upward, for six hundred thousand and three thousand and five hundred and fifty men.
+a beka a head, that is, half a shekel, after the shekel of the sanctuary, for everyone who passed over to those who were numbered, from twenty years old and upward, for six hundred three thousand five hundred fifty men.

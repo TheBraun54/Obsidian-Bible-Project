@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Lord direct your hearts into the love of God, and into the patience of Christ.
+May the Lord direct your hearts into the love of God, and into the patience of Christ.

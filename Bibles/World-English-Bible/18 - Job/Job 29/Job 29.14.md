@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I put on righteousness, and it clothed me: My justice was as a robe and a diadem.
+I put on righteousness, and it clothed me. My justice was as a robe and a diadem.

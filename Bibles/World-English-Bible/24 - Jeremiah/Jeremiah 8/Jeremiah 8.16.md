@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The snorting of his horses is heard from Dan: at the sound of the neighing of his strong ones the whole land trembleth; for they are come, and have devoured the land and all that is in it; the city and those that dwell therein.
+The snorting of his horses is heard from Dan: at the sound of the neighing of his strong ones the whole land trembles; for they are come, and have devoured the land and all that is in it; the city and those who dwell therein.

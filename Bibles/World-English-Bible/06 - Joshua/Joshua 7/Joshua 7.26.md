@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they raised over him a great heap of stones, unto this day; and Jehovah turned from the fierceness of his anger. Wherefore the name of that place was called, The valley of Achor, unto this day.
+They raised over him a great heap of stones that remains to this day. Yahweh turned from the fierceness of his anger. Therefore the name of that place was called "The valley of Achor" to this day.

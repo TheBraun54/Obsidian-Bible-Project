@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How he sware unto Jehovah, And vowed unto the Mighty One of Jacob:
+how he swore to Yahweh, and vowed to the Mighty One of Jacob:

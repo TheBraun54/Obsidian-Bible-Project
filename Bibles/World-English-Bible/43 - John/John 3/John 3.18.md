@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that believeth on him is not judged: he that believeth not hath been judged already, because he hath not believed on the name of the only begotten Son of God.
+He who believes in him is not judged. He who doesn't believe has been judged already, because he has not believed in the name of the one and only Son of God.

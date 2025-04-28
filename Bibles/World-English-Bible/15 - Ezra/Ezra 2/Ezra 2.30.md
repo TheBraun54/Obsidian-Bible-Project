@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Magbish, a hundred fifty and six.
+The children of Magbish, one hundred fifty-six.

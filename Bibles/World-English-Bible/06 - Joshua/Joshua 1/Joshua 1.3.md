@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every place that the sole of your foot shall tread upon, to you have I given it, as I spake unto Moses.
+I have given you every place that the sole of your foot will tread on, as I told Moses.

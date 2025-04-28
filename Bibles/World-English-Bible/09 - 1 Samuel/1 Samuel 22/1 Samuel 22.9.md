@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then answered Doeg the Edomite, who stood by the servants of Saul, and said, I saw the son of Jesse coming to Nob, to Ahimelech the son of Ahitub.
+Then Doeg the Edomite, who stood by the servants of Saul, answered and said, "I saw the son of Jesse coming to Nob, to Ahimelech the son of Ahitub.

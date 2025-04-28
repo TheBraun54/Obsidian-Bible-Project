@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Write ye also to the Jews, as it pleaseth you, in the king's name, and seal it with the king's ring; for the writing which is written in the king's name, and sealed with the king's ring, may no man reverse.
+Write also to the Jews, as it pleases you, in the king's name, and seal it with the king's ring; for the writing which is written in the king's name, and sealed with the king's ring, may not be reversed by any man."

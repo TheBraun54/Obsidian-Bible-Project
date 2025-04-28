@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For whosoever would save his life shall lose it; but whosoever shall lose his life for my sake, the same shall save it.
+For whoever desires to save his life will lose it, but whoever will lose his life for my sake, the same will save it.

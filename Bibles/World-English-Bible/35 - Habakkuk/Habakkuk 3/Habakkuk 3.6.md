@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He stood, and measured the earth; He beheld, and drove asunder the nations; And the eternal mountains were scattered; The everlasting hills did bow; His goings were [as] of old.
+He stood, and shook the earth. He looked, and made the nations tremble. The ancient mountains were crumbled. The age-old hills collapsed. His ways are eternal.

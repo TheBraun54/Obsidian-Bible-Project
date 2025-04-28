@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I looked, and, behold, ye had sinned against Jehovah your God; ye had made you a molten calf: ye had turned aside quickly out of the way which Jehovah had commanded you.
+I looked, and behold, you had sinned against Yahweh your God; you had made yourselves a molten calf: you had turned aside quickly out of the way which Yahweh had commanded you.

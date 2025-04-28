@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came Amalek, and fought with Israel in Rephidim.
+Then Amalek came and fought with Israel in Rephidim.

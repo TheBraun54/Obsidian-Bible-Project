@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seven times a day do I praise thee, Because of thy righteous ordinances.
+Seven times a day, I praise you, because of your righteous ordinances.

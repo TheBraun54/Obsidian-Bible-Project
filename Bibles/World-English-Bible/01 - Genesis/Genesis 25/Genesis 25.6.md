@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But unto the sons of the concubines, that Abraham had, Abraham gave gifts; and he sent them away from Isaac his son, while he yet lived, eastward, unto the east country.
+but to the sons of Abraham's concubines, Abraham gave gifts. He sent them away from Isaac his son, while he yet lived, eastward, to the east country.

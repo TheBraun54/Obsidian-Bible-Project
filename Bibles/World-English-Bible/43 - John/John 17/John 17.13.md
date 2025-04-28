@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now I come to thee; and these things I speak in the world, that they may have my joy made full in themselves.
+But now I come to you, and I say these things in the world, that they may have my joy made full in themselves.

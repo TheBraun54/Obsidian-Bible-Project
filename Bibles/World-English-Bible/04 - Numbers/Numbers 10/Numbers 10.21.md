@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Kohathites set forward, bearing the sanctuary: and [the others] did set up the tabernacle against their coming.
+The Kohathites set forward, bearing the sanctuary. The others set up the tabernacle before they arrived.

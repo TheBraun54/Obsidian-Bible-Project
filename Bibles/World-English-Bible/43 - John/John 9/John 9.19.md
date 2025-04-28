@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and asked them, saying, Is this your son, who ye say was born blind? How then doth he now see?
+and asked them, "Is this your son, who you say was born blind? How then does he now see?"

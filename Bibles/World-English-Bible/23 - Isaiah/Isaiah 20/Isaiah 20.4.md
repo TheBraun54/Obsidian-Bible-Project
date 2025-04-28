@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-so shall the king of Assyria lead away the captives of Egypt, and the exiles of Ethiopia, young and old, naked and barefoot, and with buttocks uncovered, to the shame of Egypt.
+so the king of Assyria will lead away the captives of Egypt and the exiles of Ethiopia, young and old, naked and barefoot, and with buttocks uncovered, to the shame of Egypt.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pray ye therefore the Lord of the harvest, that he send forth laborers into his harvest.
+Pray therefore that the Lord of the harvest will send out laborers into his harvest."

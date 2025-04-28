@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sower soweth the word.
+The farmer sows the word.

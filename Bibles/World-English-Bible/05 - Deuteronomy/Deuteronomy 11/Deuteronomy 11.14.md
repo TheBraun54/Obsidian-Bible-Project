@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that I will give the rain of your land in its season, the former rain and the latter rain, that thou mayest gather in thy grain, and thy new wine, and thine oil.
+that I will give the rain of your land in its season, the former rain and the latter rain, that you may gather in your grain, and your new wine, and your oil.

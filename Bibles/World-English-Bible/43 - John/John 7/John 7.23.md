@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If a man receiveth circumcision on the sabbath, that the law of Moses may not be broken; are ye wroth with me, because I made a man every whit whole on the sabbath?
+If a boy receives circumcision on the Sabbath, that the law of Moses may not be broken, are you angry with me, because I made a man completely healthy on the Sabbath?

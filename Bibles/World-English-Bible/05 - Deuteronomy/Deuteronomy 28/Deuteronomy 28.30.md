@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt betroth a wife, and another man shall lie with her: thou shalt build a house, and thou shalt not dwell therein: thou shalt plant a vineyard, and shalt not use the fruit thereof.
+You shall betroth a wife, and another man shall lie with her: you shall build a house, and you shall not dwell therein: you shall plant a vineyard, and shall not use its fruit.

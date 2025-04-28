@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses went and spake these words unto all Israel.
+Moses went and spoke these words to all Israel.

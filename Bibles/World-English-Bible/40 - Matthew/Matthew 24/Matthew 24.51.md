@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and shall cut him asunder, and appoint his portion with the hypocrites: there shall be the weeping and the gnashing of teeth.
+and will cut him in pieces, and appoint his portion with the hypocrites. There is where the weeping and grinding of teeth will be.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto them, Verily I say unto you, that ye who have followed me, in the regeneration when the Son of man shall sit on the throne of his glory, ye also shall sit upon twelve thrones, judging the twelve tribes of Israel.
+Jesus said to them, "Most certainly I tell you that you who have followed me, in the regeneration when the Son of Man will sit on the throne of his glory, you also will sit on twelve thrones, judging the twelve tribes of Israel.

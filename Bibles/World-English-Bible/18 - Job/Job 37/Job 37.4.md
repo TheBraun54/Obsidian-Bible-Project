@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After it a voice roareth; He thundereth with the voice of his majesty; And he restraineth not [the lightnings] when his voice is heard.
+After it a voice roars. He thunders with the voice of his majesty. He doesn't hold back anything when his voice is heard.

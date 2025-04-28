@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let Jehovah, the God of the spirits of all flesh, appoint a man over the congregation,
+"Let Yahweh, the God of the spirits of all flesh, appoint a man over the congregation,

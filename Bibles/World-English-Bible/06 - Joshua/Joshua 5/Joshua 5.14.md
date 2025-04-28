@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Nay; but [as] prince of the host of Jehovah am I now come. And Joshua fell on his face to the earth, and did worship, and said unto him, What saith my lord unto his servant?
+He said, "No; but I have come now as commander of Yahweh's army." Joshua fell on his face to the earth, and worshipped, and said to him, "What does my lord say to his servant?"

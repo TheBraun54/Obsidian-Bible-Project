@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But God clave the hollow place that is in Lehi, and there came water thereout; and when he had drunk, his spirit came again, and he revived: wherefore the name thereof was called En-hakkore, which is in Lehi, unto this day.
+But God split the hollow place that is in Lehi, and water came out of it. When he had drunk, his spirit came again, and he revived: therefore its name was called En Hakkore, which is in Lehi, to this day.

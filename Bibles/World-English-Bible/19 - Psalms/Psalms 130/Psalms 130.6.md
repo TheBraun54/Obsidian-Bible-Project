@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My soul [waiteth] for the Lord More than watchmen [wait] for the morning; [Yea, more than] watchmen for the morning.
+My soul longs for the Lord more than watchmen long for the morning; more than watchmen for the morning.

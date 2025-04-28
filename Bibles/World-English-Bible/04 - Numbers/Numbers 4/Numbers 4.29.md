@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for the sons of Merari, thou shalt number them by their families, by their fathers' houses;
+"As for the sons of Merari, you shall number them by their families, by their fathers' houses;

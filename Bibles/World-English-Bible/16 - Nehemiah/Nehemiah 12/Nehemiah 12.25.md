@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mattaniah, and Bakbukiah, Obadiah, Meshullam, Talmon, Akkub, were porters keeping the watch at the store-houses of the gates.
+Mattaniah, and Bakbukiah, Obadiah, Meshullam, Talmon, Akkub, were porters keeping the watch at the storehouses of the gates.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He is not here; for he is risen, even as he said. Come, see the place where the Lord lay.
+He is not here, for he has risen, just like he said. Come, see the place where the Lord was lying.

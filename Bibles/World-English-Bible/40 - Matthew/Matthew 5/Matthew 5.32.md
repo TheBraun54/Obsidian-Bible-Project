@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I say unto you, that every one that putteth away his wife, saving for the cause of fornication, maketh her an adulteress: and whosoever shall marry her when she is put away committeth adultery.
+but I tell you that whoever puts away his wife, except for the cause of sexual immorality, makes her an adulteress; and whoever marries her when she is put away commits adultery.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Ehud went forth into the porch, and shut the doors of the upper room upon him, and locked them.
+Then Ehud went forth into the porch, and shut the doors of the upper room on him, and locked them.

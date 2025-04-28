@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The fear of Jehovah is to hate evil: Pride, and arrogancy, and the evil way, And the perverse mouth, do I hate.
+The fear of Yahweh is to hate evil. I hate pride, arrogance, the evil way, and the perverse mouth.

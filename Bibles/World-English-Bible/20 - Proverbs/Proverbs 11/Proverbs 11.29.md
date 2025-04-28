@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that troubleth his own house shall inherit the wind; And the foolish shall be servant to the wise of heart.
+He who troubles his own house shall inherit the wind. The foolish shall be servant to the wise of heart.

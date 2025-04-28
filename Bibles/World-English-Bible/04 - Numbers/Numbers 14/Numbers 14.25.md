@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the Amalekite and the Canaanite dwell in the valley: to-morrow turn ye, and get you into the wilderness by the way to the Red Sea.
+Now the Amalekite and the Canaanite dwell in the valley: tomorrow turn, and go into the wilderness by the way to the Red Sea."

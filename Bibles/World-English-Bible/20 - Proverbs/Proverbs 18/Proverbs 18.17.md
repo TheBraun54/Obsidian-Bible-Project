@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that pleadeth his cause first [seemeth] just; But his neighbor cometh and searcheth him out.
+He who pleads his cause first seems right; until another comes and questions him.

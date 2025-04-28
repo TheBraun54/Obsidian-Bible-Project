@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Becher: Zemirah, and Joash, and Eliezer, and Elioenai, and Omri, and Jeremoth, and Abijah, and Anathoth, and Alemeth. All these were the sons of Becher.
+The sons of Becher: Zemirah, and Joash, and Eliezer, and Elioenai, and Omri, and Jeremoth, and Abijah, and Anathoth, and Alemeth. All these were the sons of Becher.

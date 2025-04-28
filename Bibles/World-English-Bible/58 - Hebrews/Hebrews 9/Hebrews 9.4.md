@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-having a golden altar of incense, and the ark of the covenant overlaid round about with gold, wherein [was] a golden pot holding the manna, and Aaron's rod that budded, and the tables of the covenant;
+having a golden altar of incense, and the ark of the covenant overlaid on all sides with gold, in which was a golden pot holding the manna, Aaron's rod that budded, and the tablets of the covenant;

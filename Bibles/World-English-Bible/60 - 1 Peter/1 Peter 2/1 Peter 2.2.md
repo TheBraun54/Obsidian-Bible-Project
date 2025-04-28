@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-as newborn babes, long for the spiritual milk which is without guile, that ye may grow thereby unto salvation;
+as newborn babies, long for the pure milk of the Word, that you may grow thereby,

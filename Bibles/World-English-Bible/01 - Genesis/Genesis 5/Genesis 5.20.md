@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the days of Jared were nine hundred sixty and two years: and he died.
+All the days of Jared were nine hundred sixty-two years, then he died.

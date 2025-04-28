@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was so, when Gideon heard the telling of the dream, and the interpretation thereof, that he worshipped; and he returned into the camp of Israel, and said, Arise; for Jehovah hath delivered into your hand the host of Midian.
+It was so, when Gideon heard the telling of the dream, and its interpretation, that he worshiped; and he returned into the camp of Israel, and said, "Arise; for Yahweh has delivered the army of Midian into your hand!"

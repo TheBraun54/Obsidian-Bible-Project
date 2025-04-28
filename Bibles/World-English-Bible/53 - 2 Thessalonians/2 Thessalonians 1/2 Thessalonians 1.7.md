@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to you that are afflicted rest with us, at the revelation of the Lord Jesus from heaven with the angels of his power in flaming fire,
+and to give relief to you who are afflicted with us, when the Lord Jesus is revealed from heaven with his mighty angels in flaming fire,

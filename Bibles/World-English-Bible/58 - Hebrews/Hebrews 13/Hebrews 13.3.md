@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember them that are in bonds, as bound with them; them that are ill-treated, as being yourselves also in the body.
+Remember those who are in bonds, as bound with them; and those who are ill-treated, since you are also in the body.

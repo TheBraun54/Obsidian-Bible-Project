@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On the twelfth day Ahira the son of Enan, prince of the children of Naphtali:
+On the twelfth day Ahira the son of Enan, prince of the children of Naphtali

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said to Abishai, and to all his servants, Behold, my son, who came forth from my bowels, seeketh my life: how much more [may] this Benjamite now [do it] ? let him alone, and let him curse; for Jehovah hath bidden him.
+David said to Abishai, and to all his servants, "Behold, my son, who came forth from my bowels, seeks my life. How much more this Benjamite, now? Leave him alone, and let him curse; for Yahweh has invited him.

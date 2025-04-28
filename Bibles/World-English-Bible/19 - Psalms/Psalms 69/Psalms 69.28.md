@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them be blotted out of the book of life, And not be written with the righteous.
+Let them be blotted out of the book of life, and not be written with the righteous.

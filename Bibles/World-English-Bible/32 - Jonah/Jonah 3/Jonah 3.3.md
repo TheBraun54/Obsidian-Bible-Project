@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Jonah arose, and went unto Nineveh, according to the word of Jehovah. Now Nineveh was an exceeding great city, of three days' journey.
+So Jonah arose, and went to Nineveh, according to the word of Yahweh. Now Nineveh was an exceedingly great city, three days' journey across.

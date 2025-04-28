@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the six hundred men girt with their weapons of war, who were of the children of Dan, stood by the entrance of the gate.
+The six hundred men girt with their weapons of war, who were of the children of Dan, stood by the entrance of the gate.

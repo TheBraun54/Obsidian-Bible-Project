@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall smite upon the breasts for the pleasant fields, for the fruitful vine.
+Beat your breasts for the pleasant fields, for the fruitful vine.

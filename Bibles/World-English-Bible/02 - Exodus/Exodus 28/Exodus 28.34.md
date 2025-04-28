@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-a golden bell and a pomegranate, a golden bell and a pomegranate, upon the skirts of the robe round about.
+a golden bell and a pomegranate, a golden bell and a pomegranate, around the hem of the robe.

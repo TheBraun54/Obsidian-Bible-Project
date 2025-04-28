@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For in that he himself hath suffered being tempted, he is able to succor them that are tempted.
+For in that he himself has suffered being tempted, he is able to help those who are tempted.

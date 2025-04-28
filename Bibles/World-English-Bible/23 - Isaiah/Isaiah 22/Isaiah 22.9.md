@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye saw the breaches of the city of David, that they were many; and ye gathered together the waters of the lower pool;
+You saw the breaches of the city of David, that they were many; and you gathered together the waters of the lower pool.

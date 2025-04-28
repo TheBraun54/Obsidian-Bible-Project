@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who holdeth our soul in life, And suffereth not our feet to be moved.
+who preserves our life among the living, and doesn't allow our feet to be moved.

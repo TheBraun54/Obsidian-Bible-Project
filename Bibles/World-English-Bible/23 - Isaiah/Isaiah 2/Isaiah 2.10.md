@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Enter into the rock, and hide thee in the dust, from before the terror of Jehovah, and from the glory of his majesty.
+Enter into the rock, and hide in the dust, from before the terror of Yahweh, and from the glory of his majesty.

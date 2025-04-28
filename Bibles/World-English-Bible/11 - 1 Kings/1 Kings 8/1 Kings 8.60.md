@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that all the peoples of the earth may know that Jehovah, he is God; there is none else.
+that all the peoples of the earth may know that Yahweh, he is God. There is none else.

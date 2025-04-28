@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye that fear Jehovah, trust in Jehovah: He is their help and their shield.
+You who fear Yahweh, trust in Yahweh! He is their help and their shield.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yea, they shall be afraid of [that which is] high, and terrors [shall be] in the way; and the almond-tree shall blossom, and the grasshopper shall be a burden, and desire shall fail; because man goeth to his everlasting home, and the mourners go about the streets:
+yes, they shall be afraid of heights, and terrors will be in the way; and the almond tree shall blossom, and the grasshopper shall be a burden, and desire shall fail; because man goes to his everlasting home, and the mourners go about the streets:

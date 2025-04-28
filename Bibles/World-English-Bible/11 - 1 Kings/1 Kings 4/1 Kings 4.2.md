@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these were the princes whom he had: Azariah the son of Zadok, the priest;
+These were the princes whom he had: Azariah the son of Zadok, the priest;

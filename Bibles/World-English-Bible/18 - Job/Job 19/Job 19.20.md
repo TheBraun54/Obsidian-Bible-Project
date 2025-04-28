@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My bone cleaveth to my skin and to my flesh, And I am escaped with the skin of my teeth.
+My bones stick to my skin and to my flesh. I have escaped by the skin of my teeth.

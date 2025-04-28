@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After these things Jesus went away to the other side of the sea of Galilee, which is [the sea] of Tiberias.
+After these things, Jesus went away to the other side of the sea of Galilee, which is also called the Sea of Tiberias.

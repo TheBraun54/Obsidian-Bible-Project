@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they saw the God of Israel; and there was under his feet as it were a paved work of sapphire stone, and as it were the very heaven for clearness.
+They saw the God of Israel. Under his feet was like a paved work of sapphire stone, like the skies for clearness.

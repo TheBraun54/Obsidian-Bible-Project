@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou mayest not eat within thy gates the tithe of thy grain, or of thy new wine, or of thine oil, or the firstlings of thy herd or of thy flock, nor any of thy vows which thou vowest, nor thy freewill-offerings, nor the heave-offering of thy hand;
+You may not eat within your gates the tithe of your grain, or of your new wine, or of your oil, or the firstborn of your herd or of your flock, nor any of your vows which you vow, nor your freewill offerings, nor the wave offering of your hand;

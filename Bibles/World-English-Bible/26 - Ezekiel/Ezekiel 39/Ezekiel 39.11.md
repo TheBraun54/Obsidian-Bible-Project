@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, that I will give unto Gog a place for burial in Israel, the valley of them that pass through on the east of the sea; and it shall stop them that pass through: and there shall they bury Gog and all his multitude; and they shall call it The valley of Hamon-gog.
+It shall happen in that day, that I will give to Gog a place for burial in Israel, the valley of those who pass through on the east of the sea; and it shall stop those who pass through: and there shall they bury Gog and all his multitude; and they shall call it The valley of Hamon Gog.

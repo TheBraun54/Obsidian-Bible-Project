@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the year that king Uzziah died I saw the Lord sitting upon a throne, high and lifted up; and his train filled the temple.
+In the year that king Uzziah died, I saw the Lord sitting on a throne, high and lifted up; and his train filled the temple.

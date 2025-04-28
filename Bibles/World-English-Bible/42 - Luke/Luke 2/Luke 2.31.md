@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Which thou hast prepared before the face of all peoples;
+which you have prepared before the face of all peoples;

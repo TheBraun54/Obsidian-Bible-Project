@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it came to pass, when Solomon was old, that his wives turned away his heart after other gods; and his heart was not perfect with Jehovah his God, as was the heart of David his father.
+For it happened, when Solomon was old, that his wives turned away his heart after other gods; and his heart was not perfect with Yahweh his God, as was the heart of David his father.

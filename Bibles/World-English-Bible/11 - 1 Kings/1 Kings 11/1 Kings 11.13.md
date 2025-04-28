@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit I will not rend away all the kingdom; but I will give one tribe to thy son, for David my servant's sake, and for Jerusalem's sake which I have chosen.
+However I will not tear away all the kingdom; but I will give one tribe to your son, for David my servant's sake, and for Jerusalem's sake which I have chosen."

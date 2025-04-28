@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore now, O Jehovah, take, I beseech thee, my life from me; for it is better for me to die than to live.
+Therefore now, Yahweh, take, I beg you, my life from me; for it is better for me to die than to live."

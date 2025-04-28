@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Answer not a fool according to his folly, Lest thou also be like unto him.
+Don't answer a fool according to his folly, lest you also be like him.

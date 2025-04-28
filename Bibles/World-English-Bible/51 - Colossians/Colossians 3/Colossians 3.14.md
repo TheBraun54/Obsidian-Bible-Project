@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and above all these things [put on] love, which is the bond of perfectness.
+Above all these things, walk in love, which is the bond of perfection.

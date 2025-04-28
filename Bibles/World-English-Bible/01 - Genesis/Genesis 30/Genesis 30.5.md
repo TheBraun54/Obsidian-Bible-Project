@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Bilhah conceived, and bare Jacob a son.
+Bilhah conceived, and bore Jacob a son.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of the singers gathered themselves together, both out of the plain round about Jerusalem, and from the villages of the Netophathites;
+The sons of the singers gathered themselves together, both out of the plain around Jerusalem, and from the villages of the Netophathites;

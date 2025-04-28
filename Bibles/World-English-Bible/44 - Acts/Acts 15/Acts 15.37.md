@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Barnabas was minded to take with them John also, who was called Mark.
+Barnabas planned to take John, who was called Mark, with them also.

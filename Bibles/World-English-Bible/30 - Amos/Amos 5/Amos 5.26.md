@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, ye have borne the tabernacle of your king and the shrine of your images, the star of your god, which ye made to yourselves.
+You also carried the tent of your king and the shrine of your images, the star of your god, which you made for yourselves.

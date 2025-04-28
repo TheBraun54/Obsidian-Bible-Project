@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The friendship of Jehovah is with them that fear him; And he will show them his covenant.
+The friendship of Yahweh is with those who fear him. He will show them his covenant.

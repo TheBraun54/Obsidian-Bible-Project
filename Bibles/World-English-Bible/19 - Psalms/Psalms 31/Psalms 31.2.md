@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bow down thine ear unto me; Deliver me speedily: Be thou to me a strong rock, A house of defence to save me.
+Bow down your ear to me. Deliver me speedily. Be to me a strong rock, a house of defense to save me.

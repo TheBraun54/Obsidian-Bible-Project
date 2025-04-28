@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Without shall the sword bereave, And in the chambers terror; [It shall destroy] both young man and virgin, The suckling with the man of gray hairs.
+Outside the sword shall bereave, and in the rooms, terror; on both young man and virgin, The nursing infant with the gray-haired man.

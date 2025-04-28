@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I am no more in the world, and these are in the world, and I come to thee. Holy Father, keep them in thy name which thou hast given me, that they may be one, even as we [are] .
+I am no more in the world, but these are in the world, and I am coming to you. Holy Father, keep them through your name which you have given me, that they may be one, even as we are.

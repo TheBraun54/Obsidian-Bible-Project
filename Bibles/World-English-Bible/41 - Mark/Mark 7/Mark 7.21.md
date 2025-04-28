@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For from within, out of the heart of men, evil thoughts proceed, fornications, thefts, murders, adulteries,
+For from within, out of the hearts of men, proceed evil thoughts, adulteries, sexual sins, murders, thefts,

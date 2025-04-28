@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said, I have pardoned according to thy word:
+Yahweh said, "I have pardoned according to your word:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the day that he goeth into the sanctuary, into the inner court, to minister in the sanctuary, he shall offer his sin-offering, saith the Lord Jehovah.
+In the day that he goes into the sanctuary, into the inner court, to minister in the sanctuary, he shall offer his sin offering, says the Lord Yahweh.

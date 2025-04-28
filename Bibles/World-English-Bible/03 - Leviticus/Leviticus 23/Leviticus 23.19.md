@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall offer one he-goat for a sin-offering, and two he-lambs a year old for a sacrifice of peace-offerings.
+You shall offer one male goat for a sin offering, and two male lambs a year old for a sacrifice of peace offerings.

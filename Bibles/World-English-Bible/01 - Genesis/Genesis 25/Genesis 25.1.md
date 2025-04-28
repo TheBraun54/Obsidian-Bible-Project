@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham took another wife, and her name was Keturah.
+Abraham took another wife, and her name was Keturah.

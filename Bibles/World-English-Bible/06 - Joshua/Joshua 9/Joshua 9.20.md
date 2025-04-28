@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This we will do to them, and let them live; lest wrath be upon us, because of the oath which we sware unto them.
+This we will do to them, and let them live; lest wrath be on us, because of the oath which we swore to them."

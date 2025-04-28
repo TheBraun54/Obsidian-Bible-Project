@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for that night, let thick darkness seize upon it: Let it not rejoice among the days of the year; Let it not come into the number of the months.
+As for that night, let thick darkness seize on it. Let it not rejoice among the days of the year. Let it not come into the number of the months.

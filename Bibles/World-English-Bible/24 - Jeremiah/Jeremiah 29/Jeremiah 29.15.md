@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because ye have said, Jehovah hath raised us up prophets in Babylon;
+Because you have said, Yahweh has raised us up prophets in Babylon;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said, These six [measures] of barley gave he me; for he said, Go not empty unto thy mother-in-law.
+She said, "He gave me these six [measures] of barley; for he said, 'Don't go empty to your mother-in-law.'"

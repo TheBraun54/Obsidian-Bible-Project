@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Egyptians were urgent upon the people, to send them out of the land in haste; for they said, We are all dead men.
+The Egyptians were urgent with the people, to send them out of the land in haste, for they said, "We are all dead men."

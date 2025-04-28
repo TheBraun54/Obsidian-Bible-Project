@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As Jehovah commanded Moses, so he numbered them in the wilderness of Sinai.
+As Yahweh commanded Moses, so he numbered them in the wilderness of Sinai.

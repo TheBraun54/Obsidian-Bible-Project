@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the sons of Bebai: Jehohanan, Hananiah, Zabbai, Athlai.
+Of the sons of Bebai: Jehohanan, Hananiah, Zabbai, Athlai.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore the showers have been withholden, and there hath been no latter rain; yet thou hast a harlot's forehead, thou refusedst to be ashamed.
+Therefore the showers have been withheld, and there has been no latter rain; yet you have a prostitute's forehead, you refused to be ashamed.

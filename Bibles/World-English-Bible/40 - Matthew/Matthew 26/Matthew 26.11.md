@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye have the poor always with you; but me ye have not always.
+For you always have the poor with you; but you don't always have me.

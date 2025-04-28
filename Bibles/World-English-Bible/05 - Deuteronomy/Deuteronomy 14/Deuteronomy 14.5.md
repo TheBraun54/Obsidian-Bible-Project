@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the hart, and the gazelle, and the roebuck, and the wild goat, and the pygarg, and the antelope, and the chamois.
+the hart, and the gazelle, and the roebuck, and the wild goat, and the ibex, and the antelope, and the chamois.

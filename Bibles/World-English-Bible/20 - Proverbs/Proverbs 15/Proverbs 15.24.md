@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To the wise the way of life [goeth] upward, That he may depart from Sheol beneath.
+The path of life leads upward for the wise, to keep him from going downward to Sheol.

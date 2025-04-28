@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore hear the word of Jehovah, ye scoffers, that rule this people that is in Jerusalem:
+Therefore hear the word of Yahweh, you scoffers, that rule this people in Jerusalem:

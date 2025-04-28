@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With my soul have I desired thee in the night; yea, with my spirit within me will I seek thee earnestly: for when thy judgments are in the earth, the inhabitants of the world learn righteousness.
+With my soul have I desired you in the night. Yes, with my spirit within me will I seek you earnestly; for when your judgments are in the earth, the inhabitants of the world learn righteousness.

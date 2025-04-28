@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who knoweth the spirit of man, whether it goeth upward, and the spirit of the beast, whether it goeth downward to the earth?
+Who knows the spirit of man, whether it goes upward, and the spirit of the animal, whether it goes downward to the earth?"

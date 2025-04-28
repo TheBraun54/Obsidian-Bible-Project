@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he arose and departed, and went to Samaria. And as he was at the shearing-house of the shepherds in the way,
+He arose and departed, and went to Samaria. As he was at the shearing house of the shepherds on the way,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou knowest my reproach, and my shame, and my dishonor: Mine adversaries are all before thee.
+You know my reproach, my shame, and my dishonor. My adversaries are all before you.

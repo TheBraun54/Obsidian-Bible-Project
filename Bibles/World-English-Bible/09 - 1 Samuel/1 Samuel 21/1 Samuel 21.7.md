@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now a certain man of the servants of Saul was there that day, detained before Jehovah; and his name was Doeg the Edomite, the chiefest of the herdsmen that belonged to Saul.
+Now a certain man of the servants of Saul was there that day, detained before Yahweh; and his name was Doeg the Edomite, the best of the herdsmen who belonged to Saul.

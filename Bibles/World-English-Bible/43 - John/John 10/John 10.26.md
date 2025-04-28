@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye believe not, because ye are not of my sheep.
+But you don't believe, because you are not of my sheep, as I told you.

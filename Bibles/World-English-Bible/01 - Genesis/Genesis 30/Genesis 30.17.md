@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God hearkened unto Leah, and she conceived, and bare Jacob a fifth son.
+God listened to Leah, and she conceived, and bore Jacob a fifth son.

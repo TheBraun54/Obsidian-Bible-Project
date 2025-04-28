@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if the casting away of them [is] the reconciling of the world, what [shall] the receiving [of them be], but life from the dead?
+For if the rejection of them is the reconciling of the world, what would their acceptance be, but life from the dead?

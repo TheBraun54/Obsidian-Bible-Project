@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is my resting-place for ever: Here will I dwell; For I have desired it.
+"This is my resting place forever. Here I will live, for I have desired it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for the children of Israel that dwelt in the cities of Judah, Rehoboam reigned over them.
+But as for the children of Israel who lived in the cities of Judah, Rehoboam reigned over them.

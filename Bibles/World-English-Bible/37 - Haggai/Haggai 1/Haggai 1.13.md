@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then spake Haggai Jehovah's messenger in Jehovah's message unto the people, saying, I am with you, saith Jehovah.
+Then Haggai, Yahweh's messenger, spoke Yahweh's message to the people, saying, "I am with you," says Yahweh.

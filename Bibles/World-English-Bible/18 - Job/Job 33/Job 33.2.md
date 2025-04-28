@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold now, I have opened my mouth; My tongue hath spoken in my mouth.
+See now, I have opened my mouth. My tongue has spoken in my mouth.

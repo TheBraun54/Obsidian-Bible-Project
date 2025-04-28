@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all flesh shall see the salvation of God.
+All flesh will see God's salvation.'"

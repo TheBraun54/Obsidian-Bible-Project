@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy prophets have seen for thee false and foolish visions; And they have not uncovered thine iniquity, to bring back thy captivity, But have seen for thee false oracles and causes of banishment.
+Your prophets have seen for you false and foolish visions; They have not uncovered your iniquity, to bring back your captivity, but have seen for you false oracles and causes of banishment.

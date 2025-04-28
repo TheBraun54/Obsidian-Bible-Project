@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he laid his hands upon him, and gave him a charge, as Jehovah spake by Moses.
+and he laid his hands on him, and commissioned him, as Yahweh spoke by Moses.

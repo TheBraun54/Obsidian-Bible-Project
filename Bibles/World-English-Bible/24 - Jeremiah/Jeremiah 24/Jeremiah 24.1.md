@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah showed me, and, behold, two baskets of figs set before the temple of Jehovah, after that Nebuchadrezzar king of Babylon had carried away captive Jeconiah the son of Jehoiakim, king of Judah, and the princes of Judah, with the craftsmen and smiths, from Jerusalem, and had brought them to Babylon.
+Yahweh showed me, and behold, two baskets of figs set before the temple of Yahweh, after that Nebuchadnezzar king of Babylon had carried away captive Jeconiah the son of Jehoiakim, king of Judah, and the princes of Judah, with the craftsmen and smiths, from Jerusalem, and had brought them to Babylon.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as touching the Gentiles that have believed, we wrote, giving judgment that they should keep themselves from things sacrificed to idols, and from blood, and from what is strangled, and from fornication.
+But concerning the Gentiles who believe, we have written our decision that they should observe no such thing, except that they should keep themselves from food offered to idols, from blood, from strangled things, and from sexual immorality."

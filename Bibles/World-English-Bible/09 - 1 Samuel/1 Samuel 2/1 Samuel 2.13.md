@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the custom of the priests with the people was, that, when any man offered sacrifice, the priest's servant came, while the flesh was boiling, with a flesh-hook of three teeth in his hand;
+The custom of the priests with the people was that when any man offered sacrifice, the priest's servant came, while the flesh was boiling, with a fork of three teeth in his hand;

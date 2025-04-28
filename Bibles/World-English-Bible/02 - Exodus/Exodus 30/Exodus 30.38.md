@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whosoever shall make like unto that, to smell thereof, he shall be cut off from his people.
+Whoever shall make any like that, to smell of it, he shall be cut off from his people."

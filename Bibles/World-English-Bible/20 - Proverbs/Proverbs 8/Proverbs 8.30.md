@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I was by him, [as] a master workman; And I was daily [his] delight, Rejoicing always before him,
+then I was the craftsman by his side. I was a delight day by day, always rejoicing before him,

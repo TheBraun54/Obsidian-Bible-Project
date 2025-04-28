@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph said unto his brethren, I die; but God will surely visit you, and bring you up out of this land unto the land which he sware to Abraham, to Isaac, and to Jacob.
+Joseph said to his brothers, "I am dying, but God will surely visit you, and bring you up out of this land to the land which he swore to Abraham, to Isaac, and to Jacob."

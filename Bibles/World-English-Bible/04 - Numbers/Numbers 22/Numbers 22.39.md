@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Balaam went with Balak, and they came unto Kiriath-huzoth.
+Balaam went with Balak, and they came to Kiriath Huzoth.

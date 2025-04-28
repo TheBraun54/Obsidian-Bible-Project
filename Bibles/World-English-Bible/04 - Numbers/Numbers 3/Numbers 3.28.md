@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-According to the number of all the males, from a month old and upward, there were eight thousand and six hundred, keeping the charge of the sanctuary.
+According to the number of all the males, from a month old and upward, there were eight thousand six hundred, keeping the requirements of the sanctuary.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had looked round about on them with anger, being grieved at the hardening of their heart, he saith unto the man, Stretch forth thy hand. And he stretched it forth; and his hand was restored.
+When he had looked around at them with anger, being grieved at the hardening of their hearts, he said to the man, "Stretch out your hand." He stretched it out, and his hand was restored as healthy as the other.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, Jehovah's hand is not shortened, that it cannot save; neither his ear heavy, that it cannot hear:
+Behold, Yahweh's hand is not shortened, that it can't save; neither his ear heavy, that it can't hear:

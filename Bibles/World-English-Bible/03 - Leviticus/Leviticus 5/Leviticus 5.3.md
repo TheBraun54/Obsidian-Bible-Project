@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or if he touch the uncleanness of man, whatsoever his uncleanness be wherewith he is unclean, and it be hid from him; when he knoweth of it, then he shall be guilty.
+"'Or if he touches the uncleanness of man, whatever his uncleanness is with which he is unclean, and it is hidden from him; when he knows of it, then he shall be guilty.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou mayest not sacrifice the passover within any of thy gates, which Jehovah thy God giveth thee;
+You may not sacrifice the Passover within any of your gates, which Yahweh your God gives you;

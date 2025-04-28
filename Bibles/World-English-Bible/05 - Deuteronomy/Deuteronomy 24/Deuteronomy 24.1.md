@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When a man taketh a wife, and marrieth her, then it shall be, if she find no favor in his eyes, because he hath found some unseemly thing in her, that he shall write her a bill of divorcement, and give it in her hand, and send her out of his house.
+When a man takes a wife, and marries her, then it shall be, if she find no favor in his eyes, because he has found some unseemly thing in her, that he shall write her a bill of divorce, and give it in her hand, and send her out of his house.

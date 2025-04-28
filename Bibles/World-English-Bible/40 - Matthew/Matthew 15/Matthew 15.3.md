@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answered and said unto them, Why do ye also transgress the commandment of God because of your tradition?
+He answered them, "Why do you also disobey the commandment of God because of your tradition?

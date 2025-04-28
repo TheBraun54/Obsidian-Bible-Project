@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was given unto him to make war with the saints, and to overcome them: and there was given to him authority over every tribe and people and tongue and nation.
+It was given to him to make war with the saints, and to overcome them. Authority over every tribe, people, language, and nation was given to him.

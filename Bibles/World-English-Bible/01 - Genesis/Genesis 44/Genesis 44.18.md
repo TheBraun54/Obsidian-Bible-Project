@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Judah came near unto him, and said, Oh, my lord, let thy servant, I pray thee, speak a word in my lord's ears, and let not thine anger burn against thy servant; for thou art even as Pharaoh.
+Then Judah came near to him, and said, "Oh, my lord, please let your servant speak a word in my lord's ears, and don't let your anger burn against your servant; for you are even as Pharaoh.

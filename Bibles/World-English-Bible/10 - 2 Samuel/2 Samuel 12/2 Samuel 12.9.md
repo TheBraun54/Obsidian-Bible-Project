@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore hast thou despised the word of Jehovah, to do that which is evil in his sight? thou hast smitten Uriah the Hittite with the sword, and hast taken his wife to be thy wife, and hast slain him with the sword of the children of Ammon.
+Why have you despised the word of Yahweh, to do that which is evil in his sight? You have struck Uriah the Hittite with the sword, and have taken his wife to be your wife, and have slain him with the sword of the children of Ammon.

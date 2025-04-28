@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wilt thou not quicken us again, That thy people may rejoice in thee?
+Won't you revive us again, that your people may rejoice in you?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The word which came unto Jeremiah from Jehovah, when king Zedekiah sent unto him Pashhur the son of Malchijah, and Zephaniah the son of Maaseiah, the priest, saying,
+The word which came to Jeremiah from Yahweh, when king Zedekiah sent to him Pashhur the son of Malchijah, and Zephaniah the son of Maaseiah, the priest, saying,

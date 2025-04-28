@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Zebah and Zalmunna said, Rise thou, and fall upon us; for as the man is, so is his strength. And Gideon arose, and slew Zebah and Zalmunna, and took the crescents that were on their camels' necks.
+Then Zebah and Zalmunna said, "Rise and fall on us; for as the man is, so is his strength." Gideon arose, and killed Zebah and Zalmunna, and took the crescents that were on their camels' necks.

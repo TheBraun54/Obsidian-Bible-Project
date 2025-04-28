@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the bodies of those beasts whose blood is brought into the holy place by the high priest [as an offering] for sin, are burned without the camp.
+For the bodies of those animals, whose blood is brought into the holy place by the high priest as an offering for sin, are burned outside of the camp.

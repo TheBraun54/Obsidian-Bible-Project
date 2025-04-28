@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In like manner, that women adorn themselves in modest apparel, with shamefastness and sobriety; not with braided hair, and gold or pearls or costly raiment;
+In the same way, that women also adorn themselves in decent clothing, with modesty and propriety; not just with braided hair, gold, pearls, or expensive clothing;

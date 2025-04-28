@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if any widow hath children or grandchildren, let them learn first to show piety towards their own family, and to requite their parents: for this is acceptable in the sight of God.
+But if any widow has children or grandchildren, let them learn first to show piety towards their own family, and to repay their parents, for this is acceptable in the sight of God.

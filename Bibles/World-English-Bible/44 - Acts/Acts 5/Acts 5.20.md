@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go ye, and stand and speak in the temple to the people all the words of this Life.
+"Go stand and speak in the temple to the people all the words of this life."

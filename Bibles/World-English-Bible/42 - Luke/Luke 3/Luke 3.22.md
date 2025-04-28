@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the Holy Spirit descended in a bodily form, as a dove, upon him, and a voice came out of heaven, Thou art my beloved Son; in thee I am well pleased.
+and the Holy Spirit descended in a bodily form as a dove on him; and a voice came out of the sky, saying "You are my beloved Son. In you I am well pleased."

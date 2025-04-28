@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, that the beggar died, and that he was carried away by the angels into Abraham's bosom: and the rich man also died, and was buried.
+It happened that the beggar died, and that he was carried away by the angels to Abraham's bosom. The rich man also died, and was buried.

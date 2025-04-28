@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What is man, that thou shouldest magnify him, And that thou shouldest set thy mind upon him,
+What is man, that you should magnify him, that you should set your mind on him,

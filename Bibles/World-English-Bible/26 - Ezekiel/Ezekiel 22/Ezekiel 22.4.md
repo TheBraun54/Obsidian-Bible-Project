@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou art become guilty in thy blood that thou hast shed, and art defiled in thine idols which thou hast made; and thou hast caused thy days to draw near, and art come even unto thy years: therefore have I made thee a reproach unto the nations, and a mocking to all the countries.
+You have become guilty in your blood that you have shed, and are defiled in your idols which you have made; and you have caused your days to draw near, and are come even to your years: therefore have I made you a reproach to the nations, and a mocking to all the countries.

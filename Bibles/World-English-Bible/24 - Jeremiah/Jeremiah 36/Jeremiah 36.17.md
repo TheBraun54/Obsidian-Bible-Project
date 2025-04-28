@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they asked Baruch, saying, Tell us now, How didst thou write all these words at his mouth?
+They asked Baruch, saying, Tell us now, How did you write all these words at his mouth?

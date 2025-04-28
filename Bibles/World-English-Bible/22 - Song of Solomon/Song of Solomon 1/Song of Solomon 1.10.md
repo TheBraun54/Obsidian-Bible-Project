@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy cheeks are comely with plaits [of hair], Thy neck with strings of jewels.
+Your cheeks are beautiful with earrings, your neck with strings of jewels.

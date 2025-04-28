@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye ask, and receive not, because ye ask amiss, that ye may spend [it] in your pleasures.
+You ask, and don't receive, because you ask with wrong motives, so that you may spend it for your pleasures.

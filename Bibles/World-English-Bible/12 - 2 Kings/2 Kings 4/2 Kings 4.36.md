@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he called Gehazi, and said, Call this Shunammite. So he called her. And when she was come in unto him, he said, Take up thy son.
+He called Gehazi, and said, "Call this Shunammite!" So he called her. When she had come in to him, he said, "Take up your son."

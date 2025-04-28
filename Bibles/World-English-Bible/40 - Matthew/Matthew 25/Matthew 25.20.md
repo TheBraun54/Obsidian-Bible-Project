@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that received the five talents came and brought other five talents, saying, Lord, thou deliveredst unto me five talents: lo, I have gained other five talents.
+He who received the five talents came and brought another five talents, saying, 'Lord, you delivered to me five talents. Behold, I have gained another five talents besides them.'

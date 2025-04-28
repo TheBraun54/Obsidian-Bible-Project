@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let favor be showed to the wicked, yet will he not learn righteousness; in the land of uprightness will he deal wrongfully, and will not behold the majesty of Jehovah.
+Let favor be shown to the wicked, yet he will not learn righteousness. In the land of uprightness he will deal wrongfully, and will not see Yahweh's majesty.

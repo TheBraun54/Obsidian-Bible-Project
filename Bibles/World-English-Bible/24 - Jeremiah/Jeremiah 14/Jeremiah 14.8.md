@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O thou hope of Israel, the Saviour thereof in the time of trouble, why shouldest thou be as a sojourner in the land, and as a wayfaring man that turneth aside to tarry for a night?
+You hope of Israel, its Savior in the time of trouble, why should you be as a foreigner in the land, and as a wayfaring man who turns aside to stay for a night?

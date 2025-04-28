@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto him, Wherewith? And he said, I will go forth, and will be a lying spirit in the mouth of all his prophets. And he said, Thou shalt entice him, and shalt prevail also: go forth, and do so.
+Yahweh said to him, 'How?' He said, 'I will go out and will be a lying spirit in the mouth of all his prophets.' He said, 'You will entice him, and will also prevail. Go out and do so.'

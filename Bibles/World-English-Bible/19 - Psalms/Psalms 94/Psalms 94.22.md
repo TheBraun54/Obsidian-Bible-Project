@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jehovah hath been my high tower, And my God the rock of my refuge.
+But Yahweh has been my high tower, my God, the rock of my refuge.

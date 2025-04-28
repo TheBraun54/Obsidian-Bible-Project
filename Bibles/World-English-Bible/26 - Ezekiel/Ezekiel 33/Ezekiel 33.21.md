@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in the twelfth year of our captivity, in the tenth [month], in the fifth [day] of the month, that one that had escaped out of Jerusalem came unto me, saying, The city is smitten.
+It happened in the twelfth year of our captivity, in the tenth [month], in the fifth [day] of the month, that one who had escaped out of Jerusalem came to me, saying, The city has been struck.

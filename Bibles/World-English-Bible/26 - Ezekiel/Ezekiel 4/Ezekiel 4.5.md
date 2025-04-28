@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I have appointed the years of their iniquity to be unto thee a number of days, even three hundred and ninety days: so shalt thou bear the iniquity of the house of Israel.
+For I have appointed the years of their iniquity to be to you a number of days, even three hundred ninety days: so you shall bear the iniquity of the house of Israel.

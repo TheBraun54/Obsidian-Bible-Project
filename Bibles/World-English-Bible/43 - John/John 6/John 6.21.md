@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They were willing therefore to receive him into the boat: and straightway the boat was at the land whither they were going.
+They were willing therefore to receive him into the boat. Immediately the boat was at the land where they were going.

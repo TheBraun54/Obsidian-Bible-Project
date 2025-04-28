@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For many are called, but few chosen.
+For many are called, but few chosen."

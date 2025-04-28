@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore forgive, I pray thee, my sin only this once, and entreat Jehovah your God, that he may take away from me this death only.
+Now therefore please forgive my sin again, and pray to Yahweh your God, that he may also take away from me this death."

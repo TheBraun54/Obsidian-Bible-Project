@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brought in the priests and the Levites, and gathered them together into the broad place on the east,
+He brought in the priests and the Levites, and gathered them together into the broad place on the east,

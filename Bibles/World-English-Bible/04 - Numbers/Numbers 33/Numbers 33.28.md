@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Terah, and encamped in Mithkah.
+They traveled from Terah, and encamped in Mithkah.

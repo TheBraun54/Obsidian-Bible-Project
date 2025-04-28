@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hast thou found honey? eat so much as is sufficient for thee, Lest thou be filled therewith, and vomit it.
+Have you found honey? Eat as much as is sufficient for you, lest you eat too much, and vomit it.

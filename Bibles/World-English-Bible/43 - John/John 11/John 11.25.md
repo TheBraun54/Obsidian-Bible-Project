@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus said unto her, I am the resurrection, and the life: he that believeth on me, though he die, yet shall he live;
+Jesus said to her, "I am the resurrection and the life. He who believes in me will still live, even if he dies.

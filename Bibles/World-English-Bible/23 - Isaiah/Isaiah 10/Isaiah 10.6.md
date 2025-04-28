@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will send him against a profane nation, and against the people of my wrath will I give him a charge, to take the spoil, and to take the prey, and to tread them down like the mire of the streets.
+I will send him against a profane nation, and against the people who anger me will I give him a command to take the spoil and to take the prey, and to tread them down like the mire of the streets.

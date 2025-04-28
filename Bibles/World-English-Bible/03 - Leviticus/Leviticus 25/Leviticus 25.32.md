@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless the cities of the Levites, the houses of the cities of their possession, may the Levites redeem at any time.
+"'Nevertheless the cities of the Levites, the houses in the cities of their possession, the Levites may redeem at any time.

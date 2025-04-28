@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the copy of the letter that they sent unto Artaxerxes the king: Thy servants the men beyond the River, and so forth.
+This is the copy of the letter that they sent to Artaxerxes the king: Your servants the men beyond the River, and so forth.

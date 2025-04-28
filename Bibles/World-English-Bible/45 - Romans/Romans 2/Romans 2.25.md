@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For circumcision indeed profiteth, if thou be a doer of the law: but if thou be a transgressor of the law, thy circumcision is become uncircumcision.
+For circumcision indeed profits, if you are a doer of the law, but if you are a transgressor of the law, your circumcision has become uncircumcision.

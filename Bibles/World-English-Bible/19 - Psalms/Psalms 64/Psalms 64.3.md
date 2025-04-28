@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who have whet their tongue like a sword, And have aimed their arrows, even bitter words,
+who sharpen their tongue like a sword, and aim their arrows, deadly words,

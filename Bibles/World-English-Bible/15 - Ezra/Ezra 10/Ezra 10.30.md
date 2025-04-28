@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the sons of Pahath-moab: Adna, and Chelal, Benaiah, Maaseiah, Mattaniah, Bezalel, and Binnui, and Manasseh.
+Of the sons of Pahathmoab: Adna, and Chelal, Benaiah, Maaseiah, Mattaniah, Bezalel, and Binnui, and Manasseh.

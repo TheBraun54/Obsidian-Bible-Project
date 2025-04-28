@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the assembly made a covenant with the king in the house of God. And he said unto them, Behold, the king's son shall reign, as Jehovah hath spoken concerning the sons of David.
+All the assembly made a covenant with the king in the house of God. He said to them, "Behold, the king's son shall reign, as Yahweh has spoken concerning the sons of David.

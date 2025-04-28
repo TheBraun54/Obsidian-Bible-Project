@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as they sat and were eating, Jesus said, Verily I say unto you, One of you shall betray me, [even] he that eateth with me.
+As they sat and were eating, Jesus said, "Most certainly I tell you, one of you will betray me--he who eats with me."

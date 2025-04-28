@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will even betroth thee unto me in faithfulness; and thou shalt know Jehovah.
+I will even betroth you to me in faithfulness; and you shall know Yahweh.

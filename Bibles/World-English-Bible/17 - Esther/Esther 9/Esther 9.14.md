@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king commanded it so to be done: and a decree was given out in Shushan; and they hanged Haman's ten sons.
+The king commanded this to be done. A decree was given out in Shushan; and they hanged Haman's ten sons.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I cried unto thee, O Jehovah; I said, Thou art my refuge, My portion in the land of the living.
+I cried to you, Yahweh. I said, "You are my refuge, my portion in the land of the living."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is a generation whose teeth are [as] swords, and their jaw teeth [as] knives, To devour the poor from off the earth, and the needy from among men.
+There is a generation whose teeth are like swords, and their jaws like knives, to devour the poor from the earth, and the needy from among men.

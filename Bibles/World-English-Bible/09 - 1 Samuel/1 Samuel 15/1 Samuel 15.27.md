@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as Samuel turned about to go away, [Saul] laid hold upon the skirt of his robe, and it rent.
+As Samuel turned about to go away, Saul grabbed the skirt of his robe, and it tore.

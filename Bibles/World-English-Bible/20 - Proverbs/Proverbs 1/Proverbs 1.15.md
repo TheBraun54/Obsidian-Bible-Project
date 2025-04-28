@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My son, walk not thou in the way with them; Refrain thy foot from their path:
+My son, don't walk in the way with them. Keep your foot from their path,

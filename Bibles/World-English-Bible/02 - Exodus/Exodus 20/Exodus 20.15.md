@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not steal.
+"You shall not steal.

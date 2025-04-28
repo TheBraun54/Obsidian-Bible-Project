@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw another beast coming up out of the earth; and he had two horns like unto a lamb, and he spake as a dragon.
+I saw another beast coming up out of the earth. He had two horns like a lamb, and he spoke like a dragon.

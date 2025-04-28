@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Absalom's servants came to the woman to the house; and they said, Where are Ahimaaz and Jonathan? And the woman said unto them, They are gone over the brook of water. And when they had sought and could not find them, they returned to Jerusalem.
+Absalom's servants came to the woman to the house; and they said, "Where are Ahimaaz and Jonathan?" The woman said to them, "They have gone over the brook of water." When they had sought and could not find them, they returned to Jerusalem.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and blessed be God Most High, who hath delivered thine enemies into thy hand. And he gave him a tenth of all.
+and blessed be God Most High, who has delivered your enemies into your hand." Abram gave him a tenth of all.

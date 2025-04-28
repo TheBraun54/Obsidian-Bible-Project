@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath showed his people the power of his works, In giving them the heritage of the nations.
+He has shown his people the power of his works, in giving them the heritage of the nations.

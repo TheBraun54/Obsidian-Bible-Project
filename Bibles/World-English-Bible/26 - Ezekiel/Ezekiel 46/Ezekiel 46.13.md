@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt prepare a lamb a year old without blemish for a burnt-offering unto Jehovah daily: morning by morning shalt thou prepare it.
+You shall prepare a lamb a year old without blemish for a burnt offering to Yahweh daily: morning by morning you shall prepare it.

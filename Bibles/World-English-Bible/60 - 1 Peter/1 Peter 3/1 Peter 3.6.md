@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-as Sarah obeyed Abraham, calling him lord: whose children ye now are, if ye do well, and are not put in fear by any terror.
+as Sarah obeyed Abraham, calling him lord, whose children you now are, if you do well, and are not put in fear by any terror.

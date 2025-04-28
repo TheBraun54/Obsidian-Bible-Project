@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jethro, Moses' father-in-law, came with his sons and his wife unto Moses into the wilderness where he was encamped, at the mount of God:
+Jethro, Moses' father-in-law, came with his sons and his wife to Moses into the wilderness where he was encamped, at the Mountain of God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he turned himself about from them, and wept; and he returned to them, and spake to them, and took Simeon from among them, and bound him before their eyes.
+He turned himself away from them, and wept. Then he returned to them, and spoke to them, and took Simeon from among them, and bound him before their eyes.

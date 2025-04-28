@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah called yet again, Samuel. And Samuel arose and went to Eli, and said, Here am I; for thou calledst me. And he answered, I called not, my son; lie down again.
+Yahweh called yet again, "Samuel!" Samuel arose and went to Eli, and said, "Here I am; for you called me." He answered, "I didn't call, my son; lie down again."

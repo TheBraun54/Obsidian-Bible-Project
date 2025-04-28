@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whosoever shall give to drink unto one of these little ones a cup of cold water only, in the name of a disciple, verily I say unto you he shall in no wise lose his reward.
+Whoever gives one of these little ones just a cup of cold water to drink in the name of a disciple, most certainly I tell you he will in no way lose his reward."

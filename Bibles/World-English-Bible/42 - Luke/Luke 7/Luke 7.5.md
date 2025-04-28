@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for he loveth our nation, and himself built us our synagogue.
+for he loves our nation, and he built our synagogue for us."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to the kings that were on the north, in the hill-country, and in the Arabah south of Chinneroth, and in the lowland, and in the heights of Dor on the west,
+and to the kings who were on the north, in the hill country, in the Arabah south of Chinneroth, in the lowland, and in the heights of Dor on the west,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then he shall be shaven, but the scall shall he not shave; and the priest shall shut up [him that hath] the scall seven days more:
+then he shall be shaved, but he shall not shave the itch; and the priest shall shut him up who has the itch seven more days.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but if there be no interpreter, let him keep silence in the church; and let him speak to himself, and to God.
+But if there is no interpreter, let him keep silent in the assembly, and let him speak to himself, and to God.

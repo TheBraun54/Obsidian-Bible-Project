@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why look ye askance, ye high mountains, At the mountain which God hath desired for his abode? Yea, Jehovah will dwell [in it] for ever.
+Why do you look in envy, you rugged mountains, at the mountain where God chooses to reign? Yes, Yahweh will dwell there forever.

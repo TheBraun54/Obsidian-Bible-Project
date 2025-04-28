@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Jericho, three hundred forty and five.
+The children of Jericho, three hundred forty-five.

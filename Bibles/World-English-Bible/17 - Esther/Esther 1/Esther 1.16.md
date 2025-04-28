@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Memucan answered before the king and the princes, Vashti the queen hath not done wrong to the king only, but also to all the princes, and to all the peoples that are in all the provinces of the king Ahasuerus.
+Memucan answered before the king and the princes, "Vashti the queen has not done wrong to just the king, but also to all the princes, and to all the people who are in all the provinces of the King Ahasuerus.

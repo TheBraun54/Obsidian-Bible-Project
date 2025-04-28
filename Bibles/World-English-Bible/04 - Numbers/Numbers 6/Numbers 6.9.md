@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if any man die very suddenly beside him, and he defile the head of his separation; then he shall shave his head in the day of his cleansing, on the seventh day shall he shave it.
+"'If any man dies very suddenly beside him, and he defiles the head of his separation; then he shall shave his head in the day of his cleansing. On the seventh day he shall shave it.

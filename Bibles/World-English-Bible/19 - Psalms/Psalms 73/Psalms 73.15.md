@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I had said, I will speak thus; Behold, I had dealt treacherously with the generation of thy children.
+If I had said, "I will speak thus;" behold, I would have betrayed the generation of your children.

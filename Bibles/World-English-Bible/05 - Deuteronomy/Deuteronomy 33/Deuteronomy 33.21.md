@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he provided the first part for himself, For there was the lawgiver's portion reserved; And he came [with] the heads of the people; He executed the righteousness of Jehovah, And his ordinances with Israel.
+He provided the first part for himself, for there was the lawgiver's portion reserved. He came [with] the heads of the people. He executed the righteousness of Yahweh, His ordinances with Israel."

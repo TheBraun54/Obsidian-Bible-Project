@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if it be a beast, whereof men offer an oblation unto Jehovah, all that any man giveth of such unto Jehovah shall be holy.
+"'If it is an animal, of which men offer an offering to Yahweh, all that any man gives of such to Yahweh becomes holy.

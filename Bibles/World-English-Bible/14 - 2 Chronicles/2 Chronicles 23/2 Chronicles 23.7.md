@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Levites shall compass the king round about, every man with his weapons in his hand; and whosoever cometh into the house, let him be slain: and be ye with the king when he cometh in, and when he goeth out.
+The Levites shall surround the king, every man with his weapons in his hand. Whoever comes into the house, let him be slain. Be with the king when he comes in, and when he goes out."

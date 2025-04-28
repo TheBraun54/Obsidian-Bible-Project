@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his disciples said unto him, Thou seest the multitude thronging thee, and sayest thou, Who touched me?
+His disciples said to him, "You see the multitude pressing against you, and you say, 'Who touched me?'"

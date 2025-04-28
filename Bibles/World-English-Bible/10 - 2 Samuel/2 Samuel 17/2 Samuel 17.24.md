@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then David came to Mahanaim. And Absalom passed over the Jordan, he and all the men of Israel with him.
+Then David came to Mahanaim. Absalom passed over the Jordan, he and all the men of Israel with him.

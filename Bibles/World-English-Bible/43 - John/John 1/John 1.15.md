@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-John beareth witness of him, and crieth, saying, This was he of whom I said, He that cometh after me is become before me: for he was before me.
+John testified about him. He cried out, saying, "This was he of whom I said, 'He who comes after me has surpassed me, for he was before me.'"

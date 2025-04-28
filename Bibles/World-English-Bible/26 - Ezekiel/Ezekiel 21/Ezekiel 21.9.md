@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, prophesy, and say, Thus saith Jehovah: Say, A sword, a sword, it is sharpened, and also furbished;
+Son of man, prophesy, and say, Thus says Yahweh: Say, A sword, a sword, it is sharpened, and also furbished;

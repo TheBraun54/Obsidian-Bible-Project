@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now hath he obtained a ministry the more excellent, by so much as he is also the mediator of a better covenant, which hath been enacted upon better promises.
+But now he has obtained a more excellent ministry, by so much as he is also the mediator of a better covenant, which on better promises has been given as law.

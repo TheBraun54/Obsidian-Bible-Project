@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Destroy, O Lord, [and] divide their tongue; For I have seen violence and strife in the city.
+Confuse them, Lord, and confound their language, for I have seen violence and strife in the city.

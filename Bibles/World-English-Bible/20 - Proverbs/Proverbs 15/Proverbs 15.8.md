@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sacrifice of the wicked is an abomination to Jehovah; But the prayer of the upright is his delight.
+The sacrifice made by the wicked is an abomination to Yahweh, but the prayer of the upright is his delight.

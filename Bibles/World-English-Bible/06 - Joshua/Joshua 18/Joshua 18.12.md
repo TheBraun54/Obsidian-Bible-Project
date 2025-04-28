@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their border on the north quarter was from the Jordan; and the border went up to the side of Jericho on the north, and went up through the hill-country westward; and the goings out thereof were at the wilderness of Beth-aven.
+Their border on the north quarter was from the Jordan. The border went up to the side of Jericho on the north, and went up through the hill country westward. It ended at the wilderness of Beth Aven.

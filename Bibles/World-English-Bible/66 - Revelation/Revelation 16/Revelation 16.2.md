@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the first went, and poured out his bowl into the earth; and it became a noisome and grievous sore upon the men that had the mark of the beast, and that worshipped his image.
+The first went, and poured out his bowl into the earth, and it became a harmful and evil sore on the people who had the mark of the beast, and who worshiped his image.

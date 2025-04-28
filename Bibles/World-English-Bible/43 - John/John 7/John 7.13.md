@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet no man spake openly of him for fear of the Jews.
+Yet no one spoke openly of him for fear of the Jews.

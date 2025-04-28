@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Me-jarkon, and Rakkon, with the border over against Joppa.
+Me Jarkon, and Rakkon, with the border over against Joppa.

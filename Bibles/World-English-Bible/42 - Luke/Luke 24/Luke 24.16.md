@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But their eyes were holden that they should not know him.
+But their eyes were kept from recognizing him.

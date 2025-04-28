@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David inquired of Jehovah, saying, If I pursue after this troop, shall I overtake them? And he answered him, Pursue; for thou shalt surely overtake [them], and shalt without fail recover [all] .
+David inquired of Yahweh, saying, "If I pursue after this troop, shall I overtake them?" He answered him, "Pursue; for you shall surely overtake them, and shall without fail recover all."

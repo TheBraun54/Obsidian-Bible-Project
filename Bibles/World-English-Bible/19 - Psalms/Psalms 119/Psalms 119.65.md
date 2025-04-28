@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-TETH. Thou hast dealt well with thy servant, O Jehovah, according unto thy word.
+Do good to your servant, according to your word, Yahweh.

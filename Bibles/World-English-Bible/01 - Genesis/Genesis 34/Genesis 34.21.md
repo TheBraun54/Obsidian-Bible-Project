@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These men are peaceable with us; therefore let them dwell in the land, and trade therein; for, behold, the land is large enough for them; let us take their daughters to us for wives, and let us give them our daughters.
+"These men are peaceful with us. Therefore let them live in the land and trade in it. For behold, the land is large enough for them. Let us take their daughters to us for wives, and let us give them our daughters.

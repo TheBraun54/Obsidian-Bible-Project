@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he blessed them that day, saying, In thee will Israel bless, saying, God make thee as Ephraim and as Manasseh: and he set Ephraim before Manasseh.
+He blessed them that day, saying, "In you will Israel bless, saying, 'God make you as Ephraim and as Manasseh'" He set Ephraim before Manasseh.

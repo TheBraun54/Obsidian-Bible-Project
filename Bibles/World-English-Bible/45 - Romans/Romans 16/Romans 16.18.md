@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they that are such serve not our Lord Christ, but their own belly; and by their smooth and fair speech they beguile the hearts of the innocent.
+For those who are such don't serve our Lord, Jesus Christ, but their own belly; and by their smooth and flattering speech, they deceive the hearts of the innocent.

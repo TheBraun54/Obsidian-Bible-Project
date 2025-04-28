@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the rest of the children of Kohath had by lot out of the families of the tribe of Ephraim, and out of the tribe of Dan, and out of the half-tribe of Manasseh, ten cities.
+The rest of the children of Kohath had ten cities by lot out of the families of the tribe of Ephraim, out of the tribe of Dan, and out of the half-tribe of Manasseh.

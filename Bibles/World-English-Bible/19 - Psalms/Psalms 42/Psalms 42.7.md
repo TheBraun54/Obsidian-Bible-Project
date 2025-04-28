@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Deep calleth unto deep at the noise of thy waterfalls: All thy waves and thy billows are gone over me.
+Deep calls to deep at the noise of your waterfalls. All your waves and your billows have swept over me.

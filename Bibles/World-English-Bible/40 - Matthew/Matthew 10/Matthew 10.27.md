@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What I tell you in the darkness, speak ye in the light; and what ye hear in the ear, proclaim upon the house-tops.
+What I tell you in the darkness, speak in the light; and what you hear whispered in the ear, proclaim on the housetops.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will bring thee, and thy king whom thou shalt set over thee, unto a nation that thou hast not known, thou nor thy fathers; and there shalt thou serve other gods, wood and stone.
+Yahweh will bring you, and your king whom you shall set over you, to a nation that you have not known, you nor your fathers; and there you shall serve other gods, wood and stone.

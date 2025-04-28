@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-within yet three days shall Pharaoh lift up thy head, and restore thee unto thine office: and thou shalt give Pharaoh's cup into his hand, after the former manner when thou wast his butler.
+Within three more days, Pharaoh will lift up your head, and restore you to your office. You will give Pharaoh's cup into his hand, the way you did when you were his cupbearer.

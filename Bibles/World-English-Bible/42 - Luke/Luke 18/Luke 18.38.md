@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he cried, saying, Jesus, thou son of David, have mercy on me.
+He cried out, "Jesus, you son of David, have mercy on me!"

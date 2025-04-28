@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said, My lord, if now I have found favor in thy sight, pass not away, I pray thee, from thy servant:
+and said, "My lord, if now I have found favor in your sight, please don't go away from your servant.

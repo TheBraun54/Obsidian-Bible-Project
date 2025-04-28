@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When a bullock, or a sheep, or a goat, is brought forth, then it shall be seven days under the dam; and from the eighth day and thenceforth it shall be accepted for the oblation of an offering made by fire unto Jehovah.
+"When a bull, or a sheep, or a goat, is born, then it shall remain seven days with its mother; and from the eighth day and thenceforth it shall be accepted for the offering of an offering made by fire to Yahweh.

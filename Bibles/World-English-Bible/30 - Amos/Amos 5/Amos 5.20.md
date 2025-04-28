@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall not the day of Jehovah be darkness, and not light? even very dark, and no brightness in it?
+Won't the day of Yahweh be darkness, and not light? Even very dark, and no brightness in it?

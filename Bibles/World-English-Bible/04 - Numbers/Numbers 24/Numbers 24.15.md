@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took up his parable, and said, Balaam the son of Beor saith, And the man whose eye was closed saith;
+He took up his parable, and said, "Balaam the son of Beor says, the man whose eye was closed says;

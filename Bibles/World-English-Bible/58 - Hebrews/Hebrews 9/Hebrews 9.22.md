@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And according to the law, I may almost say, all things are cleansed with blood, and apart from shedding of blood there is no remission.
+According to the law, nearly everything is cleansed with blood, and apart from shedding of blood there is no remission.

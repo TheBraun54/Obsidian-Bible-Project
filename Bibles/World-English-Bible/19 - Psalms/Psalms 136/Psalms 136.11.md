@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And brought out Israel from among them; For his lovingkindness [endureth] for ever;
+And brought out Israel from among them; for his loving kindness endures forever;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore also I have granted him to Jehovah; as long as he liveth he is granted to Jehovah. And he worshipped Jehovah there.
+Therefore also I have granted him to Yahweh. As long as he lives he is granted to Yahweh." He worshiped Yahweh there.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And to the angel of the church in Laodicea write: These things saith the Amen, the faithful and true witness, the beginning of the creation of God:
+"To the angel of the assembly in Laodicea write: "The Amen, the Faithful and True Witness, the Head of God's creation, says these things:

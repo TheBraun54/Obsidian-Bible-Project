@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But his flesh upon him hath pain, And his soul within him mourneth.
+But his flesh on him has pain, and his soul within him mourns."

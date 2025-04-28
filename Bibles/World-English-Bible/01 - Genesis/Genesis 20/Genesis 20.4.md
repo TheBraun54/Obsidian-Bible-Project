@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Abimelech had not come near her: and he said, Lord, wilt thou slay even a righteous nation?
+Now Abimelech had not come near her. He said, "Lord, will you kill even a righteous nation?

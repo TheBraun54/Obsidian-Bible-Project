@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the field exult, and all that is therein; Then shall all the trees of the wood sing for joy
+Let the field and all that is in it exult! Then all the trees of the woods shall sing for joy

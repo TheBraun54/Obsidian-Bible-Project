@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ummah also, and Aphek, and Rehob: twenty and two cities with their villages.
+Ummah also, and Aphek, and Rehob: twenty-two cities with their villages.

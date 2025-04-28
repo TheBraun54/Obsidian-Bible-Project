@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whatsoever thy hand findeth to do, do [it] with thy might; for there is no work, nor device, nor knowledge, nor wisdom, in Sheol, whither thou goest.
+Whatever your hand finds to do, do it with your might; for there is no work, nor device, nor knowledge, nor wisdom, in Sheol, where you are going.

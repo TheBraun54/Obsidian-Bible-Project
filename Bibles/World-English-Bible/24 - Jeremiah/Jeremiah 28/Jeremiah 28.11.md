@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hananiah spake in the presence of all the people, saying, Thus saith Jehovah: Even so will I break the yoke of Nebuchadnezzar king of Babylon within two full years from off the neck of all the nations. And the prophet Jeremiah went his way.
+Hananiah spoke in the presence of all the people, saying, Thus says Yahweh: Even so will I break the yoke of Nebuchadnezzar king of Babylon within two full years from off the neck of all the nations. The prophet Jeremiah went his way.

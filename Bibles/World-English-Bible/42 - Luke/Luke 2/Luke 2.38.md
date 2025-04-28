@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And coming up at that very hour she gave thanks unto God, and spake of him to all them that were looking for the redemption of Jerusalem.
+Coming up at that very hour, she gave thanks to the Lord, and spoke of him to all those who were looking for redemption in Jerusalem.

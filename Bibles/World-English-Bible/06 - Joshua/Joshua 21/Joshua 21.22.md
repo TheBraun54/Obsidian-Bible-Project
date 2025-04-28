@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Kibzaim with its suburbs, and Beth-horon with its suburbs; four cities.
+Kibzaim with its suburbs, and Beth Horon with its suburbs; four cities.

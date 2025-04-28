@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Heaven and earth shall pass away, but my words shall not pass away.
+Heaven and earth will pass away, but my words will not pass away.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We asked them their names also, to certify thee, that we might write the names of the men that were at the head of them.
+We asked them their names also, to inform you that we might write the names of the men who were at the head of them.

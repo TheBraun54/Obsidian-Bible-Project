@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Husbands, love your wives, even as Christ also loved the church, and gave himself up for it;
+Husbands, love your wives, even as Christ also loved the assembly, and gave himself up for it;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A good man shall obtain favor of Jehovah; But a man of wicked devices will he condemn.
+A good man shall obtain favor from Yahweh, but he will condemn a man of wicked devices.

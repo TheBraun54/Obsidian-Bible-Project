@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For in the hand of Jehovah there is a cup, and the wine foameth; It is full of mixture, and he poureth out of the same: Surely the dregs thereof, all the wicked of the earth shall drain them, and drink them.
+For in the hand of Yahweh there is a cup, full of foaming wine mixed with spices. He pours it out. Indeed the wicked of the earth drink and drink it to its very dregs.

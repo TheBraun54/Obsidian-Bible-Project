@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto the king, The man that consumed us, and that devised against us, [that] we should be destroyed from remaining in any of the borders of Israel,
+They said to the king, "The man who consumed us, and who devised against us, that we should be destroyed from remaining in any of the borders of Israel,

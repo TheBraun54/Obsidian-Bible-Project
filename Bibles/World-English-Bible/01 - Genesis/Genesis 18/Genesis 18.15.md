@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Sarah denied, saying, I laughed not; for she was afraid. And he said, Nay; but thou didst laugh.
+Then Sarah denied, saying, "I didn't laugh," for she was afraid. He said, "No, but you did laugh."

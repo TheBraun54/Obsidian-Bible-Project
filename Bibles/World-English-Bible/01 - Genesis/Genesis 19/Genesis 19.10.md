@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the men put forth their hand, and brought Lot into the house to them, and shut to the door.
+But the men put forth their hand, and brought Lot into the house to them, and shut the door.

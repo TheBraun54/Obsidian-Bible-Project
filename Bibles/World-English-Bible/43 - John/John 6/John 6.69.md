@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we have believed and know that thou art the Holy One of God.
+We have come to believe and know that you are the Christ, the Son of the living God."

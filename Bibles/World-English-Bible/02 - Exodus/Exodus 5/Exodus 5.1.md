@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And afterward Moses and Aaron came, and said unto Pharaoh, Thus saith Jehovah, the God of Israel, Let my people go, that they may hold a feast unto me in the wilderness.
+Afterward Moses and Aaron came, and said to Pharaoh, "This is what Yahweh, the God of Israel, says, 'Let my people go, that they may hold a feast to me in the wilderness.'"

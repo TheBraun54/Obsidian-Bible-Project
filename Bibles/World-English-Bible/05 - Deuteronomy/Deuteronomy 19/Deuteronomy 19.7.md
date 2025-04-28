@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore I command thee, saying, Thou shalt set apart three cities for thee.
+Therefore I command you, saying, You shall set apart three cities for yourselves.

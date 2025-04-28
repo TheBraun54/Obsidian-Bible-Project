@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. A Psalm. A Song of David]. Praise waiteth for thee, O God, in Zion; And unto thee shall the vow be performed.
+Praise waits for you, God, in Zion. To you shall vows be performed.

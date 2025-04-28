@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But his bow abode in strength, And the arms of his hands were made strong, By the hands of the Mighty One of Jacob (From thence is the shepherd, the stone of Israel), [
+But his bow remained strong. The arms of his hands were made strong, by the hands of the Mighty One of Jacob, (from there is the shepherd, the stone of Israel),

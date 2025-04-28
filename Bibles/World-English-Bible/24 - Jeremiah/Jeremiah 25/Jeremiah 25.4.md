@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah hath sent unto you all his servants the prophets, rising up early and sending them, (but ye have not hearkened, nor inclined your ear to hear,)
+Yahweh has sent to you all his servants the prophets, rising up early and sending them (but you have not listened, nor inclined your ear to hear)

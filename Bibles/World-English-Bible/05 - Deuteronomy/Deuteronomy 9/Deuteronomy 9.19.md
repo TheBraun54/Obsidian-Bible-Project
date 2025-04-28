@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I was afraid of the anger and hot displeasure, wherewith Jehovah was wroth against you to destroy you. But Jehovah hearkened unto me that time also.
+For I was afraid of the anger and hot displeasure, with which Yahweh was angry against you to destroy you. But Yahweh listened to me that time also.

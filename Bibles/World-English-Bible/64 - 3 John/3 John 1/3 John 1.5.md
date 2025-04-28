@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beloved, thou doest a faithful work in whatsoever thou doest toward them that are brethren and strangers withal;
+Beloved, you do a faithful work in whatever you accomplish for those who are brothers and strangers.

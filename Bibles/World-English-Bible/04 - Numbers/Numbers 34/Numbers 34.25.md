@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the tribe of the children of Zebulun a prince, Elizaphan the son of Parnach.
+Of the tribe of the children of Zebulun a prince, Elizaphan the son of Parnach.

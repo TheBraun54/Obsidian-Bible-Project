@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answered and said unto them, He that hath two coats, let him impart to him that hath none; and he that hath food, let him do likewise.
+He answered them, "He who has two coats, let him give to him who has none. He who has food, let him do likewise."

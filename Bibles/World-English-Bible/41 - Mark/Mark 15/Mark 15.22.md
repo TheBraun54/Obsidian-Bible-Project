@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they bring him unto the place Golgotha, which is, being interpreted, The place of a skull.
+They brought him to the place called Golgotha, which is, being interpreted, "The place of a skull."

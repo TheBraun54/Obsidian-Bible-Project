@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I have kept the ways of Jehovah, And have not wickedly departed from my God.
+For I have kept the ways of Yahweh, and have not wickedly departed from my God.

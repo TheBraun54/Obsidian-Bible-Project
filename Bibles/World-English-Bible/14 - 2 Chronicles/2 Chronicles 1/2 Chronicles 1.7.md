@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that night did God appear unto Solomon, and said unto him, Ask what I shall give thee.
+In that night God appeared to Solomon, and said to him, "Ask what I shall give you."

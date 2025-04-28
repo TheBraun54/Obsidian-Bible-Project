@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took [and sent] messes unto them from before him: but Benjamin's mess was five times so much as any of theirs. And they drank, and were merry with him. [
+He sent portions to them from before him, but Benjamin's portion was five times as much as any of theirs. They drank, and were merry with him.

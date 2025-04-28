@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou saidst unto thy servants, Bring him down unto me, that I may set mine eyes upon him.
+You said to your servants, 'Bring him down to me, that I may set my eyes on him.'

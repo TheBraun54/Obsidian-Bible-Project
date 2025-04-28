@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And so it was, at the beginning of their dwelling there, that they feared not Jehovah: therefore Jehovah sent lions among them, which killed some of them.
+So it was, at the beginning of their dwelling there, that they didn't fear Yahweh: therefore Yahweh sent lions among them, which killed some of them.

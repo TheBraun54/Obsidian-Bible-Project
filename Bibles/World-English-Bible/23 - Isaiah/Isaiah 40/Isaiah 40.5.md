@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the glory of Jehovah shall be revealed, and all flesh shall see it together; for the mouth of Jehovah hath spoken it.
+The glory of Yahweh shall be revealed, and all flesh shall see it together; for the mouth of Yahweh has spoken it."

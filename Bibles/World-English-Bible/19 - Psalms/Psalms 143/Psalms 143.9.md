@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Deliver me, O Jehovah, from mine enemies: I flee unto thee to hide me.
+Deliver me, Yahweh, from my enemies. I flee to you to hide me.

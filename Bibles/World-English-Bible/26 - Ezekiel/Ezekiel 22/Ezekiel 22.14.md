@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Can thy heart endure, or can thy hands be strong, in the days that I shall deal with thee? I, Jehovah, have spoken it, and will do it.
+Can your heart endure, or can your hands be strong, in the days that I shall deal with you? I, Yahweh, have spoken it, and will do it.

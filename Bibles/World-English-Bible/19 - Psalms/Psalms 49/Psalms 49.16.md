@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not thou afraid when one is made rich, When the glory of his house is increased.
+Don't be afraid when a man is made rich, when the glory of his house is increased.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the Lord had made the host of the Syrians to hear a noise of chariots, and a noise of horses, even the noise of a great host: and they said one to another, Lo, the king of Israel hath hired against us the kings of the Hittites, and the kings of the Egyptians, to come upon us.
+For the Lord had made the army of the Syrians to hear a noise of chariots, and a noise of horses, even the noise of a great army: and they said one to another, Behold, the king of Israel has hired against us the kings of the Hittites, and the kings of the Egyptians, to come on us.

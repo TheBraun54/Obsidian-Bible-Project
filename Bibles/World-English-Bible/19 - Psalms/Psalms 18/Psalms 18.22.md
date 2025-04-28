@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For all his ordinances were before me, And I put not away his statutes from me.
+For all his ordinances were before me. I didn't put away his statutes from me.

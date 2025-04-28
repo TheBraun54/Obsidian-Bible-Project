@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of Shechem set liers-in-wait for him on the tops of the mountains, and they robbed all that came along that way by them: and it was told Abimelech.
+The men of Shechem set an ambush for him on the tops of the mountains, and they robbed all who came along that way by them: and it was told Abimelech.

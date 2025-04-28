@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Laban said, It is not so done in our place, to give the younger before the first-born.
+Laban said, "It is not done so in our place, to give the younger before the firstborn.

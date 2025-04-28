@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed is the man whose strength is in thee; In whose heart are the highways [to Zion] .
+Blessed are those whose strength is in you; who have set their hearts on a pilgrimage.

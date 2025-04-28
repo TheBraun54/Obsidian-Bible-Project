@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lo, their prosperity is not in their hand: The counsel of the wicked is far from me.
+Behold, their prosperity is not in their hand. The counsel of the wicked is far from me.

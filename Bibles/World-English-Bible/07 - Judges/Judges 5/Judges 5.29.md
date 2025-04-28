@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Her wise ladies answered her, Yea, she returned answer to herself,
+Her wise ladies answered her, Yes, she returned answer to herself,

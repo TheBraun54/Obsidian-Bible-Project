@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but God led the people about, by the way of the wilderness by the Red Sea: and the children of Israel went up armed out of the land of Egypt.
+but God led the people around by the way of the wilderness by the Red Sea; and the children of Israel went up armed out of the land of Egypt.

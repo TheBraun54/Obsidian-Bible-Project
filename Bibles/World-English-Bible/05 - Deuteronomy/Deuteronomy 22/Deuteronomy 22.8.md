@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou buildest a new house, then thou shalt make a battlement for thy roof, that thou bring not blood upon thy house, if any man fall from thence.
+When you build a new house, then you shall make a battlement for your roof, that you don't bring blood on your house, if any man fall from there.

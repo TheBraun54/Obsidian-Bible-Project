@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they saw him, they were astonished; and his mother said unto him, Son, why hast thou thus dealt with us? behold, thy father and I sought thee sorrowing.
+When they saw him, they were astonished, and his mother said to him, "Son, why have you treated us this way? Behold, your father and I were anxiously looking for you."

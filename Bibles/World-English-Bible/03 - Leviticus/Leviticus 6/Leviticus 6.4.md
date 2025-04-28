@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then it shall be, if he hath sinned, and is guilty, that he shall restore that which he took by robbery, or the thing which he hath gotten by oppression, or the deposit which was committed to him, or the lost thing which he found,
+then it shall be, if he has sinned, and is guilty, he shall restore that which he took by robbery, or the thing which he has gotten by oppression, or the deposit which was committed to him, or the lost thing which he found,

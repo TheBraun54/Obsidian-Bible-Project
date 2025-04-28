@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moses the servant of Jehovah and the children of Israel smote them: and Moses the servant of Jehovah gave it for a possession unto the Reubenites, and the Gadites, and the half-tribe of Manasseh.
+Moses the servant of Yahweh and the children of Israel struck them. Moses the servant of Yahweh gave it for a possession to the Reubenites, and the Gadites, and the half-tribe of Manasseh.

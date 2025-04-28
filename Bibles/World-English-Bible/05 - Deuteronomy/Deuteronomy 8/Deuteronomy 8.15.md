@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who led thee through the great and terrible wilderness, [wherein were] fiery serpents and scorpions, and thirsty ground where was no water; who brought thee forth water out of the rock of flint;
+who led you through the great and terrible wilderness, [in which were] fiery serpents and scorpions, and thirsty ground where there was no water; who brought you forth water out of the rock of flint;

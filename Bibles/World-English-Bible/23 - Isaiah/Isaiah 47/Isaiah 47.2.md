@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take the millstones, and grind meal; remove thy veil, strip off the train, uncover the leg, pass through the rivers.
+Take the millstones, and grind meal; remove your veil, strip off the train, uncover the leg, pass through the rivers.

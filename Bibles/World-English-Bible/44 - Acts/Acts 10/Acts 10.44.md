@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-While Peter yet spake these words, the Holy Spirit fell on all them that heard the word.
+While Peter was still speaking these words, the Holy Spirit fell on all those who heard the word.

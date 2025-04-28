@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that dwell on the earth rejoice over them, and make merry; and they shall send gifts one to another; because these two prophets tormented them that dwell on the earth.
+Those who dwell on the earth rejoice over them, and they will be glad. They will give gifts to one another, because these two prophets tormented those who dwell on the earth.

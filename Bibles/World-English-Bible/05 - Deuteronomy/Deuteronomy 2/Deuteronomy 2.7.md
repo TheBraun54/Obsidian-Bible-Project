@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah thy God hath blessed thee in all the work of thy hand; he hath known thy walking through this great wilderness: these forty years Jehovah thy God hath been with thee; thou hast lacked nothing.
+For Yahweh your God has blessed you in all the work of your hand; he has known your walking through this great wilderness: these forty years Yahweh your God has been with you; you have lacked nothing.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hezekiah prayed unto Jehovah, saying,
+Hezekiah prayed to Yahweh, saying,

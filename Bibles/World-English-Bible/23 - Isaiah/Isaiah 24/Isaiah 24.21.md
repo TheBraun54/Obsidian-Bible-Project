@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, that Jehovah will punish the host of the high ones on high, and the kings of the earth upon the earth.
+It shall happen in that day that Yahweh will punish the army of the high ones on high, and the kings of the earth on the earth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither be ye idolaters, as were some of them; as it is written, The people sat down to eat and drink, and rose up to play.
+Neither be idolaters, as some of them were. As it is written, "The people sat down to eat and drink, and rose up to play."

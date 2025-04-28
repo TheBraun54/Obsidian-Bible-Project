@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he left there, before the ark of the covenant of Jehovah, Asaph and his brethren, to minister before the ark continually, as every day's work required;
+So he left there, before the ark of the covenant of Yahweh, Asaph and his brothers, to minister before the ark continually, as every day's work required;

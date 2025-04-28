@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that sing idle songs to the sound of the viol; that invent for themselves instruments of music, like David;
+who strum on the strings of a harp; who invent for themselves instruments of music, like David;

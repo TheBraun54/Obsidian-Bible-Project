@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto them, Render unto Caesar the things that are Caesar's, and unto God the things that are God's. And they marvelled greatly at him.
+Jesus answered them, "Render to Caesar the things that are Caesar's, and to God the things that are God's." They marveled greatly at him.

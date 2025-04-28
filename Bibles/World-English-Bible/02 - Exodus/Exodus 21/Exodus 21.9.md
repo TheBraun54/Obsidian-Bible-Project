@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if he espouse her unto his son, he shall deal with her after the manner of daughters.
+If he marries her to his son, he shall deal with her as a daughter.

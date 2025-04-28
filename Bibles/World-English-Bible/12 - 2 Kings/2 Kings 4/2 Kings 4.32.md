@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Elisha was come into the house, behold, the child was dead, and laid upon his bed.
+When Elisha had come into the house, behold, the child was dead, and laid on his bed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; on stringed instruments, set to the Sheminith. A Psalm of David]. O Jehovah, rebuke me not in thine anger, Neither chasten me in thy hot displeasure.
+Yahweh, don't rebuke me in your anger, neither discipline me in your wrath.

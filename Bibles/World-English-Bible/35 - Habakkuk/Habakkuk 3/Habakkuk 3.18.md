@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet I will rejoice in Jehovah, I will joy in the God of my salvation.
+yet I will rejoice in Yahweh. I will be joyful in the God of my salvation!

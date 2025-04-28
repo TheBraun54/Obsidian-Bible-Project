@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Awake, awake, put on thy strength, O Zion; put on thy beautiful garments, O Jerusalem, the holy city: for henceforth there shall no more come into thee the uncircumcised and the unclean.
+Awake, awake, put on your strength, Zion; put on your beautiful garments, Jerusalem, the holy city: for henceforth there shall no more come into you the uncircumcised and the unclean.

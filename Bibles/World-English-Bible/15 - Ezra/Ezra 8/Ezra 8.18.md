@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And according to the good hand of our God upon us they brought us a man of discretion, of the sons of Mahli, the son of Levi, the son of Israel; and Sherebiah, with his sons and his brethren, eighteen;
+According to the good hand of our God on us they brought us a man of discretion, of the sons of Mahli, the son of Levi, the son of Israel; and Sherebiah, with his sons and his brothers, eighteen;

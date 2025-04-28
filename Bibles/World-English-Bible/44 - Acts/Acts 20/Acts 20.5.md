@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But these had gone before, and were waiting for us at Troas.
+But these had gone ahead, and were waiting for us at Troas.

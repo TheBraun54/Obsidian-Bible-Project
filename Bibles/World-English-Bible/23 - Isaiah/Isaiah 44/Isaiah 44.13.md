@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The carpenter stretcheth out a line; he marketh it out with a pencil; he shapeth it with planes, and he marketh it out with the compasses, and shapeth it after the figure of a man, according to the beauty of a man, to dwell in a house.
+The carpenter stretches out a line. He marks it out with a pencil. He shapes it with planes. He marks it out with compasses, and shapes it like the figure of a man, with the beauty of a man, to reside in a house.

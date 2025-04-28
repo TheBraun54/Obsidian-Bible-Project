@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Hadoram, and Uzal, and Diklah,
+Hadoram, Uzal, Diklah,

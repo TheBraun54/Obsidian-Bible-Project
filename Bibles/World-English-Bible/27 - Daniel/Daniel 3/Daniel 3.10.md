@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou, O king, hast made a decree, that every man that shall hear the sound of the cornet, flute, harp, sackbut, psaltery, and dulcimer, and all kinds of music, shall fall down and worship the golden image;
+You, O king, have made a decree, that every man that shall hear the sound of the horn, flute, zither, lyre, harp, pipe, and all kinds of music, shall fall down and worship the golden image;

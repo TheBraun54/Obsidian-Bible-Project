@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he was driven from the sons of men, and his heart was made like the beasts', and his dwelling was with the wild asses; he was fed with grass like oxen, and his body was wet with the dew of heaven; until he knew that the Most High God ruleth in the kingdom of men, and that he setteth up over it whomsoever he will.
+and he was driven from the sons of men, and his heart was made like the animals', and his dwelling was with the wild donkeys; he was fed with grass like oxen, and his body was wet with the dew of the sky; until he knew that the Most High God rules in the kingdom of men, and that he sets up over it whomever he will.

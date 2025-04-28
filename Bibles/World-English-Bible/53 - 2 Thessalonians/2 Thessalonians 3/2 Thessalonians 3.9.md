@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-not because we have not the right, but to make ourselves an ensample unto you, that ye should imitate us.
+not because we don't have the right, but to make ourselves an example to you, that you should imitate us.

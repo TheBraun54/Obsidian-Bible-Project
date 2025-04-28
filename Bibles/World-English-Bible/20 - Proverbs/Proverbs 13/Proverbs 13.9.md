@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The light of the righteous rejoiceth; But the lamp of the wicked shall be put out.
+The light of the righteous shines brightly, but the lamp of the wicked is snuffed out.

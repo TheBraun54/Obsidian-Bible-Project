@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now in the twelfth month, which is the month Adar, on the thirteenth day of the same, when the king's commandment and his decree drew near to be put in execution, on the day that the enemies of the Jews hoped to have rule over them, (whereas it was turned to the contrary, that the Jews had rule over them that hated them,)
+Now in the twelfth month, which is the month Adar, on the thirteenth day of the month, when the king's commandment and his decree drew near to be put in execution, on the day that the enemies of the Jews hoped to conquer them, (but it was turned out the opposite happened, that the Jews conquered those who hated them),

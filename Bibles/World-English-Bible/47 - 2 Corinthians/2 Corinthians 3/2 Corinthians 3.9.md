@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if the ministration of condemnation hath glory, much rather doth the ministration of righteousness exceed in glory.
+For if the service of condemnation has glory, the service of righteousness exceeds much more in glory.

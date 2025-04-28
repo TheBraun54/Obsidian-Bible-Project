@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The ships of Tarshish were thy caravans for thy merchandise: and thou wast replenished, and made very glorious in the heart of the seas.
+The ships of Tarshish were your caravans for your merchandise: and you were replenished, and made very glorious in the heart of the seas.

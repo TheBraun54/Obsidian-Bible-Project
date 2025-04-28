@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ten cubits shall be the length of a board, and a cubit and a half the breadth of each board.
+Ten cubits shall be the length of a board, and one and a half cubits the breadth of each board.

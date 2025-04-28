@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went with him; and a great multitude followed him, and they thronged him.
+He went with him, and a great multitude followed him, and they pressed upon him on all sides.

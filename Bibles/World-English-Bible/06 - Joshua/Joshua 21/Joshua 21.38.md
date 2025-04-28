@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And out of the tribe of Gad, Ramoth in Gilead with its suburbs, the city of refuge for the manslayer, and Mahanaim with its suburbs,
+Out of the tribe of Gad, Ramoth in Gilead with its suburbs, the city of refuge for the manslayer, and Mahanaim with its suburbs,

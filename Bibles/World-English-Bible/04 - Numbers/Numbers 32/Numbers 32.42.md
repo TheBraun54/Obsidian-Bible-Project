@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Nobah went and took Kenath, and the villages thereof, and called it Nobah, after his own name.
+Nobah went and took Kenath, and its villages, and called it Nobah, after his own name.

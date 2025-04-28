@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the resurrection whose wife shall she be of them? for the seven had her to wife.
+In the resurrection, when they rise, whose wife will she be of them? For the seven had her as a wife."

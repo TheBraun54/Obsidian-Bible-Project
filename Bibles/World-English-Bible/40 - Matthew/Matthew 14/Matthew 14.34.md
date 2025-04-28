@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had crossed over, they came to the land, unto Gennesaret.
+When they had crossed over, they came to the land of Gennesaret.

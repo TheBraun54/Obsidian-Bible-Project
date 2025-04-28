@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is like unto a grain of mustard seed, which a man took, and cast into his own garden; and it grew, and became a tree; and the birds of the heaven lodged in the branches thereof.
+It is like a grain of mustard seed, which a man took, and put in his own garden. It grew, and became a large tree, and the birds of the sky lodged in its branches."

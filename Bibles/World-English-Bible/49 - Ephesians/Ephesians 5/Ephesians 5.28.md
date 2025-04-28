@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even so ought husbands also to love their own wives as their own bodies. He that loveth his own wife loveth himself:
+Even so husbands also ought to love their own wives as their own bodies. He who loves his own wife loves himself.

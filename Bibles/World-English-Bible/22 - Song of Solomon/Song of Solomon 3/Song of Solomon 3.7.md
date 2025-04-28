@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, it is the litter of Solomon; Threescore mighty men are about it, Of the mighty men of Israel.
+Behold, it is Solomon's carriage! Sixty mighty men are around it, of the mighty men of Israel.

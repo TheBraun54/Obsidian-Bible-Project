@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore dost thou forget us for ever, [And] forsake us so long time?
+Why do you forget us forever, [And] forsake us so long time?

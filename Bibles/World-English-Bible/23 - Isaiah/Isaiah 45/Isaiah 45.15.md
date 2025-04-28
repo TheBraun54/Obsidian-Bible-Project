@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily thou art a God that hidest thyself, O God of Israel, the Saviour.
+Most certainly you are a God who hidden yourself, God of Israel, the Savior.'"

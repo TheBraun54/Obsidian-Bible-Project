@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they were come, they say unto him, Teacher, we know that thou art true, and carest not for any one; for thou regardest not the person of men, but of a truth teachest the way of God: Is it lawful to give tribute unto Caesar, or not?
+When they had come, they asked him, "Teacher, we know that you are honest, and don't defer to anyone; for you aren't partial to anyone, but truly teach the way of God. Is it lawful to pay taxes to Caesar, or not?

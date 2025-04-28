@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt sanctify him therefore; for he offereth the bread of thy God: he shall be holy unto thee: for I Jehovah, who sanctify you, am holy.
+You shall sanctify him therefore; for he offers the bread of your God: he shall be holy to you: for I Yahweh, who sanctify you, am holy.

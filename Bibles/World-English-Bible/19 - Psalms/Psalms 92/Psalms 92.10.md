@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But my horn hast thou exalted like [the horn of] the wild-ox: I am anointed with fresh oil.
+But you have exalted my horn like that of the wild ox. I am anointed with fresh oil.

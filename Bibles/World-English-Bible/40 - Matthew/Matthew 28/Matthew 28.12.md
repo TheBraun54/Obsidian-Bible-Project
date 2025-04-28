@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they were assembled with the elders, and had taken counsel, they gave much money unto the soldiers,
+When they were assembled with the elders, and had taken counsel, they gave a large amount of silver to the soldiers,

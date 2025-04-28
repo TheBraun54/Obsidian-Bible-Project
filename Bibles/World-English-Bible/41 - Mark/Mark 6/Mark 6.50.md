@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for they all saw him, and were troubled. But he straightway spake with them, and saith unto them, Be of good cheer: it is I; be not afraid.
+for they all saw him, and were troubled. But he immediately spoke with them, and said to them, "Cheer up! It is I! Don't be afraid."

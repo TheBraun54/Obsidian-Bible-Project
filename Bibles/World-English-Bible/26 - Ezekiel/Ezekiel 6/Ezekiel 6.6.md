@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In all your dwelling-places the cities shall be laid waste, and the high places shall be desolate; that your altars may be laid waste and made desolate, and your idols may be broken and cease, and your sun-images may be hewn down, and your works may be abolished.
+In all your dwelling places the cities shall be laid waste, and the high places shall be desolate; that your altars may be laid waste and made desolate, and your idols may be broken and cease, and your incense altars may be cut down, and your works may be abolished.

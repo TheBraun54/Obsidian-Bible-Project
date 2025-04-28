@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had crossed over, they came to the land unto Gennesaret, and moored to the shore.
+When they had crossed over, they came to land at Gennesaret, and moored to the shore.

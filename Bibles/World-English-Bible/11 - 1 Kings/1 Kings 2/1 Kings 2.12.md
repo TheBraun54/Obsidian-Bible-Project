@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon sat upon the throne of David his father; and his kingdom was established greatly.
+Solomon sat on the throne of David his father; and his kingdom was firmly established.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and let them deliver it into the hand of the workmen that have the oversight of the house of Jehovah; and let them give it to the workmen that are in the house of Jehovah, to repair the breaches of the house,
+Let them deliver it into the hand of the workmen who have the oversight of the house of Yahweh; and let them give it to the workmen who are in the house of Yahweh, to repair the breaches of the house,

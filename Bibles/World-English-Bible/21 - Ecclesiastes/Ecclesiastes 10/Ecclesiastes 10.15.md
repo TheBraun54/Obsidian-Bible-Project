@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The labor of fools wearieth every one of them; for he knoweth not how to go to the city.
+The labor of fools wearies every one of them; for he doesn't know how to go to the city.

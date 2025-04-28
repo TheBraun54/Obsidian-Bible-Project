@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, God will not cast away a perfect man, Neither will he uphold the evil-doers.
+"Behold, God will not cast away a blameless man, neither will he uphold the evildoers.

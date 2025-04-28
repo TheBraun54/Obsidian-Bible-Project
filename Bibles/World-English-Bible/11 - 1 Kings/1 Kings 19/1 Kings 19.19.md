@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he departed thence, and found Elisha the son of Shaphat, who was plowing, with twelve yoke [of oxen] before him, and he with the twelfth: and Elijah passed over unto him, and cast his mantle upon him.
+So he departed there, and found Elisha the son of Shaphat, who was plowing, with twelve yoke [of oxen] before him, and he with the twelfth: and Elijah passed over to him, and cast his mantle on him.

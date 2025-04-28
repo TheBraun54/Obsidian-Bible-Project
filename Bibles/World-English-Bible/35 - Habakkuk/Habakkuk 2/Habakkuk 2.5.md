@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, moreover, wine is treacherous, a haughty man, that keepeth not at home; who enlargeth his desire as Sheol, and he is as death, and cannot be satisfied, but gathereth unto him all nations, and heapeth unto him all peoples.
+Yes, moreover, wine is treacherous. A haughty man who doesn't stay at home, who enlarges his desire as Sheol, and he is like death, and can't be satisfied, but gathers to himself all nations, and heaps to himself all peoples.

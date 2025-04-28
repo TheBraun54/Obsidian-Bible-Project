@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But afterward he sent unto them his son, saying, They will reverence my son.
+But afterward he sent to them his son, saying, 'They will respect my son.'

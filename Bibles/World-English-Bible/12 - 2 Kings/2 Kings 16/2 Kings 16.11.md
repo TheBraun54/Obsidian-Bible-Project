@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Urijah the priest built an altar: according to all that king Ahaz had sent from Damascus, so did Urijah the priest make it against the coming of king Ahaz from Damascus.
+Urijah the priest built an altar: according to all that king Ahaz had sent from Damascus, so did Urijah the priest make it against the coming of king Ahaz from Damascus.

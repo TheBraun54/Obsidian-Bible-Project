@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the report of him went out straightway everywhere into all the region of Galilee round about.
+The report of him went out immediately everywhere into all the region of Galilee and its surrounding area.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath stretched out his hand over the sea, he hath shaken the kingdoms: Jehovah hath given commandment concerning Canaan, to destroy the strongholds thereof.
+He has stretched out his hand over the sea. He has shaken the kingdoms. Yahweh has ordered the destruction of Canaan's strongholds.

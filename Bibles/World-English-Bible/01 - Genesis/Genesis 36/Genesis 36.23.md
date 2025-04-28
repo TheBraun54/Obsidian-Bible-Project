@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the children of Shobal: Alvan and Manahath and Ebal, Shepho and Onam.
+These are the children of Shobal: Alvan, Manahath, Ebal, Shepho, and Onam.

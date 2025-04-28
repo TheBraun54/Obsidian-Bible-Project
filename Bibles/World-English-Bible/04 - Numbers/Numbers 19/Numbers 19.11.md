@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that toucheth the dead body of any man shall be unclean seven days:
+"He who touches the dead body of any man shall be unclean seven days:

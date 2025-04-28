@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said I, I will not feed you: that which dieth, let it die; and that which is to be cut off, let it be cut off; and let them that are left eat every one the flesh of another.
+Then I said, "I will not feed you. That which dies, let it die; and that which is to be cut off, let it be cut off; and let those who are left eat each other's flesh."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(Now this man obtained a field with the reward of his iniquity; and falling headlong, he burst asunder in the midst, and all his bowels gushed out.
+Now this man obtained a field with the reward for his wickedness, and falling headlong, his body burst open, and all his intestines gushed out.

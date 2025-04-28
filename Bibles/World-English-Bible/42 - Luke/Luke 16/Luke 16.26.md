@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And besides all this, between us and you there is a great gulf fixed, that they that would pass from hence to you may not be able, and that none may cross over from thence to us.
+Besides all this, between us and you there is a great gulf fixed, that those who want to pass from here to you are not able, and that none may cross over from there to us.'

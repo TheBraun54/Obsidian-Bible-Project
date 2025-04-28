@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, All flesh is as grass, And all the glory thereof as the flower of grass. The grass withereth, and the flower falleth:
+For, "All flesh is like grass, and all of man's glory like the flower in the grass. The grass withers, and its flower falls;

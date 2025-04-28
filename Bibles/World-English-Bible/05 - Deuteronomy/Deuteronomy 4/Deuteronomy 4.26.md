@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I call heaven and earth to witness against you this day, that ye shall soon utterly perish from off the land whereunto ye go over the Jordan to possess it; ye shall not prolong your days upon it, but shall utterly be destroyed.
+I call heaven and earth to witness against you this day, that you shall soon utterly perish from off the land whereunto you go over the Jordan to possess it; you shall not prolong your days on it, but shall utterly be destroyed.

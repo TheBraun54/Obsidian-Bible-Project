@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Beth-lebaoth, and Sharuhen; thirteen cities with their villages:
+Beth Lebaoth, and Sharuhen; thirteen cities with their villages;

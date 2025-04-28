@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses called unto all Israel, and said unto them, Ye have seen all that Jehovah did before your eyes in the land of Egypt unto Pharaoh, and unto all his servants, and unto all his land;
+Moses called to all Israel, and said to them, You have seen all that Yahweh did before your eyes in the land of Egypt to Pharaoh, and to all his servants, and to all his land;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beautiful in elevation, the joy of the whole earth, Is mount Zion, [on] the sides of the north, The city of the great King.
+Beautiful in elevation, the joy of the whole earth, is Mount Zion, on the north sides, the city of the great King.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wicked flee when no man pursueth; But the righteous are bold as a lion.
+The wicked flee when no one pursues; but the righteous are as bold as a lion.

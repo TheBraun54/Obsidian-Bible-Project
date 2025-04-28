@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Upon his ruin all the birds of the heavens shall dwell, and all the beasts of the field shall be upon his branches;
+On his ruin all the birds of the sky shall dwell, and all the animals of the field shall be on his branches;

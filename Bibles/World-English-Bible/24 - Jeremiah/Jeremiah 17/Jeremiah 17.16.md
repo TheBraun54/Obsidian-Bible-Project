@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for me, I have not hastened from being a shepherd after thee; neither have I desired the woeful day; thou knowest: that which came out of my lips was before thy face.
+As for me, I have not hurried from being a shepherd after you; neither have I desired the woeful day; you know: that which came out of my lips was before your face.

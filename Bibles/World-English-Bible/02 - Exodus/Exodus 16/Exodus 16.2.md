@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the whole congregation of the children of Israel murmured against Moses and against Aaron in the wilderness:
+The whole congregation of the children of Israel murmured against Moses and against Aaron in the wilderness;

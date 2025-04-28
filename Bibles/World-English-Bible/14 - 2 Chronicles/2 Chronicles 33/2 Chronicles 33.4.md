@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he built altars in the house of Jehovah, whereof Jehovah said, In Jerusalem shall my name be for ever.
+He built altars in the house of Yahweh, of which Yahweh said, "My name shall be in Jerusalem forever."

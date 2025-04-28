@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-shouldest not thou also have had mercy on thy fellow-servant, even as I had mercy on thee?
+Shouldn't you also have had mercy on your fellow servant, even as I had mercy on you?'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh said, I will let you go, that ye may sacrifice to Jehovah your God in the wilderness; only ye shall not go very far away: entreat for me.
+Pharaoh said, "I will let you go, that you may sacrifice to Yahweh your God in the wilderness, only you shall not go very far away. Pray for me."

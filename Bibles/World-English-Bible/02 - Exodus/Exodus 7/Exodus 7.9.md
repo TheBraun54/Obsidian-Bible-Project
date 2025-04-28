@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Pharaoh shall speak unto you, saying, Show a wonder for you; then thou shalt say unto Aaron, Take thy rod, and cast it down before Pharaoh, that it become a serpent.
+"When Pharaoh speaks to you, saying, 'Perform a miracle!' then you shall tell Aaron, 'Take your rod, and cast it down before Pharaoh, that it become a serpent.'"

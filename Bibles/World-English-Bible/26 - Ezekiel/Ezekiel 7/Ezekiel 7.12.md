@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The time is come, the day draweth near: let not the buyer rejoice, nor the seller mourn; for wrath is upon all the multitude thereof.
+The time is come, the day draws near: don't let the buyer rejoice, nor the seller mourn; for wrath is on all its multitude.

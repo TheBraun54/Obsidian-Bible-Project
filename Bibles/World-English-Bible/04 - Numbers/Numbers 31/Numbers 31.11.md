@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they took all the spoil, and all the prey, both of man and of beast.
+They took all the spoil, and all the prey, both of man and of animal.

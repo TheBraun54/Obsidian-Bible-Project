@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were more than forty that made this conspiracy.
+There were more than forty people who had made this conspiracy.

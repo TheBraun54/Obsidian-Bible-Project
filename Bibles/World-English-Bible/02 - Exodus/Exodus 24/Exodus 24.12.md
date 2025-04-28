@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Come up to me into the mount, and be there: and I will give thee the tables of stone, and the law and the commandment, which I have written, that thou mayest teach them.
+Yahweh said to Moses, "Come up to me on the mountain, and stay here, and I will give you the tables of stone with the law and the commands that I have written, that you may teach them."

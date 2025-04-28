@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I say then, Did they stumble that they might fall? God forbid: but by their fall salvation [is come] unto the Gentiles, to provoke them to jealousy.
+I ask then, did they stumble that they might fall? May it never be! But by their fall salvation has come to the Gentiles, to provoke them to jealousy.

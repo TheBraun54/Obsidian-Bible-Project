@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There they cry, but none giveth answer, Because of the pride of evil men.
+There they cry, but none gives answer, because of the pride of evil men.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but whosoever drinketh of the water that I shall give him shall never thirst; but the water that I shall give him shall become in him a well of water springing up unto eternal life.
+but whoever drinks of the water that I will give him will never thirst again; but the water that I will give him will become in him a well of water springing up to eternal life."

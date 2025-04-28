@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For my sighing cometh before I eat, And my groanings are poured out like water.
+For my sighing comes before I eat. My groanings are poured out like water.

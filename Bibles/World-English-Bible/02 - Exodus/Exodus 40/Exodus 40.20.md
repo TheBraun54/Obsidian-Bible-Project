@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took and put the testimony into the ark, and set the staves on the ark, and put the mercy-seat above upon the ark:
+He took and put the testimony into the ark, and set the poles on the ark, and put the mercy seat above on the ark.

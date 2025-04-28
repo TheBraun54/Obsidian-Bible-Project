@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua said, Roll great stones unto the mouth of the cave, and set men by it to keep them:
+Joshua said, "Roll large stones to the mouth of the cave, and set men by it to guard them;

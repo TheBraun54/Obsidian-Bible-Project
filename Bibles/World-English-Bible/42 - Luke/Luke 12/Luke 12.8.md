@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I say unto you, Every one who shall confess me before men, him shall the Son of man also confess before the angels of God:
+"I tell you, everyone who confesses me before men, him will the Son of Man also confess before the angels of God;

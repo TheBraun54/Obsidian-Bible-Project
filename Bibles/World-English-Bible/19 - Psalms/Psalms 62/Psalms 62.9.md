@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely men of low degree are vanity, and men of high degree are a lie: In the balances they will go up; They are together lighter than vanity.
+Surely men of low degree are just a breath, and men of high degree are a lie. In the balances they will go up. They are together lighter than a breath.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So I was great, and increased more than all that were before me in Jerusalem: also my wisdom remained with me.
+So I was great, and increased more than all who were before me in Jerusalem. My wisdom also remained with me.

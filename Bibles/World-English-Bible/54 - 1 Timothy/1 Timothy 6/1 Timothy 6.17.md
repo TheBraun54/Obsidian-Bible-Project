@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Charge them that are rich in this present world, that they be not highminded, nor have their hope set on the uncertainty of riches, but on God, who giveth us richly all things to enjoy;
+Charge those who are rich in this present world that they not be haughty, nor have their hope set on the uncertainty of riches, but on the living God, who richly provides us with everything to enjoy;

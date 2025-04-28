@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He answered, The man that is called Jesus made clay, and anointed mine eyes, and said unto me, Go to Siloam, and wash: so I went away and washed, and I received sight.
+He answered, "A man called Jesus made mud, anointed my eyes, and said to me, 'Go to the pool of Siloam, and wash.' So I went away and washed, and I received sight."

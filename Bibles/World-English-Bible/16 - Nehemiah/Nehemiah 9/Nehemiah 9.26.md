@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless they were disobedient, and rebelled against thee, and cast thy law behind their back, and slew thy prophets that testified against them to turn them again unto thee, and they wrought great provocations.
+"Nevertheless they were disobedient, and rebelled against you, and cast your law behind their back, and killed your prophets that testified against them to turn them again to you, and they committed awful blasphemies.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if we shall say, From men; we fear the multitude; for all hold John as a prophet.
+But if we say, 'From men,' we fear the multitude, for all hold John as a prophet."

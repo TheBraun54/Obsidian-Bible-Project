@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thou shalt speak unto them this word: Thus saith Jehovah, the God of Israel, Every bottle shall be filled with wine: and they shall say unto thee, Do we not certainly know that every [ bottle shall be filled with wine?
+Therefore you shall speak to them this word: Thus says Yahweh, the God of Israel, Every bottle shall be filled with wine: and they shall tell you, Do we not certainly know that every bottle shall be filled with wine?

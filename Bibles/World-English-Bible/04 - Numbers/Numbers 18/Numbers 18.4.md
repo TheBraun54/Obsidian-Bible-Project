@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall be joined unto thee, and keep the charge of the tent of meeting, for all the service of the Tent: and a stranger shall not come nigh unto you.
+They shall be joined to you, and keep the responsibility of the Tent of Meeting, for all the service of the Tent: and a stranger shall not come near to you.

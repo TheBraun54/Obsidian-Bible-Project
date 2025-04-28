@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore, behold, the days come, that I will execute judgment upon the graven images of Babylon; and her whole land shall be confounded; and all her slain shall fall in the midst of her.
+Therefore, behold, the days come, that I will execute judgment on the engraved images of Babylon; and her whole land shall be confounded; and all her slain shall fall in the midst of her.

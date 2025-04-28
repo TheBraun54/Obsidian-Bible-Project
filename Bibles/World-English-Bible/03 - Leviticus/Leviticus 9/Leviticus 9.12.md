@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he slew the burnt-offering; and Aaron's sons delivered unto him the blood, and he sprinkled it upon the altar round about.
+He killed the burnt offering; and Aaron's sons delivered the blood to him, and he sprinkled it around on the altar.

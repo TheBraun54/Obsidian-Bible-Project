@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they took the bullock which was given them, and they dressed it, and called on the name of Baal from morning even until noon, saying, O Baal, hear us. But there was no voice, nor any that answered. And they leaped about the altar which was made.
+They took the bull which was given them, and they dressed it, and called on the name of Baal from morning even until noon, saying, Baal, hear us. But there was no voice, nor any who answered. They leaped about the altar which was made.

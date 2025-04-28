@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses diligently sought the goat of the sin-offering, and, behold, it was burnt: and he was angry with Eleazar and with Ithamar, the sons of Aaron that were left, saying,
+Moses diligently inquired about the goat of the sin offering, and, behold, it was burned: and he was angry with Eleazar and with Ithamar, the sons of Aaron who were left, saying,

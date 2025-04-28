@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The voice of Jehovah crieth unto the city, and [the man of] wisdom will see thy name: hear ye the rod, and who hath appointed it.
+Yahweh's voice calls to the city, and wisdom sees your name: "Listen to the rod, and he who appointed it.

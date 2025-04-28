@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And some of the families of the sons of Kohath had cities of their borders out of the tribe of Ephraim.
+Some of the families of the sons of Kohath had cities of their borders out of the tribe of Ephraim.

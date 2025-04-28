@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And our adversaries said, They shall not know, neither see, till we come into the midst of them, and slay them, and cause the work to cease.
+Our adversaries said, "They shall not know, neither see, until we come into the midst of them, and kill them, and cause the work to cease."

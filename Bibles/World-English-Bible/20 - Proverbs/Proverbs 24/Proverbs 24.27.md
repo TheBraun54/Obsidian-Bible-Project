@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Prepare thy work without, And make it ready for thee in the field; And afterwards build thy house.
+Prepare your work outside, and get your fields ready. Afterwards, build your house.

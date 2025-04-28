@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who turned the rock into a pool of water, The flint into a fountain of waters.
+who turned the rock into a pool of water, the flint into a spring of waters.

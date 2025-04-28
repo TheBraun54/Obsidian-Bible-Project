@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore will ye contend with me? ye all have transgressed against me, saith Jehovah.
+"Why will you contend with me? You all have transgressed against me," says Yahweh.

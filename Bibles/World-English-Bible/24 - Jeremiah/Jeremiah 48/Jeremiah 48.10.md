@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cursed be he that doeth the work of Jehovah negligently; and cursed be he that keepeth back his sword from blood.
+Cursed is he who does the work of Yahweh negligently; and cursed is he who keeps back his sword from blood.

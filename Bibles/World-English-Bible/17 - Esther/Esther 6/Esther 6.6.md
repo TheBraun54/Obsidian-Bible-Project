@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Haman came in. And the king said unto him, What shall be done unto the man whom the king delighteth to honor? Now Haman said in his heart, To whom would the king delight to do honor more than to myself?
+So Haman came in. The king said to him, "What shall be done to the man whom the king delights to honor?" Now Haman said in his heart, "Who would the king delight to honor more than myself?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And from thence he arose, and went away into the borders of Tyre and Sidon. And he entered into a house, and would have no man know it; and he could not be hid.
+From there he arose, and went away into the borders of Tyre and Sidon. He entered into a house, and didn't want anyone to know it, but he couldn't escape notice.

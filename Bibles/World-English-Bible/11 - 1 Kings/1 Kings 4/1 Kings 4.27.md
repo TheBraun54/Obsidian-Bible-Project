@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And those officers provided victuals for king Solomon, and for all that came unto king Solomon's table, every man in his month; they let nothing be lacking.
+Those officers provided food for king Solomon, and for all who came to king Solomon's table, every man in his month; they let nothing be lacking.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sing unto him, sing praises unto him; Talk ye of all his marvellous works.
+Sing to him. Sing praises to him. Tell of all his marvelous works.

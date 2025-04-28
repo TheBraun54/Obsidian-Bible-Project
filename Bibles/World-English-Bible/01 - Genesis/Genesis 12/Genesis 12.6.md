@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abram passed through the land unto the place of Shechem, unto the oak of Moreh. And the Canaanite was then in the land.
+Abram passed through the land to the place of Shechem, to the oak of Moreh. The Canaanite was then in the land.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He wrote also letters, to rail on Jehovah, the God of Israel, and to speak against him, saying, As the gods of the nations of the lands, which have not delivered their people out of my hand, so shall not the God of Hezekiah deliver his people out of my hand.
+He also wrote letters insulting Yahweh, the God of Israel, and to speak against him, saying, "As the gods of the nations of the lands, which have not delivered their people out of my hand, so shall the God of Hezekiah not deliver his people out of my hand."

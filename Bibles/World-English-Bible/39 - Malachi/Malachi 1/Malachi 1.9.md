@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, I pray you, entreat the favor of God, that he may be gracious unto us: this hath been by your means: will he accept any of your persons? saith Jehovah of hosts.
+"Now, please entreat the favor of God, that he may be gracious to us. With this, will he accept any of you?" says Yahweh of Armies.

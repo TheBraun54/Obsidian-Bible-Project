@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So now it was not you that sent me hither, but God: and he hath made me a father to Pharaoh, and lord of all his house, and ruler over all the land of Egypt.
+So now it wasn't you who sent me here, but God, and he has made me a father to Pharaoh, lord of all his house, and ruler over all the land of Egypt.

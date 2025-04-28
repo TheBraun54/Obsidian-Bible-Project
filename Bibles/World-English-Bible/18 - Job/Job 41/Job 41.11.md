@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who hath first given unto me, that I should repay him? [Whatsoever is] under the whole heaven is mine.
+Who has first given to me, that I should repay him? Everything under the heavens is mine.

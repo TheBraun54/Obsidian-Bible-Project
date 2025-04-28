@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they spake unto them at Shiloh in the land of Canaan, saying, Jehovah commanded Moses to give us cities to dwell in, with the suburbs thereof for our cattle.
+They spoke to them at Shiloh in the land of Canaan, saying, "Yahweh commanded Moses to give us cities to dwell in, with their suburbs for our livestock."

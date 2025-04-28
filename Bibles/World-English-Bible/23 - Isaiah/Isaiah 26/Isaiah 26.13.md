@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah our God, other lords besides thee have had dominion over us; but by thee only will we make mention of thy name.
+Yahweh our God, other lords besides you have had dominion over us, but by you only will we make mention of your name.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now know we that thou knowest all things, and needest not that any man should ask thee: by this we believe that thou camest forth from God.
+Now we know that you know all things, and don't need for anyone to question you. By this we believe that you came forth from God."

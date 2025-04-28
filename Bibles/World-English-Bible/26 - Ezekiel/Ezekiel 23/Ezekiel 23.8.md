@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither hath she left her whoredoms since [the days of] Egypt; for in her youth they lay with her, and they handled the bosom of her virginity; and they poured out their whoredom upon her. [
+Neither has she left her prostitution since [the days of] Egypt; for in her youth they lay with her, and they handled the bosom of her virginity; and they poured out their prostitution on her.

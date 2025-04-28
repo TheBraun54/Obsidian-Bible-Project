@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that was sown among the thorns, this is he that heareth the word; and the care of the world, and the deceitfulness of riches, choke the word, and he becometh unfruitful.
+What was sown among the thorns, this is he who hears the word, but the cares of this age and the deceitfulness of riches choke the word, and he becomes unfruitful.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I looked, and there was none to help; and I wondered that there was none to uphold: therefore mine own arm brought salvation unto me; and my wrath, it upheld me.
+I looked, and there was none to help; and I wondered that there was none to uphold: therefore my own arm brought salvation to me; and my wrath, it upheld me.

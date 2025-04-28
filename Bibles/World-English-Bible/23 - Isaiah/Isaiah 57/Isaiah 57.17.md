@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the iniquity of his covetousness was I wroth, and smote him; I hid [my face] and was wroth; and he went on backsliding in the way of his heart.
+For the iniquity of his covetousness was I angry, and struck him; I hid [my face] and was angry; and he went on backsliding in the way of his heart.

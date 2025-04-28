@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wisdom [is] the principal thing; [Therefore] get wisdom; Yea, with all thy getting get understanding.
+Wisdom is supreme. Get wisdom. Yes, though it costs all your possessions, get understanding.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Judah and the children of Israel shall be gathered together, and they shall appoint themselves one head, and shall go up from the land; for great shall be the day of Jezreel.
+The children of Judah and the children of Israel will be gathered together, and they will appoint themselves one head, and will go up from the land; for great will be the day of Jezreel.

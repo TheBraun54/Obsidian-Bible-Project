@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remove not the ancient landmark, Which thy fathers have set.
+Don't move the ancient boundary stone, which your fathers have set up.

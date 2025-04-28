@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit with most of them God was not well pleased: for they were overthrown in the wilderness.
+However with most of them, God was not well pleased, for they were overthrown in the wilderness.

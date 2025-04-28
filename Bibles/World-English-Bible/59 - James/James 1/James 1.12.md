@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed is the man that endureth temptation; for when he hath been approved, he shall receive the crown of life, which [the Lord] promised to them that love him.
+Blessed is the man who endures temptation, for when he has been approved, he will receive the crown of life, which the Lord promised to those who love him.

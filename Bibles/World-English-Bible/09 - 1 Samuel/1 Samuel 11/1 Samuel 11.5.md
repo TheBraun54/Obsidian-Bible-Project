@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, Saul came following the oxen out of the field; and Saul said, What aileth the people that they weep? And they told him the words of the men of Jabesh.
+Behold, Saul came following the oxen out of the field; and Saul said, "What ails the people that they weep?" They told him the words of the men of Jabesh.

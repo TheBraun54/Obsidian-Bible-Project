@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and being fully assured that what he had promised, he was able also to perform.
+and being fully assured that what he had promised, he was also able to perform.

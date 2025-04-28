@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will gather all nations, and will bring them down into the valley of Jehoshaphat; and I will execute judgment upon them there for my people and for my heritage Israel, whom they have scattered among the nations: and they have parted my land,
+I will gather all nations, and will bring them down into the valley of Jehoshaphat; and I will execute judgment on them there for my people, and for my heritage, Israel, whom they have scattered among the nations. They have divided my land,

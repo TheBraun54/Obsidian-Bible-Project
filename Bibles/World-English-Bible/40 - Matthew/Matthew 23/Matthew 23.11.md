@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he that is greatest among you shall be your servant.
+But he who is greatest among you will be your servant.

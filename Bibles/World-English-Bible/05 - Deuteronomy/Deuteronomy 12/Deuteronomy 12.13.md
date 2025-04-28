@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take heed to thyself that thou offer not thy burnt-offerings in every place that thou seest;
+Take heed to yourself that you don't offer your burnt offerings in every place that you see;

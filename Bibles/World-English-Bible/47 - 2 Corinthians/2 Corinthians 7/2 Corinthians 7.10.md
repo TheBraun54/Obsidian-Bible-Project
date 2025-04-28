@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For godly sorrow worketh repentance unto salvation, [a repentance] which bringeth no regret: but the sorrow of the world worketh death.
+For godly sorrow works repentance to salvation, which brings no regret. But the sorrow of the world works death.

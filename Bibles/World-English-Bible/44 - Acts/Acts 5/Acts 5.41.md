@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They therefore departed from the presence of the council, rejoicing that they were counted worthy to suffer dishonor for the Name.
+They therefore departed from the presence of the council, rejoicing that they were counted worthy to suffer dishonor for Jesus' name.

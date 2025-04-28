@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Moza begat Binea; and Rephaiah his son, Eleasah his son, Azel his son.
+and Moza became the father of Binea; and Rephaiah his son, Eleasah his son, Azel his son.

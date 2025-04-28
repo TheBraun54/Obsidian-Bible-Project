@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the Lord stood by me, and strengthened me; that through me the message might me fully proclaimed, and that all the Gentiles might hear: and I was delivered out of the mouth of the lion.
+But the Lord stood by me, and strengthened me, that through me the message might be fully proclaimed, and that all the Gentiles might hear; and I was delivered out of the mouth of the lion.

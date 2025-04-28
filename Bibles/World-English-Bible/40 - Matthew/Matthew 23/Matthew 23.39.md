@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I say unto you, Ye shall not see me henceforth, till ye shall say, Blessed [is] he that cometh in the name of the Lord.
+For I tell you, you will not see me from now on, until you say, 'Blessed is he who comes in the name of the Lord!'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, when Jehovah thy God shall bring thee into the land which he sware unto thy fathers, to Abraham, to Isaac, and to Jacob, to give thee, great and goodly cities, which thou buildest not,
+It shall be, when Yahweh your God shall bring you into the land which he swore to your fathers, to Abraham, to Isaac, and to Jacob, to give you, great and goodly cities, which you didn't build,

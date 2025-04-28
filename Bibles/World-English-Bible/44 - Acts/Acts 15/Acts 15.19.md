@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore my judgment is, that we trouble not them that from among the Gentiles turn to God;
+"Therefore my judgment is that we don't trouble those from among the Gentiles who turn to God,

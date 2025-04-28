@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto them, Neither tell I you by what authority I do these things.
+Jesus said to them, "Neither will I tell you by what authority I do these things."

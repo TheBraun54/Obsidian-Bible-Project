@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The troubles of my heart are enlarged: Oh bring thou me out of my distresses.
+The troubles of my heart are enlarged. Oh bring me out of my distresses.

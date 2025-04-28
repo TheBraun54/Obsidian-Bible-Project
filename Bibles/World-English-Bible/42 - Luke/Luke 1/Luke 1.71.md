@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salvation from our enemies, and from the hand of all that hate us;
+salvation from our enemies, and from the hand of all who hate us;

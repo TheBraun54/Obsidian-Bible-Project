@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if any man say unto you, This hath been offered in sacrifice, eat not, for his sake that showed it, and for conscience sake:
+But if anyone says to you, "This was offered to idols," don't eat it for the sake of the one who told you, and for the sake of conscience. For "the earth is the Lord's, and all its fullness."

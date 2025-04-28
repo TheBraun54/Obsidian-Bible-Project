@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But whosoever shall deny me before men, him will I also deny before my Father who is in heaven.
+But whoever denies me before men, him I will also deny before my Father who is in heaven.

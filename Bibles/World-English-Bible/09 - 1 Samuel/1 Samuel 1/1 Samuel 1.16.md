@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Count not thy handmaid for a wicked woman; for out of the abundance of my complaint and my provocation have I spoken hitherto.
+Don't count your handmaid for a wicked woman; for I have been speaking out of the abundance of my complaint and my provocation."

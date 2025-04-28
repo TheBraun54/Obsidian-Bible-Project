@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in the evening, that he took Leah his daughter, and brought her to him; and he went in unto her.
+It happened in the evening, that he took Leah his daughter, and brought her to him. He went in to her.

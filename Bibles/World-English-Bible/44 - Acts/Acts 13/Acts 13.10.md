@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said, O full of all guile and all villany, thou son of the devil, thou enemy of all righteousness, wilt thou not cease to pervert the right ways of the Lord?
+and said, "Full of all deceit and all cunning, you son of the devil, you enemy of all righteousness, will you not cease to pervert the right ways of the Lord?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they two made a covenant before Jehovah: and David abode in the wood, and Jonathan went to his house.
+They both made a covenant before Yahweh: and David stayed in the woods, and Jonathan went to his house.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it is written, I will destroy the wisdom of the wise, And the discernment of the discerning will I bring to nought.
+For it is written, "I will destroy the wisdom of the wise, I will bring the discernment of the discerning to nothing."

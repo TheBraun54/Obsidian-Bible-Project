@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but now do ye also put them all away: anger, wrath, malice, railing, shameful speaking out of your mouth:
+but now you also put them all away: anger, wrath, malice, slander, and shameful speaking out of your mouth.

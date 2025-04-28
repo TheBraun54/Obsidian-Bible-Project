@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the living know that they shall die: but the dead know not anything, neither have they any more a reward; for the memory of them is forgotten.
+For the living know that they will die, but the dead don't know anything, neither do they have any more a reward; for the memory of them is forgotten.

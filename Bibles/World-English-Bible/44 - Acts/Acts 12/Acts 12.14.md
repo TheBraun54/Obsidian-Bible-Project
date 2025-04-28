@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when she knew Peter's voice, she opened not the gate for joy, but ran in, and told that Peter stood before the gate.
+When she recognized Peter's voice, she didn't open the gate for joy, but ran in, and reported that Peter was standing in front of the gate.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I say to the unmarried and to widows, It is good for them if they abide even as I.
+But I say to the unmarried and to widows, it is good for them if they remain even as I am.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of old have I known from thy testimonies, That thou hast founded them for ever.
+Of old I have known from your testimonies, that you have founded them forever. RESH

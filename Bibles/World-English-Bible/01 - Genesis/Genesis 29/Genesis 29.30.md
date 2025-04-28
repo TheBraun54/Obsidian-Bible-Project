@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went in also unto Rachel, and he loved also Rachel more than Leah, and served with him yet seven other years.
+He went in also to Rachel, and he loved also Rachel more than Leah, and served with him yet seven other years.

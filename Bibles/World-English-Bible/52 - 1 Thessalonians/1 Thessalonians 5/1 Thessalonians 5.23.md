@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the God of peace himself sanctify you wholly; and may your spirit and soul and body be preserved entire, without blame at the coming of our Lord Jesus Christ.
+May the God of peace himself sanctify you completely. May your whole spirit, soul, and body be preserved blameless at the coming of our Lord Jesus Christ.

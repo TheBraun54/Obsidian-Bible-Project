@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wise in heart shall be called prudent; And the sweetness of the lips increaseth learning.
+The wise in heart shall be called prudent. Pleasantness of the lips promotes instruction.

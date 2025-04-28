@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pure religion and undefiled before our God and Father is this, to visit the fatherless and widows in their affliction, [and] to keep oneself unspotted from the world.
+Pure religion and undefiled before our God and Father is this: to visit the fatherless and widows in their affliction, and to keep oneself unstained by the world.

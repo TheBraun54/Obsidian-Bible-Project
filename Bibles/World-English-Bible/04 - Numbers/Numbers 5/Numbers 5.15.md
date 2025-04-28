@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then shall the man bring his wife unto the priest, and shall bring her oblation for her, the tenth part of an ephah of barley meal; he shall pour no oil upon it, nor put frankincense thereon; for it is a meal-offering of jealousy, a meal-offering of memorial, bringing iniquity to remembrance.
+then the man shall bring his wife to the priest, and shall bring her offering for her: the tenth part of an ephah of barley meal. He shall pour no oil on it, nor put frankincense on it, for it is a meal offering of jealousy, a meal offering of memorial, bringing iniquity to memory.

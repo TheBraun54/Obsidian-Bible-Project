@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ask thee a sign of Jehovah thy God; ask it either in the depth, or in the height above.
+"Ask a sign of Yahweh your God; ask it either in the depth, or in the height above."

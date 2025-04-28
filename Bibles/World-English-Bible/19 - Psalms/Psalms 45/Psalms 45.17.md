@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will make thy name to be remembered in all generations: Therefore shall the peoples give thee thanks for ever and ever.
+I will make your name to be remembered in all generations. Therefore the peoples shall give you thanks forever and ever. For the Chief Musician. By the sons of Korah. According to Alamoth.

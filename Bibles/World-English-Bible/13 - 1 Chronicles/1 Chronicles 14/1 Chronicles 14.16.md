@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David did as God commanded him: and they smote the host of the Philistines from Gibeon even to Gezer.
+David did as God commanded him: and they struck the army of the Philistines from Gibeon even to Gezer.

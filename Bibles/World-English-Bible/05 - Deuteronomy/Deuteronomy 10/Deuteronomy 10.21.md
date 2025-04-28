@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He is thy praise, and he is thy God, that hath done for thee these great and terrible things, which thine eyes have seen.
+He is your praise, and he is your God, who has done for you these great and awesome things, which your eyes have seen.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they had the hands of a man under their wings on their four sides; and they four had their faces and their wings [thus] :
+They had the hands of a man under their wings on their four sides; and the four of them had their faces and their wings [thus]:

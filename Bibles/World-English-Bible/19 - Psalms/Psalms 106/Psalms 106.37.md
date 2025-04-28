@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, they sacrificed their sons and their daughters unto demons,
+Yes, they sacrificed their sons and their daughters to demons.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The way of an eagle in the air; The way of a serpent upon a rock; The way of a ship in the midst of the sea; And the way of a man with a maiden.
+The way of an eagle in the air; the way of a serpent on a rock; the way of a ship in the midst of the sea; and the way of a man with a maiden.

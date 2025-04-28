@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the sins of Jeroboam which he sinned, and wherewith he made Israel to sin, because of his provocation wherewith he provoked Jehovah, the God of Israel, to anger.
+for the sins of Jeroboam which he sinned, and with which he made Israel to sin, because of his provocation with which he provoked Yahweh, the God of Israel, to anger.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua said, Hereby ye shall know that the living God is among you, and that he will without fail drive out from before you the Canaanite, and the Hittite, and the Hivite, and the Perizzite, and the Girgashite, and the Amorite, and the Jebusite.
+Joshua said, "Hereby you shall know that the living God is among you, and that he will without fail drive the Canaanite, and the Hittite, and the Hivite, and the Perizzite, and the Girgashite, and the Amorite, and the Jebusite out from before you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let his days be few; [And] let another take his office.
+Let his days be few. Let another take his office.

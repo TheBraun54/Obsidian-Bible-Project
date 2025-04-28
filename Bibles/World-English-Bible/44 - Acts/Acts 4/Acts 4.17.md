@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But that it spread no further among the people, let us threaten them, that they speak henceforth to no man in this name.
+But so that this spreads no further among the people, let's threaten them, that from now on they don't speak to anyone in this name."

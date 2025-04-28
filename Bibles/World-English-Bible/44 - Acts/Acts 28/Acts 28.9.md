@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when this was done, the rest also that had diseases in the island came, and were cured:
+Then when this was done, the rest also who had diseases in the island came, and were cured.

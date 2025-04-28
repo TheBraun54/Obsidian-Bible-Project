@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went from thence to mount Carmel, and from thence he returned to Samaria.
+He went from there to Mount Carmel, and from there he returned to Samaria.

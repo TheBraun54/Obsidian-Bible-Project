@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because that he had been often bound with fetters and chains, and the chains had been rent asunder by him, and the fetters broken in pieces: and no man had strength to tame him.
+because he had been often bound with fetters and chains, and the chains had been torn apart by him, and the fetters broken in pieces. Nobody had the strength to tame him.

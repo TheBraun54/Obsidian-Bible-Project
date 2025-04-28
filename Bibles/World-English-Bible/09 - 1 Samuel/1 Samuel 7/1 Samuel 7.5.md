@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel said, Gather all Israel to Mizpah, and I will pray for you unto Jehovah.
+Samuel said, "Gather all Israel to Mizpah, and I will pray for you to Yahweh."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jehovah hath taken you, and brought you forth out of the iron furnace, out of Egypt, to be unto him a people of inheritance, as at this day.
+But Yahweh has taken you, and brought you forth out of the iron furnace, out of Egypt, to be to him a people of inheritance, as at this day.

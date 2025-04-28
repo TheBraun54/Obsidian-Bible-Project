@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the priest shall look; and, behold, if the scab be spread in the skin, then the priest shall pronounce him unclean: it is leprosy.
+The priest shall examine him; and behold, if the scab has spread on the skin, then the priest shall pronounce him unclean. It is leprosy.

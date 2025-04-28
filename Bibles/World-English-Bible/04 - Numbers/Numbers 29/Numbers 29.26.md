@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the fifth day nine bullocks, two rams, fourteen he-lambs a year old without blemish;
+"'On the fifth day nine bulls, two rams, fourteen male lambs a year old without blemish;

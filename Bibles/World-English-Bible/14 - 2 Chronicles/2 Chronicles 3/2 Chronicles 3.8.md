@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the most holy house: the length thereof, according to the breadth of the house, was twenty cubits, and the breadth thereof twenty cubits; and he overlaid it with fine gold, amounting to six hundred talents.
+He made the most holy house: its length, according to the breadth of the house, was twenty cubits, and its breadth twenty cubits; and he overlaid it with fine gold, amounting to six hundred talents.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the armed men went before the priests that blew the trumpets, and the rearward went after the ark, [the priests] blowing the trumpets as they went.
+The armed men went before the priests who blew the trumpets, and the ark went after them. The trumpets sounded as they went.

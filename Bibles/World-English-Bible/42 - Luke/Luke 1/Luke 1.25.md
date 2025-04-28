@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus hath the Lord done unto me in the days wherein he looked upon [me], to take away my reproach among men.
+"Thus has the Lord done to me in the days in which he looked at me, to take away my reproach among men."

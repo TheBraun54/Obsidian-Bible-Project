@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How is it broken down! [how] do they wail! how hath Moab turned the back with shame! so shall Moab become a derision and a terror to all that are round about him.
+How is it broken down! [how] do they wail! how has Moab turned the back with shame! so shall Moab become a derision and a terror to all who are around him.

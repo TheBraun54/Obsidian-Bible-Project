@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after these days we took up our baggage and went up to Jerusalem.
+After these days we took up our baggage and went up to Jerusalem.

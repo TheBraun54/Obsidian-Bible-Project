@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said unto him, I am the daughter of Bethuel the son of Milcah, whom she bare unto Nahor.
+She said to him, "I am the daughter of Bethuel the son of Milcah, whom she bore to Nahor."

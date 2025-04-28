@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And not even so did their witness agree together.
+Even so, their testimony did not agree.

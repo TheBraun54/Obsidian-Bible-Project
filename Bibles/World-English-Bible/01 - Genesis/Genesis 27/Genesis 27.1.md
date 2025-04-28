@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, that when Isaac was old, and his eyes were dim, so that he could not see, he called Esau his elder son, and said unto him, My son: and he said unto him, Here am I.
+It happened, that when Isaac was old, and his eyes were dim, so that he could not see, he called Esau his elder son, and said to him, "My son?" He said to him, "Here I am."

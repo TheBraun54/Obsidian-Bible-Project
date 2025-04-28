@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their bull gendereth, and faileth not; Their cow calveth, and casteth not her calf.
+Their bulls breed without fail. Their cows calve, and don't miscarry.

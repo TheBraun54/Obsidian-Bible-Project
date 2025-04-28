@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hearken unto thy father that begat thee, And despise not thy mother when she is old.
+Listen to your father who gave you life, and don't despise your mother when she is old.

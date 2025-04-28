@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it is no vain thing for you; because it is your life, and through this thing ye shall prolong your days in the land, whither ye go over the Jordan to possess it.
+For it is no vain thing for you; because it is your life, and through this thing you shall prolong your days in the land, where you go over the Jordan to possess it."

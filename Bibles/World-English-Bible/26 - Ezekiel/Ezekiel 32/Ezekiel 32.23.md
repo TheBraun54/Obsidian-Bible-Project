@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whose graves are set in the uttermost parts of the pit, and her company is round about her grave; all of them slain, fallen by the sword, who caused terror in the land of the living.
+whose graves are set in the uttermost parts of the pit, and her company is around her grave; all of them slain, fallen by the sword, who caused terror in the land of the living.

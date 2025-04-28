@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said he, Knowest thou wherefore I am come unto thee? and now will I return to fight with the prince of Persia: and when I go forth, lo, the prince of Greece shall come.
+Then he said, "Do you know why I have come to you? Now I will return to fight with the prince of Persia. When I go forth, behold, the prince of Greece shall come.

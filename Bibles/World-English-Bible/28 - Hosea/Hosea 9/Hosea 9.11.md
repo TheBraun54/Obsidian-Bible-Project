@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for Ephraim, their glory shall fly away like a bird: there shall be no birth, and none with child, and no conception.
+As for Ephraim, their glory will fly away like a bird. There will be no birth, none with child, and no conception.

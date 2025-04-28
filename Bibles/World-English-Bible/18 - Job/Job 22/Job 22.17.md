@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who said unto God, Depart from us; And, What can the Almighty do for us?
+who said to God, 'Depart from us;' and, 'What can the Almighty do for us?'

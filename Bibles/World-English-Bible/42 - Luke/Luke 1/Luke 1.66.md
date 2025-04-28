@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all that heard them laid them up in their heart, saying, What then shall this child be? For the hand of the Lord was with him.
+All who heard them laid them up in their heart, saying, "What then will this child be?" The hand of the Lord was with him.

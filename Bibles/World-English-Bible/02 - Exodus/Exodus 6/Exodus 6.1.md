@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Now shalt thou see what I will do to Pharaoh: for by a strong hand shall he let them go, and by a strong hand shall he drive them out of his land.
+Yahweh said to Moses, "Now you shall see what I will do to Pharaoh, for by a strong hand he shall let them go, and by a strong hand he shall drive them out of his land."

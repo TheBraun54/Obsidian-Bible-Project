@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I will punish them that dwell in the land of Egypt, as I have punished Jerusalem, by the sword, by the famine, and by the pestilence;
+For I will punish those who dwell in the land of Egypt, as I have punished Jerusalem, by the sword, by the famine, and by the pestilence;

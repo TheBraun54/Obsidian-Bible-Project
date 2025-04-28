@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came in the magicians, the enchanters, the Chaldeans, and the soothsayers; and I told the dream before them; but they did not make known unto me the interpretation thereof.
+Then came in the magicians, the enchanters, the Chaldeans, and the soothsayers; and I told the dream before them; but they did not make known to me its interpretation.

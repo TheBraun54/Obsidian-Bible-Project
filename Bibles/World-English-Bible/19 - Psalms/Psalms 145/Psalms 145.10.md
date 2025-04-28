@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All thy works shall give thanks unto thee, O Jehovah; And thy saints shall bless thee.
+All your works will give thanks to you, Yahweh. Your saints will extol you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah unto me, Go, and buy thee a linen girdle, and put it upon thy loins, and put it not in water.
+Thus says Yahweh to me, Go, and buy yourself a linen belt, and put it on your waist, and don't put it in water.

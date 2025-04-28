@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will give great thanks unto Jehovah with my mouth; Yea, I will praise him among the multitude.
+I will give great thanks to Yahweh with my mouth. Yes, I will praise him among the multitude.

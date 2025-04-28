@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast loved righteousness, and hated iniquity; Therefore God, thy God, hath anointed thee With the oil of gladness above thy fellows.
+You have loved righteousness, and hated iniquity; therefore God, your God, has anointed you with the oil of gladness above your fellows."

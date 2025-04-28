@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now I will not be unto the remnant of this people as in the former days, saith Jehovah of hosts.
+But now I will not be to the remnant of this people as in the former days," says Yahweh of Armies.

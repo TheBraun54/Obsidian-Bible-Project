@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then his brethren and all the house of his father came down, and took him, and brought him up, and buried him between Zorah and Eshtaol in the burying-place of Manoah his father. And he judged Israel twenty years.
+Then his brothers and all the house of his father came down, and took him, and brought him up, and buried him between Zorah and Eshtaol in the burial site of Manoah his father. He judged Israel twenty years.

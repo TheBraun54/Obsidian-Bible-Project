@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he returned, and walked in the house once to and fro; and went up, and stretched himself upon him: and the child sneezed seven times, and the child opened his eyes.
+Then he returned, and walked in the house once back and forth; and went up, and stretched himself on him. Then the child sneezed seven times, and the child opened his eyes.

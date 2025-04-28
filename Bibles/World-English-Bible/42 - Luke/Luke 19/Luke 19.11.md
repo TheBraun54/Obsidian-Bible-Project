@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as they heard these things, he added and spake a parable, because he was nigh to Jerusalem, and [because] they supposed that the kingdom of God was immediately to appear.
+As they heard these things, he went on and told a parable, because he was near Jerusalem, and they supposed that the Kingdom of God would be revealed immediately.

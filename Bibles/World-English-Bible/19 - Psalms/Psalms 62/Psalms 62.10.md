@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Trust not in oppression, And become not vain in robbery: If riches increase, set not your heart [thereon] .
+Don't trust in oppression. Don't become vain in robbery. If riches increase, don't set your heart on them.

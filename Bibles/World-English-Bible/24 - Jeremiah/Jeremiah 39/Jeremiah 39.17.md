@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I will deliver thee in that day, saith Jehovah; and thou shalt not be given into the hand of the men of whom thou art afraid.
+But I will deliver you in that day, says Yahweh; and you shall not be given into the hand of the men of whom you are afraid.

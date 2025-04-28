@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Azor begat Sadoc; and Sadoc begat Achim; and Achim begat Eliud;
+Azor became the father of Sadoc. Sadoc became the father of Achim. Achim became the father of Eliud.

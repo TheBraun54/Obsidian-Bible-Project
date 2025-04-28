@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All things are lawful for me; but not all things are expedient. All things are lawful for me; but I will not be brought under the power of any.
+"All things are lawful for me," but not all things are expedient. "All things are lawful for me," but I will not be brought under the power of anything.

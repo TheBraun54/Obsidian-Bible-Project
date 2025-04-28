@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For let not wrath stir thee up against chastisements; Neither let the greatness of the ransom turn thee aside.
+Don't let riches entice you to wrath, neither let the great size of a bribe turn you aside.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now, my son, Jehovah be with thee; and prosper thou, and build the house of Jehovah thy God, as he hath spoken concerning thee.
+Now, my son, may Yahweh be with you and prosper you, and build the house of Yahweh your God, as he has spoken concerning you.

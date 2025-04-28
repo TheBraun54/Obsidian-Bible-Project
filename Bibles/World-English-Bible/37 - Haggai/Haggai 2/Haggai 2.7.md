@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will shake all nations; and the precious things of all nations shall come; and I will fill this house with glory, saith Jehovah of hosts.
+and I will shake all nations. The precious things of all nations will come, and I will fill this house with glory, says Yahweh of Armies.

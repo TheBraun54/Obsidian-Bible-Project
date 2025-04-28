@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Amorites, that dwelt in that hill-country, came out against you, and chased you, as bees do, and beat you down in Seir, even unto Hormah.
+The Amorites, who lived in that hill country, came out against you, and chased you, as bees do, and beat you down in Seir, even to Hormah.

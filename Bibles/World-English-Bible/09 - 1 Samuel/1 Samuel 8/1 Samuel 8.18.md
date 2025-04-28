@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall cry out in that day because of your king whom ye shall have chosen you; and Jehovah will not answer you in that day.
+You shall cry out in that day because of your king whom you shall have chosen you; and Yahweh will not answer you in that day."

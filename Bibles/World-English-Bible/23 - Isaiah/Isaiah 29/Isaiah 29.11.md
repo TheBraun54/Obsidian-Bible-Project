@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all vision is become unto you as the words of a book that is sealed, which men deliver to one that is learned, saying, Read this, I pray thee; and he saith, I cannot, for it is sealed:
+All vision has become to you like the words of a book that is sealed, which men deliver to one who is educated, saying, "Read this, please;" and he says, "I can't, for it is sealed:"

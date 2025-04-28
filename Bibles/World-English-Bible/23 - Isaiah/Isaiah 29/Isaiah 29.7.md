@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the multitude of all the nations that fight against Ariel, even all that fight against her and her stronghold, and that distress her, shall be as a dream, a vision of the night.
+The multitude of all the nations that fight against Ariel, even all who fight against her and her stronghold, and who distress her, will be like a dream, a vision of the night.

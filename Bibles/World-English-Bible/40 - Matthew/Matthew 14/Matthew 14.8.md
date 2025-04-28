@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she, being put forward by her mother, saith, Give me here on a platter the head of John the Baptist.
+She, being prompted by her mother, said, "Give me here on a platter the head of John the Baptizer."

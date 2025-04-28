@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the law having a shadow of the good [things] to come, not the very image of the things, can never with the same sacrifices year by year, which they offer continually, make perfect them that draw nigh.
+For the law, having a shadow of the good to come, not the very image of the things, can never with the same sacrifices year by year, which they offer continually, make perfect those who draw near.

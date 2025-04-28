@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Show me the tribute money. And they brought unto him a denarius.
+Show me the tax money." They brought to him a denarius.

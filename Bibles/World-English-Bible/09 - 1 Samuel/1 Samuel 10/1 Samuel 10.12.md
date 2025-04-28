@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one of the same place answered and said, And who is their father? Therefore it became a proverb, Is Saul also among the prophets?
+One of the same place answered, "Who is their father?" Therefore it became a proverb, "Is Saul also among the prophets?"

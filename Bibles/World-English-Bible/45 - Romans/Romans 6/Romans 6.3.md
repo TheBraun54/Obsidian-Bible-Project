@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or are ye ignorant that all we who were baptized into Christ Jesus were baptized into his death?
+Or don't you know that all we who were baptized into Christ Jesus were baptized into his death?

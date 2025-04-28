@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The reward of humility [and] the fear of Jehovah [Is] riches, and honor, and life.
+The result of humility and the fear of Yahweh is wealth, honor, and life.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed is the man that doeth this, and the son of man that holdeth it fast; that keepeth the sabbath from profaning it, and keepeth his hand from doing any evil.
+Blessed is the man who does this, and the son of man who holds it fast; who keeps the Sabbath from profaning it, and keeps his hand from doing any evil."

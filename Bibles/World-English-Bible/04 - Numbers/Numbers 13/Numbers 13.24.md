@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That place was called the valley of Eshcol, because of the cluster which the children of Israel cut down from thence.
+That place was called the valley of Eshcol, because of the cluster which the children of Israel cut down from there.

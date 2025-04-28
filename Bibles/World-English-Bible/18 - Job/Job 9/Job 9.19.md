@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If [we speak] of strength, lo, [he is] mighty! And if of justice, Who, [saith he], will summon me?
+If it is a matter of strength, behold, he is mighty! If of justice, 'Who,' says he, 'will summon me?'

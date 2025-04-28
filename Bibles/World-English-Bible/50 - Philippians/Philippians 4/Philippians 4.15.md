@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye yourselves also know, ye Philippians, that in the beginning of the gospel, when I departed from Macedonia, no church had fellowship with me in the matter of giving and receiving but ye only;
+You yourselves also know, you Philippians, that in the beginning of the Good News, when I departed from Macedonia, no assembly shared with me in the matter of giving and receiving but you only.

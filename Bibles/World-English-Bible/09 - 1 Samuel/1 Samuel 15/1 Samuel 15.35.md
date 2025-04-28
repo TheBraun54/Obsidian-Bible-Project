@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel came no more to see Saul until the day of his death; for Samuel mourned for Saul: and Jehovah repented that he had made Saul king over Israel.
+Samuel came no more to see Saul until the day of his death; for Samuel mourned for Saul: and Yahweh grieved that he had made Saul king over Israel.

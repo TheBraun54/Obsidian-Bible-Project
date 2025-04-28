@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let all bitterness, and wrath, and anger, and clamor, and railing, be put away from you, with all malice:
+Let all bitterness, wrath, anger, outcry, and slander, be put away from you, with all malice.

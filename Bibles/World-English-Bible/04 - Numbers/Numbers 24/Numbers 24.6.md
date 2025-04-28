@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As valleys are they spread forth, As gardens by the river-side, As lign-aloes which Jehovah hath planted, As cedar-trees beside the waters.
+As valleys they are spread forth, as gardens by the riverside, as aloes which Yahweh has planted, as cedar trees beside the waters.

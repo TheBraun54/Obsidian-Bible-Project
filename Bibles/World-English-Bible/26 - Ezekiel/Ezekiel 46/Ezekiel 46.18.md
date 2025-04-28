@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover the prince shall not take of the people's inheritance, to thrust them out of their possession; he shall give inheritance to his sons out of his own possession, that my people be not scattered every man from his possession.
+Moreover the prince shall not take of the people's inheritance, to thrust them out of their possession; he shall give inheritance to his sons out of his own possession, that my people not be scattered every man from his possession.

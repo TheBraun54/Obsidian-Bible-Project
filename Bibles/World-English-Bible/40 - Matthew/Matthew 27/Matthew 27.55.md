@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And many women were there beholding from afar, who had followed Jesus from Galilee, ministering unto him:
+Many women were there watching from afar, who had followed Jesus from Galilee, serving him.

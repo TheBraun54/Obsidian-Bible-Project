@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The king's daughter within [the palace] is all glorious: Her clothing is inwrought with gold.
+The princess inside is all glorious. Her clothing is interwoven with gold.

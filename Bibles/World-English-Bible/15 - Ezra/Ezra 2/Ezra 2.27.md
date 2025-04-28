@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The men of Michmas, a hundred twenty and two.
+The men of Michmas, one hundred twenty-two.

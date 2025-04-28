@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the morrow, when they were come out from Bethany, he hungered.
+The next day, when they had come out from Bethany, he was hungry.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the east side, between Hauran and Damascus and Gilead, and the land of Israel, shall be the Jordan; from the [north] border unto the east sea shall ye measure. This is the east side.
+The east side, between Hauran and Damascus and Gilead, and the land of Israel, shall be the Jordan; from the [north] border to the east sea you shall measure. This is the east side.

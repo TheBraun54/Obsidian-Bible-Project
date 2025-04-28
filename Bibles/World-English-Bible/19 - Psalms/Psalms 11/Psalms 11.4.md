@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is in his holy temple; Jehovah, his throne is in heaven; His eyes behold, his eyelids try, the children of men.
+Yahweh is in his holy temple. Yahweh is on his throne in heaven. His eyes observe. His eyes examine the children of men.

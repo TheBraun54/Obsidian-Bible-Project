@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and in all the mighty hand, and in all the great terror, which Moses wrought in the sight of all Israel.
+and in all the mighty hand, and in all the great terror, which Moses worked in the sight of all Israel.

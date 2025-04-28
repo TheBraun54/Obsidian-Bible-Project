@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the ark of Jehovah was in the country of the Philistines seven months.
+The ark of Yahweh was in the country of the Philistines seven months.

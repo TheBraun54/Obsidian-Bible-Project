@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take heed unto yourselves, and to all the flock, in which the Holy Spirit hath made you bishops, to feed the church of the Lord which he purchased with his own blood.
+Take heed, therefore, to yourselves, and to all the flock, in which the Holy Spirit has made you overseers, to shepherd the assembly of the Lord and God which he purchased with his own blood.

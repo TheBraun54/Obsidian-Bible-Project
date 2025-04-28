@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-or saith he it assuredly for our sake? Yea, for our sake it was written: because he that ploweth ought to plow in hope, and he that thresheth, [to thresh] in hope of partaking.
+or does he say it assuredly for our sake? Yes, it was written for our sake, because he who plows ought to plow in hope, and he who threshes in hope should partake of his hope.

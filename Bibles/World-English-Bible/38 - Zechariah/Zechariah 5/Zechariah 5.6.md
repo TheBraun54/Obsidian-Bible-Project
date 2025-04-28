@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I said, What is it? And he said, This is the ephah that goeth forth. He said moreover, This is their appearance in all the land
+I said, "What is it?" He said, "This is the ephah basket that is appearing." He said moreover, "This is their appearance in all the land

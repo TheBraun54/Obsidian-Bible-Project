@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Jesus had finished these parables, he departed thence.
+It happened that when Jesus had finished these parables, he departed from there.

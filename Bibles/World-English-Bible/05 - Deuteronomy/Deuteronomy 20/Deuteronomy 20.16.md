@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But of the cities of these peoples, that Jehovah thy God giveth thee for an inheritance, thou shalt save alive nothing that breatheth;
+But of the cities of these peoples, that Yahweh your God gives you for an inheritance, you shall save alive nothing that breathes;

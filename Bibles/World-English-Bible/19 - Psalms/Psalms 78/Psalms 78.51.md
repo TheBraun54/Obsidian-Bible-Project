@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And smote all the first-born in Egypt, The chief of their strength in the tents of Ham.
+and struck all the firstborn in Egypt, the chief of their strength in the tents of Ham.

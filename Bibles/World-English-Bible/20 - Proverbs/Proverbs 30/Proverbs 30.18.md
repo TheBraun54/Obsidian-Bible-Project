@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There are three things which are too wonderful for me, Yea, four which I know not:
+"There are three things which are too amazing for me, four which I don't understand:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In thoughts from the visions of the night, When deep sleep falleth on men,
+In thoughts from the visions of the night, when deep sleep falls on men,

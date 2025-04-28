@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How much less shall I answer him, And choose out my words [to reason] with him?
+How much less shall I answer him, And choose my words to argue with him?

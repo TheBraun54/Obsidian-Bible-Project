@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall give three cities beyond the Jordan, and three cities shall ye give in the land of Canaan; they shall be cities of refuge.
+You shall give three cities beyond the Jordan, and you shall give three cities in the land of Canaan; they shall be cities of refuge.

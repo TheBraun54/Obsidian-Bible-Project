@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went to bury her; but they found no more of her than the skull, and the feet, and the palms of her hands.
+They went to bury her; but they found no more of her than the skull, and the feet, and the palms of her hands.

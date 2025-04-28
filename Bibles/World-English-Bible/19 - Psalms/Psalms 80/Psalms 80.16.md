@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is burned with fire, it is cut down: They perish at the rebuke of thy countenance.
+It's burned with fire. It's cut down. They perish at your rebuke.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And those of you that escape shall remember me among the nations whither they shall be carried captive, how that I have been broken with their lewd heart, which hath departed from me, and with they eyes, which play the harlot after their idols: and they shall loathe themselves in their own sight for the evils which they have committed in all their abominations.
+Those of you that escape shall remember me among the nations where they shall be carried captive, how that I have been broken with their lewd heart, which has departed from me, and with their eyes, which play the prostitute after their idols: and they shall loathe themselves in their own sight for the evils which they have committed in all their abominations.

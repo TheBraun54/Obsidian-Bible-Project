@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this cause the Jews seized me in the temple, and assayed to kill me.
+For this reason the Jews seized me in the temple, and tried to kill me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though he fall, he shall not be utterly cast down; For Jehovah upholdeth him with his hand.
+Though he stumble, he shall not fall, for Yahweh holds him up with his hand.

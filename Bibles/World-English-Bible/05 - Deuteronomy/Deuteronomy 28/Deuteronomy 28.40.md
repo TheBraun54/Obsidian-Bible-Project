@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt have olive-trees throughout all thy borders, but thou shalt not anoint thyself with the oil; for thine olive shall cast [its fruit] .
+You shall have olive trees throughout all your borders, but you shall not anoint yourself with the oil; for your olive shall cast [its fruit].

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Saying], Touch not mine anointed ones, And do my prophets no harm.
+"Don't touch my anointed ones! Do my prophets no harm!"

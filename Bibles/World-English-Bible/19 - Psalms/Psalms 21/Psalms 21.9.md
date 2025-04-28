@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou wilt make them as a fiery furnace in the time of thine anger: Jehovah will swallow them up in his wrath, And the fire shall devour them.
+You will make them as a fiery furnace in the time of your anger. Yahweh will swallow them up in his wrath. The fire shall devour them.

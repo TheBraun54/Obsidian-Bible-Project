@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if thou say unto me, We trust in Jehovah our God: is not that he, whose high places and whose altars Hezekiah hath taken away, and hath said to Judah and to Jerusalem, Ye shall worship before this altar?
+But if you tell me, 'We trust in Yahweh our God,' isn't that he whose high places and whose altars Hezekiah has taken away, and has said to Judah and to Jerusalem, 'You shall worship before this altar?'"

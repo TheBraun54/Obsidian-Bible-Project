@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said to the judges, Consider what ye do: for ye judge not for man, but for Jehovah; and [he is] with you in the judgment.
+and said to the judges, "Consider what you do: for you don't judge for man, but for Yahweh; and [he is] with you in the judgment.

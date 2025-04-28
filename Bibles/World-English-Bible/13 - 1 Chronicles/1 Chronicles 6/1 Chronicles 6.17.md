@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the names of the sons of Gershom: Libni and Shimei.
+These are the names of the sons of Gershom: Libni and Shimei.

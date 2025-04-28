@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit doth not one stretch out the hand in his fall? Or in his calamity therefore cry for help?
+"However doesn't one stretch out a hand in his fall? Or in his calamity therefore cry for help?

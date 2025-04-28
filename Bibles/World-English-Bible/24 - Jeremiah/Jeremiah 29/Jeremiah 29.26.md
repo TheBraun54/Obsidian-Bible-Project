@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath made thee priest in the stead of Jehoiada the priest, that there may be officers in the house of Jehovah, for every man that is mad, and maketh himself a prophet, that thou shouldest put him in the stocks and in shackles.
+Yahweh has made you priest in the place of Jehoiada the priest, that there may be officers in the house of Yahweh, for every man who is mad, and makes himself a prophet, that you should put him in the stocks and in shackles.

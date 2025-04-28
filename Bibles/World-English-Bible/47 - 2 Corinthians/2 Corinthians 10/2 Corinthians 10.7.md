@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye look at the things that are before your face. If any man trusteth in himself that he is Christ's, let him consider this again with himself, that, even as he is Christ's, so also are we.
+Do you look at things only as they appear in front of your face? If anyone trusts in himself that he is Christ's, let him consider this again with himself, that, even as he is Christ's, so also we are Christ's.

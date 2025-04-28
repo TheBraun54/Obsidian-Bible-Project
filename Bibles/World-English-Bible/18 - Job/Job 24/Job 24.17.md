@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the morning is to all of them as thick darkness; For they know the terrors of the thick darkness.
+For the morning is to all of them like thick darkness, for they know the terrors of the thick darkness.

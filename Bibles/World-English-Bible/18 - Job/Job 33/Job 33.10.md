@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, he findeth occasions against me, He counteth me for his enemy:
+Behold, he finds occasions against me. He counts me for his enemy.

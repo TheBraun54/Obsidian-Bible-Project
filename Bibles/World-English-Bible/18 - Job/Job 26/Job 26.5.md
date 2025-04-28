@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that are deceased tremble Beneath the waters and the inhabitants thereof.
+"Those who are deceased tremble, those beneath the waters and all that live in them.

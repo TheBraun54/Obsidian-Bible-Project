@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And sometimes the cloud was a few days upon the tabernacle; then according to the commandment of Jehovah they remained encamped, and according to the commandment of Jehovah they journeyed.
+Sometimes the cloud was a few days on the tabernacle; then according to the commandment of Yahweh they remained encamped, and according to the commandment of Yahweh they traveled.

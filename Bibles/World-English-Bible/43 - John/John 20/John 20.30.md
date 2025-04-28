@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Many other signs therefore did Jesus in the presence of the disciples, which are not written in this book:
+Therefore Jesus did many other signs in the presence of his disciples, which are not written in this book;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the path of the righteous is as the dawning light, That shineth more and more unto the perfect day.
+But the path of the righteous is like the dawning light, that shines more and more until the perfect day.

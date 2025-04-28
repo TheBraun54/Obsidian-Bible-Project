@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How then can man be just with God? Or how can he be clean that is born of a woman?
+How then can man be just with God? Or how can he who is born of a woman be clean?

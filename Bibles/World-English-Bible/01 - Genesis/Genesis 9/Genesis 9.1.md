@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God blessed Noah and his sons, and said unto them, Be fruitful, and multiply, and replenish the earth.
+God blessed Noah and his sons, and said to them, "Be fruitful, and multiply, and replenish the earth.

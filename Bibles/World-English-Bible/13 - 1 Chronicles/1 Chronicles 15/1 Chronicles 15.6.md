@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-of the sons of Merari, Asaiah the chief, and his brethren two hundred and twenty;
+of the sons of Merari, Asaiah the chief, and his brothers two hundred twenty;

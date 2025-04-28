@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the other cherub was ten cubits: both the cherubim were of one measure and one form.
+The other cherub was ten cubits: both the cherubim were of one measure and one form.

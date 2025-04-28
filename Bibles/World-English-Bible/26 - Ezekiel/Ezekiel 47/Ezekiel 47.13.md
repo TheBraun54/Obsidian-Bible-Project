@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord Jehovah: This shall be the border, whereby ye shall divide the land for inheritance according to the twelve tribes of Israel: Joseph [shall have two] portions.
+Thus says the Lord Yahweh: This shall be the border, by which you shall divide the land for inheritance according to the twelve tribes of Israel: Joseph [shall have two] portions.

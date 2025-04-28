@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be surety for thy servant for good: Let not the proud oppress me.
+Ensure your servant's well-being. Don't let the proud oppress me.

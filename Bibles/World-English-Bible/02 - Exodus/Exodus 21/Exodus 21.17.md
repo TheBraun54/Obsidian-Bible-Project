@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that curseth his father or his mother, shall surely be put to death.
+"Anyone who curses his father or his mother shall surely be put to death.

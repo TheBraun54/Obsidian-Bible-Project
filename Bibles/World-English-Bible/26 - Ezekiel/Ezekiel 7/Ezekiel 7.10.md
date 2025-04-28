@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the day, behold, it cometh: thy doom is gone forth; the rod hath blossomed, pride hath budded.
+Behold, the day, behold, it comes: your doom is gone forth; the rod has blossomed, pride has budded.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Which of the prophets did not your fathers persecute? and they killed them that showed before of the coming of the Righteous One; of whom ye have now become betrayers and murderers;
+Which of the prophets didn't your fathers persecute? They killed those who foretold the coming of the Righteous One, of whom you have now become betrayers and murderers.

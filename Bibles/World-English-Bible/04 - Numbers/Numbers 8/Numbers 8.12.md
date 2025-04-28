@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Levites shall lay their hands upon the heads of the bullocks: and offer thou the one for a sin-offering, and the other for a burnt-offering, unto Jehovah, to make atonement for the Levites.
+"The Levites shall lay their hands on the heads of the bulls, and you shall offer the one for a sin offering, and the other for a burnt offering to Yahweh, to make atonement for the Levites.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And again he sent unto them another servant; and him they wounded in the head, and handled shamefully.
+Again, he sent another servant to them; and they threw stones at him, wounded him in the head, and sent him away shamefully treated.

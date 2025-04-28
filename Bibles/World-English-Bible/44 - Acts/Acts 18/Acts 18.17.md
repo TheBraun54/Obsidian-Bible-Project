@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they all laid hold on Sosthenes, the ruler of the synagogue, and beat him before the judgment-seat. And Gallio cared for none of these things.
+Then all the Greeks laid hold on Sosthenes, the ruler of the synagogue, and beat him before the judgment seat. Gallio didn't care about any of these things.

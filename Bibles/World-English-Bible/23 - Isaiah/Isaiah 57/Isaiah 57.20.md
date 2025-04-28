@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the wicked are like the troubled sea; for it cannot rest, and its waters cast up mire and dirt.
+But the wicked are like the troubled sea; for it can't rest, and its waters cast up mire and dirt.

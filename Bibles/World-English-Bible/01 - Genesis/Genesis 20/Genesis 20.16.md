@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto Sarah he said, Behold, I have given thy brother a thousand pieces of silver: behold, it is for thee a covering of the eyes to all that are with thee; and in respect of all thou art righted.
+To Sarah he said, "Behold, I have given your brother a thousand pieces of silver. Behold, it is for you a covering of the eyes to all that are with you. In front of all you are vindicated."

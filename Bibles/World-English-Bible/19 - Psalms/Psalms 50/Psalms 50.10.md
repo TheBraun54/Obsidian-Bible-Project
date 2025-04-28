@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For every beast of the forest is mine, And the cattle upon a thousand hills.
+For every animal of the forest is mine, and the livestock on a thousand hills.

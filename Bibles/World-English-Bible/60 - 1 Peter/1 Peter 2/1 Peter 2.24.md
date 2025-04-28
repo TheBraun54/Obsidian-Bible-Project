@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who his own self bare our sins in his body upon the tree, that we, having died unto sins, might live unto righteousness; by whose stripes ye were healed.
+who his own self bore our sins in his body on the tree, that we, having died to sins, might live to righteousness; by whose stripes you were healed.

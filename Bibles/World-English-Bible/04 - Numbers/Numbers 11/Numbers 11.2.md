@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people cried unto Moses; and Moses prayed unto Jehovah, and the fire abated.
+The people cried to Moses; and Moses prayed to Yahweh, and the fire abated.

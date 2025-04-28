@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For according to their power, I bear witness, yea and beyond their power, [they gave] of their own accord,
+For according to their power, I testify, yes and beyond their power, they gave of their own accord,

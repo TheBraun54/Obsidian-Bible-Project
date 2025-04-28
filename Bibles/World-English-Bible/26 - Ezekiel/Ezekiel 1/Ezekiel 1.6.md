@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every one had four faces, and every one of them had four wings.
+Everyone had four faces, and each one of them had four wings.

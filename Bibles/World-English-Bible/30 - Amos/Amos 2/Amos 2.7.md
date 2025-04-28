@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-they that pant after the dust of the earth on the head of the poor, and turn aside the way of the meek: and a man and his father go unto the [same] maiden, to profane my holy name:
+They trample on the dust of the earth on the head of the poor, and deny justice to the oppressed; and a man and his father use the same maiden, to profane my holy name;

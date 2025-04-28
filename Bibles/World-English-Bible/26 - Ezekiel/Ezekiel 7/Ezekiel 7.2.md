@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou, son of man, thus saith the Lord Jehovah unto the land of Israel, An end: the end is come upon the four corners of the land.
+You, son of man, thus says the Lord Yahweh to the land of Israel, An end: the end is come on the four corners of the land.

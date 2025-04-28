@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah discomfited Sisera, and all his chariots, and all his host, with the edge of the sword before Barak; and Sisera alighted from his chariot, and fled away on his feet.
+Yahweh confused Sisera, and all his chariots, and all his army, with the edge of the sword before Barak; and Sisera alighted from his chariot, and fled away on his feet.

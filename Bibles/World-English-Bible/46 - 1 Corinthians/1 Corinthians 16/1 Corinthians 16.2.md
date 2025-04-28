@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Upon the first day of the week let each one of you lay by him in store, as he may prosper, that no collections be made when I come.
+On the first day of the week, let each one of you save, as he may prosper, that no collections be made when I come.

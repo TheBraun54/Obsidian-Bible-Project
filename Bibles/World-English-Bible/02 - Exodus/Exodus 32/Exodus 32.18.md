@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, It is not the voice of them that shout for mastery, neither is it the voice of them that cry for being overcome; but the noise of them that sing do I hear.
+He said, "It isn't the voice of those who shout for victory, neither is it the voice of those who cry for being overcome; but the noise of those who sing that I hear."

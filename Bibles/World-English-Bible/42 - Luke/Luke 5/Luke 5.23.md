@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Which is easier, to say, Thy sins are forgiven thee; or to say, Arise and walk?
+Which is easier to say, 'Your sins are forgiven you;' or to say, 'Arise and walk?'

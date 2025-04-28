@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but the seventh day is a sabbath unto Jehovah thy God: [in it] thou shalt not do any work, thou, nor thy son, nor thy daughter, nor thy man-servant, nor thy maid-servant, nor thine ox, nor thine ass, nor any of thy cattle, nor thy stranger that is within thy gates; that thy man-servant and thy maid-servant may rest as well as thou.
+but the seventh day is a Sabbath to Yahweh your God, in which you shall not do any work, you, nor your son, nor your daughter, nor your male servant, nor your female servant, nor your ox, nor your donkey, nor any of your livestock, nor your stranger who is within your gates; that your male servant and your female servant may rest as well as you.

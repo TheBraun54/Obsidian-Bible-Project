@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when David was a little past the top [of the ascent], behold, Ziba the servant of Mephibosheth met him, with a couple of asses saddled, and upon them two hundred loaves of bread, and a hundred clusters of raisins, and a hundred of summer fruits, and a bottle of wine.
+When David was a little past the top [of the ascent], behold, Ziba the servant of Mephibosheth met him, with a couple of donkeys saddled, and on them two hundred loaves of bread, and one hundred clusters of raisins, and one hundred summer fruits, and a bottle of wine.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the day was now far spent, his disciples came unto him, and said, The place is desert, and the day is now far spent;
+When it was late in the day, his disciples came to him, and said, "This place is deserted, and it is late in the day.

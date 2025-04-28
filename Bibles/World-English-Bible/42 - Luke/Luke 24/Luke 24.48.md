@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye are witnesses of these things.
+You are witnesses of these things.

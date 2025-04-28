@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ It is] as [when] a man, sojourning in another country, having left his house, and given authority to his servants, to each one his work, commanded also the porter to watch.
+"It is like a man, traveling to another country, having left his house, and given authority to his servants, and to each one his work, and also commanded the doorkeeper to keep watch.

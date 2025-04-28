@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the people shall dwell in Zion at Jerusalem; thou shalt weep no more; he will surely be gracious unto thee at the voice of thy cry; when he shall hear, he will answer thee.
+For the people will dwell in Zion at Jerusalem. You will weep no more. He will surely be gracious to you at the voice of your cry. When he hears you, he will answer you.

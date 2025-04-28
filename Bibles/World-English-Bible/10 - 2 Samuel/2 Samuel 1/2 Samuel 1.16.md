@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said unto him, Thy blood be upon thy head; for thy mouth hath testified against thee, saying, I have slain Jehovah's anointed.
+David said to him, "Your blood be on your head; for your mouth has testified against you, saying, 'I have slain Yahweh's anointed.'"

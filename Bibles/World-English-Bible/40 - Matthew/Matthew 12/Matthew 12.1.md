@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At that season Jesus went on the sabbath day through the grainfields; and his disciples were hungry and began to pluck ears and to eat.
+At that time, Jesus went on the Sabbath day through the grain fields. His disciples were hungry and began to pluck heads of grain and to eat.

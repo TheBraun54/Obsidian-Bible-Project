@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the hand of Midian prevailed against Israel; and because of Midian the children of Israel made them the dens which are in the mountains, and the caves, and the strongholds.
+The hand of Midian prevailed against Israel; and because of Midian the children of Israel made them the dens which are in the mountains, and the caves, and the strongholds.

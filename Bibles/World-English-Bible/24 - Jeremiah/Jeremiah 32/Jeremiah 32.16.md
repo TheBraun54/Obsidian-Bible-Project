@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now after I had delivered the deed of the purchase unto Baruch the son of Neriah, I prayed unto Jehovah, saying,
+Now after I had delivered the deed of the purchase to Baruch the son of Neriah, I prayed to Yahweh, saying,

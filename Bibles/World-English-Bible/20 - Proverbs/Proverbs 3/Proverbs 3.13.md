@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Happy is the man that findeth wisdom, And the man that getteth understanding.
+Happy is the man who finds wisdom, the man who gets understanding.

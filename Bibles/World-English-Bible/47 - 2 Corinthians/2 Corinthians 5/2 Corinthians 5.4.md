@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For indeed we that are in this tabernacle do groan, being burdened; not for that we would be unclothed, but that we would be clothed upon, that what is mortal may be swallowed up of life.
+For indeed we who are in this tent do groan, being burdened; not that we desire to be unclothed, but that we desire to be clothed, that what is mortal may be swallowed up by life.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou, O Jehovah, wilt abide for ever; And thy memorial [name] unto all generations.
+But you, Yahweh, will remain forever; your renown endures to all generations.

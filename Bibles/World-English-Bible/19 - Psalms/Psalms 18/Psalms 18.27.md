@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou wilt save the afflicted people; But the haughty eyes thou wilt bring down.
+For you will save the afflicted people, but the haughty eyes you will bring down.

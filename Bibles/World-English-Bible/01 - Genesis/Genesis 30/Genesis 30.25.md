@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Rachel had borne Joseph, that Jacob said unto Laban, Send me away, that I may go unto mine own place, and to my country.
+It happened, when Rachel had borne Joseph, that Jacob said to Laban, "Send me away, that I may go to my own place, and to my country.

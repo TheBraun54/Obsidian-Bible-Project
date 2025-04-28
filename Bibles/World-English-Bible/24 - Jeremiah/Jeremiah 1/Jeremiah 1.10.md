@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-see, I have this day set thee over the nations and over the kingdoms, to pluck up and to break down and to destroy and to overthrow, to build and to plant.
+Behold, I have this day set you over the nations and over the kingdoms, to pluck up and to break down and to destroy and to overthrow, to build and to plant."

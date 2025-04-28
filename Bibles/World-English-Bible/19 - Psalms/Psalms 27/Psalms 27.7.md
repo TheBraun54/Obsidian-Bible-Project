@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear, O Jehovah, when I cry with my voice: Have mercy also upon me, and answer me.
+Hear, Yahweh, when I cry with my voice. Have mercy also on me, and answer me.

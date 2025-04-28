@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is a crying in the streets because of the wine; all joy is darkened, the mirth of the land is gone.
+There is a crying in the streets because of the wine. All joy is darkened. The mirth of the land is gone.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the Father loveth the Son, and showeth him all things that himself doeth: and greater works than these will he show him, that ye may marvel.
+For the Father has affection for the Son, and shows him all things that he himself does. He will show him greater works than these, that you may marvel.

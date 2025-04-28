@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, as Jehovah liveth, who saveth Israel, though it be in Jonathan my son, he shall surely die. But there was not a man among all the people that answered him.
+For, as Yahweh lives, who saves Israel, though it is in Jonathan my son, he shall surely die." But there was not a man among all the people who answered him.

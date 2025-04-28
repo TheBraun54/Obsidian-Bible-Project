@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the second day [ye shall offer] twelve young bullocks, two rams, fourteen he-lambs a year old without blemish;
+"'On the second day [you shall offer] twelve young bulls, two rams, fourteen male lambs a year old without blemish;

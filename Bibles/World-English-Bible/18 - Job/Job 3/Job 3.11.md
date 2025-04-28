@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why died I not from the womb? Why did I not give up the ghost when my mother bare me?
+"Why didn't I die from the womb? Why didn't I give up the spirit when my mother bore me?

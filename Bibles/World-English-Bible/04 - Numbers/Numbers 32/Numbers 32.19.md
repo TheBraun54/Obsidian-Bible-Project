@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we will not inherit with them on the other side of the Jordan, and forward; because our inheritance is fallen to us on this side of the Jordan eastward.
+For we will not inherit with them on the other side of the Jordan, and forward; because our inheritance is fallen to us on this side of the Jordan eastward."

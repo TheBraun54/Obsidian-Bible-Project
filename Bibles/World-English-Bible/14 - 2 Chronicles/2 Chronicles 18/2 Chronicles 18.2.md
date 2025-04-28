@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after certain years he went down to Ahab to Samaria. And Ahab killed sheep and oxen for him in abundance, and for the people that were with him, and moved him to go up [with him] to Ramoth-gilead.
+After certain years he went down to Ahab to Samaria. Ahab killed sheep and cattle for him in abundance, and for the people who were with him, and moved him to go up [with him] to Ramoth Gilead.

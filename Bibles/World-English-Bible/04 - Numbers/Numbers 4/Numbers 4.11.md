@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And upon the golden altar they shall spread a cloth of blue, and cover it with a covering of sealskin, and shall put in the staves thereof:
+"On the golden altar they shall spread a blue cloth, and cover it with a covering of sealskin, and shall put in its poles.

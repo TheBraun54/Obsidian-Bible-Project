@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David reigned over all Israel; and David executed justice and righteousness unto all his people.
+David reigned over all Israel; and David executed justice and righteousness to all his people.

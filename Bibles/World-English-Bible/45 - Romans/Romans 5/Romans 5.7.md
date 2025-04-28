@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For scarcely for a righteous man will one die: for peradventure for the good man some one would even dare to die.
+For one will hardly die for a righteous man. Yet perhaps for a righteous person someone would even dare to die.

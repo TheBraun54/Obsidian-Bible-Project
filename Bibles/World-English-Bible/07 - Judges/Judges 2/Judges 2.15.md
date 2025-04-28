@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whithersoever they went out, the hand of Jehovah was against them for evil, as Jehovah had spoken, and as Jehovah had sworn unto them: and they were sore distressed.
+Wherever they went out, the hand of Yahweh was against them for evil, as Yahweh had spoken, and as Yahweh had sworn to them: and they were very distressed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the bright lights of heaven will I make dark over thee, and set darkness upon thy land, saith the Lord Jehovah.
+All the bright lights of the sky will I make dark over you, and set darkness on your land, says the Lord Yahweh.

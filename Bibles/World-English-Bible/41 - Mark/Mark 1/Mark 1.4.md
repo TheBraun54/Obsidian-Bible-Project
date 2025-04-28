@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-John came, who baptized in the wilderness and preached the baptism of repentance unto remission of sins.
+John came baptizing in the wilderness and preaching the baptism of repentance for forgiveness of sins.

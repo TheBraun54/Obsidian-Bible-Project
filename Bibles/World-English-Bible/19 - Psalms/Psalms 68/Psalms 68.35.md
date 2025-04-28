@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O God, [thou art] terrible out of thy holy places: The God of Israel, he giveth strength and power unto [his] people. Blessed be God.
+You are awesome, God, in your sanctuaries. The God of Israel gives strength and power to his people. Praise be to God! For the Chief Musician. To the tune of "Lilies." By David.

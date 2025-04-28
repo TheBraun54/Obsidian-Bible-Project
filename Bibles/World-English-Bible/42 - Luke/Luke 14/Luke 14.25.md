@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now there went with him great multitudes: and he turned, and said unto them,
+Now great multitudes were going with him. He turned and said to them,

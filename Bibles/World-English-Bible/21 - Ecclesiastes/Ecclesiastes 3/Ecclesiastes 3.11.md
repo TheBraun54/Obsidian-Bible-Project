@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath made everything beautiful in its time: also he hath set eternity in their heart, yet so that man cannot find out the work that God hath done from the beginning even to the end.
+He has made everything beautiful in its time. He has also set eternity in their hearts, yet so that man can't find out the work that God has done from the beginning even to the end.

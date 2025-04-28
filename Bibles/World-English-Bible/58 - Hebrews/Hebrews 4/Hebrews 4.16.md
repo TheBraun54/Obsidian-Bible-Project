@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let us therefore draw near with boldness unto the throne of grace, that we may receive mercy, and may find grace to help [us] in time of need.
+Let us therefore draw near with boldness to the throne of grace, that we may receive mercy, and may find grace for help in time of need.

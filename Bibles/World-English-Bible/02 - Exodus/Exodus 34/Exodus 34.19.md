@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All that openeth the womb is mine; and all thy cattle that is male, the firstlings of cow and sheep.
+"All that opens the womb is mine; and all your livestock that is male, the firstborn of cow and sheep.

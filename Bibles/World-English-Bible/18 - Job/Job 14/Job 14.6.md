@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Look away from him, that he may rest, Till he shall accomplish, as a hireling, his day.
+Look away from him, that he may rest, until he shall accomplish, as a hireling, his day.

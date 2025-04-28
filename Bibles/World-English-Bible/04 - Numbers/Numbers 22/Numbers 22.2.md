@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Balak the son of Zippor saw all that Israel had done to the Amorites.
+Balak the son of Zippor saw all that Israel had done to the Amorites.

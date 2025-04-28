@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thomas answered and said unto him, My Lord and my God.
+Thomas answered him, "My Lord and my God!"

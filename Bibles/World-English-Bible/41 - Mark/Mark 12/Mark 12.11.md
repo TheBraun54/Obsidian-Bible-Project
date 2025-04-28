@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This was from the Lord, And it is marvellous in our eyes?
+This was from the Lord, it is marvelous in our eyes'?"

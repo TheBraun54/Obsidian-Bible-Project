@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, as Isaiah hath said before, Except the Lord of Sabaoth had left us a seed, We had become as Sodom, and had been made like unto Gomorrah.
+As Isaiah has said before, "Unless the Lord of Armies had left us a seed, we would have become like Sodom, and would have been made like Gomorrah."

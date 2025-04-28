@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The righteous shall be glad in Jehovah, and shall take refuge in him; And all the upright in heart shall glory.
+The righteous shall be glad in Yahweh, and shall take refuge in him. All the upright in heart shall praise him! For the Chief Musician. A Psalm by David. A song.

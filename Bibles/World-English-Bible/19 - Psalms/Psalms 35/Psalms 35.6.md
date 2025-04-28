@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let their way be dark and slippery, And the angel of Jehovah pursuing them.
+Let their way be dark and slippery, Yahweh's angel pursuing them.

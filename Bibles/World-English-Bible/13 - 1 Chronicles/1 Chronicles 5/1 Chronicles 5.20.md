@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were helped against them, and the Hagrites were delivered into their hand, and all that were with them; for they cried to God in the battle, and he was entreated of them, because they put their trust in him.
+They were helped against them, and the Hagrites were delivered into their hand, and all who were with them; for they cried to God in the battle, and he was entreated of them, because they put their trust in him.

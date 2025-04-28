@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh called unto Moses, and said, Go ye, serve Jehovah; only let your flocks and your herds be stayed: let your little ones also go with you.
+Pharaoh called to Moses, and said, "Go, serve Yahweh. Only let your flocks and your herds stay behind. Let your little ones also go with you."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the weight of gold that came to Solomon in one year was six hundred threescore and six talents of gold,
+Now the weight of gold that came to Solomon in one year was six hundred sixty-six talents of gold,

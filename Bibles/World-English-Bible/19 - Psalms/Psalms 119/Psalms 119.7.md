@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will give thanks unto thee with uprightness of heart, When I learn thy righteous judgments.
+I will give thanks to you with uprightness of heart, when I learn your righteous judgments.

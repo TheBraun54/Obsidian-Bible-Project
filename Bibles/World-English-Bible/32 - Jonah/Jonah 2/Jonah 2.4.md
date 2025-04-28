@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I said, I am cast out from before thine eyes; Yet I will look again toward thy holy temple.
+I said, 'I have been banished from your sight; yet I will look again toward your holy temple.'

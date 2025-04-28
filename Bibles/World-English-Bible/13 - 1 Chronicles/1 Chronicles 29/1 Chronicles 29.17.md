@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I know also, my God, that thou triest the heart, and hast pleasure in uprightness. As for me, in the uprightness of my heart I have willingly offered all these things: and now have I seen with joy thy people, that are present here, offer willingly unto thee.
+I know also, my God, that you try the heart, and have pleasure in uprightness. As for me, in the uprightness of my heart I have willingly offered all these things. Now have I seen with joy your people, that are present here, offer willingly to you.

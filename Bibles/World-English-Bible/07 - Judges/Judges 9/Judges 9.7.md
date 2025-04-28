@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they told it to Jotham, he went and stood on the top of mount Gerizim, and lifted up his voice, and cried, and said unto them, Hearken unto me, ye men of Shechem, that God may hearken unto you.
+When they told it to Jotham, he went and stood on the top of Mount Gerizim, and lifted up his voice, and cried, and said to them, "Listen to me, you men of Shechem, that God may listen to you.

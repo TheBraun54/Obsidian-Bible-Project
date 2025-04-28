@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will make Rabbah a stable for camels, and the children of Ammon a couching-place for flocks: and ye shall know that I am Jehovah.
+I will make Rabbah a stable for camels, and the children of Ammon a resting place for flocks: and you shall know that I am Yahweh.

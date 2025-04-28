@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the servants of David were come to Abigail to Carmel, they spake unto her, saying, David hath sent us unto thee, to take thee to him to wife.
+When the servants of David had come to Abigail to Carmel, they spoke to her, saying, "David has sent us to you, to take you to him as wife."

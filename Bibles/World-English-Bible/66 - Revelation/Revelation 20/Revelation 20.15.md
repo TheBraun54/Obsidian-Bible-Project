@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if any was not found written in the book of life, he was cast into the lake of fire.
+If anyone was not found written in the book of life, he was cast into the lake of fire.

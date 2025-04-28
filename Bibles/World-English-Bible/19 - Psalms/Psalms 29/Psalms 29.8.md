@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The voice of Jehovah shaketh the wilderness; Jehovah shaketh the wilderness of Kadesh.
+Yahweh's voice shakes the wilderness. Yahweh shakes the wilderness of Kadesh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a stranger or sojourner with thee be waxed rich, and thy brother be waxed poor beside him, and sell himself unto the stranger [or] sojourner with thee, or to the stock of the stranger's family;
+"'If an alien or temporary resident with you becomes rich, and your brother beside him has grown poor, and sells himself to the stranger or foreigner living among you, or to a member of the stranger's family;

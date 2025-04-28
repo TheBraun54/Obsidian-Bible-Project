@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he came, and he taketh [it] out of the right hand of him that sat on the throne.
+Then he came, and he took it out of the right hand of him who sat on the throne.

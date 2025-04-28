@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus said unto them, For your hardness of heart he wrote you this commandment.
+But Jesus said to them, "For your hardness of heart, he wrote you this commandment.

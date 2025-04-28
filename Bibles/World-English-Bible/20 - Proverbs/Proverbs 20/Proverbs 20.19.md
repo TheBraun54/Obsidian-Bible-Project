@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that goeth about as a tale-bearer revealeth secrets; Therefore company not with him that openeth wide his lips.
+He who goes about as a tale-bearer reveals secrets; therefore don't keep company with him who opens wide his lips.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto the people, Remember this day, in which ye came out from Egypt, out of the house of bondage; for by strength of hand Jehovah brought you out from this place: there shall no leavened bread be eaten.
+Moses said to the people, "Remember this day, in which you came out from Egypt, out of the house of bondage; for by strength of hand Yahweh brought you out from this place. No leavened bread shall be eaten.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-which, when it was filled, they drew up on the beach; and they sat down, and gathered the good into vessels, but the bad they cast away.
+which, when it was filled, they drew up on the beach. They sat down, and gathered the good into containers, but the bad they threw away.

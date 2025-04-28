@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But verily God hath heard; He hath attended to the voice of my prayer.
+But most certainly, God has listened. He has heard the voice of my prayer.

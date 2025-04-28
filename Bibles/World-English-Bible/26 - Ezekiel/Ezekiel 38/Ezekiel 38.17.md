@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord Jehovah: Art thou he of whom I spake in old time by my servants the prophets of Israel, that prophesied in those days for [many] years that I would bring thee against them?
+Thus says the Lord Yahweh: Are you he of whom I spoke in old time by my servants the prophets of Israel, who prophesied in those days for [many] years that I would bring you against them?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye came near and stood under the mountain; and the mountain burned with fire unto the heart of heaven, with darkness, cloud, and thick darkness.
+You came near and stood under the mountain; and the mountain burned with fire to the heart of the sky, with darkness, cloud, and thick darkness.

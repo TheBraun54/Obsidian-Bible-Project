@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sent away the multitudes, and entered into the boat, and came into the borders of Magadan.
+Then he sent away the multitudes, got into the boat, and came into the borders of Magdala.

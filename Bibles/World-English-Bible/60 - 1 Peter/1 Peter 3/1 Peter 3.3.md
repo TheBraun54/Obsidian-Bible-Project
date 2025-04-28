@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whose [adorning] let it not be the outward adorning of braiding the hair, and of wearing jewels of gold, or of putting on apparel;
+Let your beauty be not just the outward adorning of braiding the hair, and of wearing jewels of gold, or of putting on fine clothing;

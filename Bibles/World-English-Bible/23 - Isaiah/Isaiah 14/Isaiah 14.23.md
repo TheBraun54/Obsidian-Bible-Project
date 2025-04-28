@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will also make it a possession for the porcupine, and pools of water: and I will sweep it with the besom of destruction, saith Jehovah of hosts.
+"I will also make it a possession for the porcupine, and pools of water. I will sweep it with the broom of destruction," says Yahweh of Armies.

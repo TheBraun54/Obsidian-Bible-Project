@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thanks be unto God, who always leadeth us in triumph in Christ, and maketh manifest through us the savor of his knowledge in every place.
+Now thanks be to God, who always leads us in triumph in Christ, and reveals through us the sweet aroma of his knowledge in every place.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak not in the hearing of a fool; For he will despise the wisdom of thy words.
+Don't speak in the ears of a fool, for he will despise the wisdom of your words.

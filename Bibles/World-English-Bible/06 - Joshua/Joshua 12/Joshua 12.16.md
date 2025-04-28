@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the king of Makkedah, one; the king of Beth-el, one;
+the king of Makkedah, one; the king of Bethel, one;

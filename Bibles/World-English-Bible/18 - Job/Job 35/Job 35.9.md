@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By reason of the multitude of oppressions they cry out; They cry for help by reason of the arm of the mighty.
+"By reason of the multitude of oppressions they cry out. They cry for help by reason of the arm of the mighty.

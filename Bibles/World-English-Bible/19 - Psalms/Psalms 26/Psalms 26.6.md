@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will wash my hands in innocency: So will I compass thine altar, O Jehovah;
+I will wash my hands in innocence, so I will go about your altar, Yahweh;

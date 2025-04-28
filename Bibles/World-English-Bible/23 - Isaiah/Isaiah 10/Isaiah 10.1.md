@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto them that decree unrighteous decrees, and to the writers that write perverseness;
+Woe to those who decree unrighteous decrees, and to the writers who write oppressive decrees;

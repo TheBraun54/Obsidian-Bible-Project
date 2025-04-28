@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Turn again, my daughters, go your way; for I am too old to have a husband. If I should say, I have hope, if I should even have a husband to-night, and should also bear sons;
+Go back, my daughters, go your way; for I am too old to have a husband. If I should say, 'I have hope,' if I should even have a husband tonight, and should also bear sons;

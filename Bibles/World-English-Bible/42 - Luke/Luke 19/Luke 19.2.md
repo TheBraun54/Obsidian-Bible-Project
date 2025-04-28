@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, a man called by name Zacchaeus; and he was a chief publican, and he was rich.
+There was a man named Zacchaeus. He was a chief tax collector, and he was rich.

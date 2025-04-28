@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he led them out until [they were] over against Bethany: and he lifted up his hands, and blessed them.
+He led them out as far as Bethany, and he lifted up his hands, and blessed them.

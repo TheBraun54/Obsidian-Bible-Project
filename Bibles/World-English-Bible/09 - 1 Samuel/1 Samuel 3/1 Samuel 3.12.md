@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day I will perform against Eli all that I have spoken concerning his house, from the beginning even unto the end.
+In that day I will perform against Eli all that I have spoken concerning his house, from the beginning even to the end.

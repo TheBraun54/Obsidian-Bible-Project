@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now it came to pass after the death of Moses the servant of Jehovah, that Jehovah spake unto Joshua the son of Nun, Moses' minister, saying,
+Now it happened after the death of Moses the servant of Yahweh, that Yahweh spoke to Joshua the son of Nun, Moses' servant, saying,

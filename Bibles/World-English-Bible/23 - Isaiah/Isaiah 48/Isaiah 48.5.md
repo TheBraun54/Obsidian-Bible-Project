@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore I have declared it to thee from of old; before it came to pass I showed it thee; lest thou shouldest say, Mine idol hath done them, and my graven image, and my molten image, hath commanded them.
+therefore I have declared it to you from of old; before it came to pass I showed it to you; lest you should say, 'My idol has done them, and my engraved image, and my molten image, has commanded them.'

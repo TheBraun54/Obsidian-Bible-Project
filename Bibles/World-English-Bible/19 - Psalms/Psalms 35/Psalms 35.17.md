@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lord, how long wilt thou look on? Rescue my soul from their destructions, My darling from the lions.
+Lord, how long will you look on? Rescue my soul from their destruction, my precious life from the lions.

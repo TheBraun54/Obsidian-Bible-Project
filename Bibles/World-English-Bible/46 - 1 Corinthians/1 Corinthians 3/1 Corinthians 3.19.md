@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the wisdom of this world is foolishness with God. For it is written, He that taketh the wise in their craftiness:
+For the wisdom of this world is foolishness with God. For it is written, "He has taken the wise in their craftiness."

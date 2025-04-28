@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that oppresseth the poor to increase his [gain], [And] he that giveth to the rich, [shall come] only to want.
+Whoever oppresses the poor for his own increase and whoever gives to the rich, both come to poverty.

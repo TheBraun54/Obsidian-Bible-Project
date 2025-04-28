@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus shall the things be unto thee wherein thou hast labored: they that have trafficked with thee from thy youth shall wander every one to his quarter; there shall be none to save thee.
+Thus shall the things be to you in which you have labored: those who have trafficked with you from your youth shall wander everyone to his quarter; there shall be none to save you.

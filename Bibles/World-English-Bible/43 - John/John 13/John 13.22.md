@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The disciples looked one on another, doubting of whom he spake.
+The disciples looked at one another, perplexed about whom he spoke.

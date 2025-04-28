@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now what hast thou to do in the way to Egypt, to drink the waters of the Shihor? or what hast thou to do in the way to Assyria, to drink the waters of the River? [
+Now what have you to do in the way to Egypt, to drink the waters of the Shihor? Or what have you to do in the way to Assyria, to drink the waters of the River?

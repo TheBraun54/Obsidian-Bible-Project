@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when our enemies heard that it was known unto us, and God had brought their counsel to nought, that we returned all of us to the wall, every one unto his work.
+It happened, when our enemies heard that it was known to us, and God had brought their counsel to nothing, that we returned all of us to the wall, everyone to his work.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answered and said, Have ye not read, that he who made [them] from the beginning made them male and female,
+He answered, "Haven't you read that he who made them from the beginning made them male and female,

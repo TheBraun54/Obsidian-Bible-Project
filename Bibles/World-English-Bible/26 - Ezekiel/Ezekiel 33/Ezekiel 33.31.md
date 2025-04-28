@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they come unto thee as the people cometh, and they sit before thee as my people, and they hear thy words, but do them not; for with their mouth they show much love, but their heart goeth after their gain.
+They come to you as the people come, and they sit before you as my people, and they hear your words, but don't do them; for with their mouth they show much love, but their heart goes after their gain.

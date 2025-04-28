@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ When] our oxen are well laden; [When there is] no breaking in, and no going forth, And no outcry in our streets:
+Our oxen will pull heavy loads. There is no breaking in, and no going away, and no outcry in our streets.

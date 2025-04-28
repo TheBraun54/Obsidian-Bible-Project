@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come, let us take our fill of love until the morning; Let us solace ourselves with loves.
+Come, let's take our fill of loving until the morning. Let's solace ourselves with loving.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we desire that each one of you may show the same diligence unto the fulness of hope even to the end:
+We desire that each one of you may show the same diligence to the fullness of hope even to the end,

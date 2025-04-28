@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Elon, and Timnah, and Ekron,
+Elon, Timnah, Ekron,

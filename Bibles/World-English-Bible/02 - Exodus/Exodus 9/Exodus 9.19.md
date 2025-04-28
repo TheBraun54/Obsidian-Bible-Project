@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore send, hasten in thy cattle and all that thou hast in the field; [for] every man and beast that shall be found in the field, and shall not be brought home, the hail shall come down upon them, and they shall die.
+Now therefore command that all of your livestock and all that you have in the field be brought into shelter. Every man and animal that is found in the field, and isn't brought home, the hail shall come down on them, and they shall die."'"

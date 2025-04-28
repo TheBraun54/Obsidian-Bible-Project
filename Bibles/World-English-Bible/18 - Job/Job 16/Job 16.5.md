@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ But] I would strengthen you with my mouth, And the solace of my lips would assuage [your grief] .
+but I would strengthen you with my mouth. The solace of my lips would relieve you.

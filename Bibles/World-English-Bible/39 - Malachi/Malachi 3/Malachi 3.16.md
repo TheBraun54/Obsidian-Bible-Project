@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then they that feared Jehovah spake one with another; and Jehovah hearkened, and heard, and a book of remembrance was written before him, for them that feared Jehovah, and that thought upon his name.
+Then those who feared Yahweh spoke one with another; and Yahweh listened, and heard, and a book of memory was written before him, for those who feared Yahweh, and who honored his name.

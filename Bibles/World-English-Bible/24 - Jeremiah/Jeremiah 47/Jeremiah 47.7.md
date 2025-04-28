@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How canst thou be quiet, seeing Jehovah hath given thee a charge? Against Ashkelon, and against the sea-shore, there hath he appointed it.
+How can you be quiet, since Yahweh has given you a command? Against Ashkelon, and against the seashore, there has he appointed it.

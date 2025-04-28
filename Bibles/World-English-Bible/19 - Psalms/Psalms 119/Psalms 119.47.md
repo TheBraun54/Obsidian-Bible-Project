@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will delight myself in thy commandments, Which I have loved.
+I will delight myself in your commandments, because I love them.

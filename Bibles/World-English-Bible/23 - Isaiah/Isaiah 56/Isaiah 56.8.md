@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Lord Jehovah, who gathereth the outcasts of Israel, saith, Yet will I gather [others] to him, besides his own that are gathered.
+The Lord Yahweh, who gathers the outcasts of Israel, says, "Yet will I gather [others] to him, besides his own who are gathered."

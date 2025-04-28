@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not take the name of Jehovah thy God in vain; for Jehovah will not hold him guiltless that taketh his name in vain.
+"You shall not take the name of Yahweh your God in vain, for Yahweh will not hold him guiltless who takes his name in vain.

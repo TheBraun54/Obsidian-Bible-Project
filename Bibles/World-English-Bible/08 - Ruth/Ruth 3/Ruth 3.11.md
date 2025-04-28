@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, my daughter, fear not; I will do to thee all that thou sayest; for all the city of my people doth know that thou art a worthy woman.
+Now, my daughter, don't be afraid; I will do to you all that you say; for all the city of my people does know that you are a worthy woman.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beware lest Hezekiah persuade you, saying, Jehovah will deliver us. Hath any of the gods of the nations delivered his land out of the hand of the king of Assyria?
+Beware lest Hezekiah persuade you, saying, "Yahweh will deliver us." Have any of the gods of the nations delivered their lands from the hand of the king of Assyria?

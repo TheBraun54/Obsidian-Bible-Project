@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that are of Christ Jesus have crucified the flesh with the passions and the lusts thereof.
+Those who belong to Christ have crucified the flesh with its passions and lusts.

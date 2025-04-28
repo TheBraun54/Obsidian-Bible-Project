@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-it is an old leprosy in the skin of his flesh, and the priest shall pronounce him unclean: he shall not shut him up, for he is unclean.
+it is a chronic leprosy in the skin of his body, and the priest shall pronounce him unclean. He shall not isolate him, for he is unclean.

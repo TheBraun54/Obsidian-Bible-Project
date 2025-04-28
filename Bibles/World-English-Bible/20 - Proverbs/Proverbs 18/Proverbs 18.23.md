@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The poor useth entreaties; But the rich answereth roughly.
+The poor plead for mercy, but the rich answer harshly.

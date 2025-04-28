@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will give thanks unto thee; For I am fearfully and wonderfully made: Wonderful are thy works; And that my soul knoweth right well.
+I will give thanks to you, for I am fearfully and wonderfully made. Your works are wonderful. My soul knows that very well.

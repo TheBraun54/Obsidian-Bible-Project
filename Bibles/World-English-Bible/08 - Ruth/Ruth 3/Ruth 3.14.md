@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she lay at his feet until the morning. And she rose up before one could discern another. For he said, Let it not be known that the woman came to the threshing-floor.
+She lay at his feet until the morning. She rose up before one could discern another. For he said, "Let it not be known that the woman came to the threshing floor."

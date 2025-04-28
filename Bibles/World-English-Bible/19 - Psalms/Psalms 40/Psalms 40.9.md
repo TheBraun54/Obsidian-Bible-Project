@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have proclaimed glad tidings of righteousness in the great assembly; Lo, I will not refrain my lips, O Jehovah, thou knowest.
+I have proclaimed glad news of righteousness in the great assembly. Behold, I will not seal my lips, Yahweh, you know.

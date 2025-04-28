@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he joined himself with him to make ships to go to Tarshish; and they made the ships in Ezion-geber.
+and he joined himself with him to make ships to go to Tarshish; and they made the ships in Ezion Geber.

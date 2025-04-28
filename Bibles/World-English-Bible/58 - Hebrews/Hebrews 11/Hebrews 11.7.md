@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By faith Noah, being warned [of God] concerning things not seen as yet, moved with godly fear, prepared an ark to the saving of his house; through which he condemned the world, and became heir of the righteousness which is according to faith.
+By faith, Noah, being warned about things not yet seen, moved with godly fear, prepared a ship for the saving of his house, through which he condemned the world, and became heir of the righteousness which is according to faith.

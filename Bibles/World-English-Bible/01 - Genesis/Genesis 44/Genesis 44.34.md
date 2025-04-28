@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For how shall I go up to my father, if the lad be not with me? lest I see the evil that shall come on my father.
+For how will I go up to my father, if the boy isn't with me?--lest I see the evil that will come on my father."

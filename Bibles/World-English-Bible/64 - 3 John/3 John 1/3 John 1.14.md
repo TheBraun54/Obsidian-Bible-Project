@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I hope shortly to see thee, and we shall speak face to face. Peace [be] unto thee. The friends salute thee. Salute the friends by name.
+but I hope to see you soon, and we will speak face to face. Peace be to you. The friends greet you. Greet the friends by name.

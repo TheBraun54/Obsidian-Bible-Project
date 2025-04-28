@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the king promoted Shadrach, Meshach, and Abed-nego in the province of Babylon.
+Then the king promoted Shadrach, Meshach, and Abednego in the province of Babylon.

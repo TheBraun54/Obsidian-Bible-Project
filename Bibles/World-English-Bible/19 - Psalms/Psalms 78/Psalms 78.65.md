@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the Lord awaked as one out of sleep, Like a mighty man that shouteth by reason of wine.
+Then the Lord awakened as one out of sleep, like a mighty man who shouts by reason of wine.

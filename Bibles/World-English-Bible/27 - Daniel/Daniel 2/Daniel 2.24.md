@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore Daniel went in unto Arioch, whom the king had appointed to destroy the wise men of Babylon; he went and said thus unto him: Destroy not the wise men of Babylon; bring me in before the king, and I will show unto the king the interpretation.
+Therefore Daniel went in to Arioch, whom the king had appointed to destroy the wise men of Babylon; he went and said thus to him: Don't destroy the wise men of Babylon; bring me in before the king, and I will show to the king the interpretation.

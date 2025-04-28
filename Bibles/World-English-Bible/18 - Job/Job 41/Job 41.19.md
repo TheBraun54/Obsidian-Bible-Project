@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Out of his mouth go burning torches, And sparks of fire leap forth.
+Out of his mouth go burning torches. Sparks of fire leap forth.

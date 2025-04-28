@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Repent therefore; or else I come to thee quickly, and I will make war against them with the sword of my mouth.
+Repent therefore, or else I am coming to you quickly, and I will make war against them with the sword of my mouth.

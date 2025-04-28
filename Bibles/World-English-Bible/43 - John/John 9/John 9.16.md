@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Some therefore of the Pharisees said, This man is not from God, because he keepeth not the sabbath. But others said, How can a man that is a sinner do such signs? And there was a division among them.
+Some therefore of the Pharisees said, "This man is not from God, because he doesn't keep the Sabbath." Others said, "How can a man who is a sinner do such signs?" There was division among them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hezekiah answered, It is a light thing for the shadow to decline ten steps: nay, but let the shadow return backward ten steps.
+Hezekiah answered, "It is a light thing for the shadow to go forward ten steps. Nay, but let the shadow return backward ten steps."

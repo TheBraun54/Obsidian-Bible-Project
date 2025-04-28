@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and others had trial of mockings and scourgings, yea, moreover of bonds and imprisonment:
+Others were tried by mocking and scourging, yes, moreover by bonds and imprisonment.

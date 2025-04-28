@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but taking his leave of them, and saying, I will return again unto you if God will, he set sail from Ephesus.
+but taking his leave of them, and saying, "I must by all means keep this coming feast in Jerusalem, but I will return again to you if God wills," he set sail from Ephesus.

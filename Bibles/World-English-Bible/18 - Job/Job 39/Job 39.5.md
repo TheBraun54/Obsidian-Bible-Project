@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who hath sent out the wild ass free? Or who hath loosed the bonds of the swift ass,
+"Who has set the wild donkey free? Or who has loosened the bonds of the swift donkey,

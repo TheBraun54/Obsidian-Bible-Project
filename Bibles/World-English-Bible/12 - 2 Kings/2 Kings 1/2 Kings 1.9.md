@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then [the king] sent unto him a captain of fifty with his fifty. And he went up to him: and, behold, he was sitting on the top of the hill. And he spake unto him, O man of God, the king hath said, Come down.
+Then [the king] sent a captain of fifty with his fifty to him. He went up to him; and behold, he was sitting on the top of the hill. He said to him, "Man of God, the king has said, 'Come down!'"

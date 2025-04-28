@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Before the mountains were brought forth, Or ever thou hadst formed the earth and the world, Even from everlasting to everlasting, thou art God.
+Before the mountains were brought forth, before you had formed the earth and the world, even from everlasting to everlasting, you are God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seek ye Jehovah while he may be found; call ye upon him while he is near:
+Seek Yahweh while he may be found; call you on him while he is near:

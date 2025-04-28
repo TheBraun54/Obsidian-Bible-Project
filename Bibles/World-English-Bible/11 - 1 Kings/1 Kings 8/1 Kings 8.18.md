@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jehovah said unto David my father, Whereas it was in thy heart to build a house for my name, thou didst well that it was in thy heart:
+But Yahweh said to David my father, 'Whereas it was in your heart to build a house for my name, you did well that it was in your heart.

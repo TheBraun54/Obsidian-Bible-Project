@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover I will make thee a desolation and a reproach among the nations that are round about thee, in the sight of all that pass by.
+Moreover I will make you a desolation and a reproach among the nations that are around you, in the sight of all that pass by.

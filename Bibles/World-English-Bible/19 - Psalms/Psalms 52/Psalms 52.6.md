@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The righteous also shall see [it], and fear, And shall laugh at him, [saying] ,
+The righteous also will see it, and fear, and laugh at him, saying,

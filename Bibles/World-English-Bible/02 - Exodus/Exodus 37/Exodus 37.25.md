@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the altar of incense of acacia wood: a cubit was the length thereof, and a cubit the breadth thereof, foursquare; and two cubits was the height thereof; the horns thereof were of one piece with it.
+He made the altar of incense of acacia wood. It was square: its length was a cubit, and its breadth a cubit. Its height was two cubits. Its horns were of one piece with it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joab fell to the ground on his face, and did obeisance, and blessed the king: and Joab said, To-day thy servant knoweth that I have found favor in thy sight, my lord, O king, in that the king hath performed the request of his servant.
+Joab fell to the ground on his face, and did obeisance, and blessed the king. Joab said, "Today your servant knows that I have found favor in your sight, my lord, king, in that the king has performed the request of his servant."

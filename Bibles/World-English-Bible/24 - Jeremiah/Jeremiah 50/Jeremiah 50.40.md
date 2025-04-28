@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As when God overthrew Sodom and Gomorrah and the neighbor cities thereof, saith Jehovah, so shall no man dwell there, neither shall any son of man sojourn therein.
+As when God overthrew Sodom and Gomorrah and the neighbor cities of it, says Yahweh, so shall no man dwell there, neither shall any son of man live therein.

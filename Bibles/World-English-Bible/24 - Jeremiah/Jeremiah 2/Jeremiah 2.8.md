@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The priests said not, Where is Jehovah? and they that handle the law knew me not: the rulers also transgressed against me, and the prophets prophesied by Baal, and walked after things that do not profit.
+The priests didn't say, 'Where is Yahweh?' and those who handle the law didn't know me. The rulers also transgressed against me, and the prophets prophesied by Baal, and walked after things that do not profit.

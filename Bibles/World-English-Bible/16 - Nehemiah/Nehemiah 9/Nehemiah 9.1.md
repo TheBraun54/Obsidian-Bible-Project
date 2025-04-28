@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now in the twenty and fourth day of this month the children of Israel were assembled with fasting, and with sackcloth, and earth upon them.
+Now in the twenty-fourth day of this month the children of Israel were assembled with fasting, and with sackcloth, and earth on them.

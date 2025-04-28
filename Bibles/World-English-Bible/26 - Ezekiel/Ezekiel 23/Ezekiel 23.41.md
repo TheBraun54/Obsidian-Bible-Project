@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and sit upon a stately bed, with a table prepared before it, whereupon thou didst set mine incense and mine oil.
+and sit on a stately bed, with a table prepared before it, whereupon you set my incense and my oil.

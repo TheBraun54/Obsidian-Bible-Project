@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be merciful unto me, O Lord; For unto thee do I cry all the day long.
+Be merciful to me, Lord, for I call to you all day long.

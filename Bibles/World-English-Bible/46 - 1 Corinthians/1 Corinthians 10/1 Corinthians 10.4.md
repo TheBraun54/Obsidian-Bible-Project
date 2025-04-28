@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and did all drink the same spiritual drink: for they drank of a spiritual rock that followed them: and the rock was Christ.
+and all drank the same spiritual drink. For they drank of a spiritual rock that followed them, and the rock was Christ.

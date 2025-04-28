@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as one of them opened his sack to give his ass provender in the lodging-place, he espied his money; and, behold, it was in the mouth of his sack.
+As one of them opened his sack to give his donkey food in the lodging place, he saw his money. Behold, it was in the mouth of his sack.

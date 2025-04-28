@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They answered him, Jesus of Nazareth. Jesus saith unto them, I am [he] . And Judas also, who betrayed him, was standing with them.
+They answered him, "Jesus of Nazareth." Jesus said to them, "I am he." Judas also, who betrayed him, was standing with them.

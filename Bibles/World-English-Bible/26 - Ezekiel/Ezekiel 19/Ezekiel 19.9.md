@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they put him in a cage with hooks, and brought him to the king of Babylon; they brought him into strongholds, that his voice should no more be heard upon the mountains of Israel.
+They put him in a cage with hooks, and brought him to the king of Babylon; they brought him into strongholds, that his voice should no more be heard on the mountains of Israel.

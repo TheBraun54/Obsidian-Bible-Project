@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou hast anything to say, answer me: Speak, for I desire to justify thee.
+If you have anything to say, answer me. Speak, for I desire to justify you.

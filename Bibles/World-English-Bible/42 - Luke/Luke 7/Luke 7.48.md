@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto her, Thy sins are forgiven.
+He said to her, "Your sins are forgiven."

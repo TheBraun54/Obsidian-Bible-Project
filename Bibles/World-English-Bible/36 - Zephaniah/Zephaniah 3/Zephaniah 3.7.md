@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I said, Only fear thou me; receive correction; so her dwelling shall not be cut off, [according to] all that I have appointed concerning her: but they rose early and corrupted all their doings.
+I said, "Just fear me. Receive correction, so that her dwelling won't be cut off, according to all that I have appointed concerning her." But they rose early and corrupted all their doings.

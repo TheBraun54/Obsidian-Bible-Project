@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A brutish man knoweth not; Neither doth a fool understand this:
+A senseless man doesn't know, neither does a fool understand this:

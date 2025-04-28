@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Lord, by these things men live; And wholly therein is the life of my spirit: Wherefore recover thou me, and make me to live.
+Lord, men live by these things; and my spirit finds life in all of them: you restore me, and cause me to live.

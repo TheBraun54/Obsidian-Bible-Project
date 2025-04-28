@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And those on the rock [are] they who, when they have heard, receive the word with joy; and these have no root, who for a while believe, and in time of temptation fall away.
+Those on the rock are they who, when they hear, receive the word with joy; but these have no root, who believe for a while, then fall away in time of temptation.

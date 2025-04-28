@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou, son of man, wilt thou judge, wilt thou judge the bloody city? then cause her to know all her abominations.
+You, son of man, will you judge, will you judge the bloody city? then cause her to know all her abominations.

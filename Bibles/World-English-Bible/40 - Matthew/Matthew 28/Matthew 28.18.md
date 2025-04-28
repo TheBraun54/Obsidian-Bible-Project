@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus came to them and spake unto them, saying, All authority hath been given unto me in heaven and on earth.
+Jesus came to them and spoke to them, saying, "All authority has been given to me in heaven and on earth.

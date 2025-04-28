@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as for thee, if thou wilt walk before me as David thy father walked, and do according to all that I have commanded thee, and wilt keep my statutes and mine ordinances;
+"As for you, if you will walk before me as David your father walked, and do according to all that I have commanded you, and will keep my statutes and my ordinances;

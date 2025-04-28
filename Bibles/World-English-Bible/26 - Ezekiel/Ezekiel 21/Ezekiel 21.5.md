@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and all flesh shall know that I, Jehovah, have drawn forth my sword out of its sheath; it shall not return any more.
+and all flesh shall know that I, Yahweh, have drawn forth my sword out of its sheath; it shall not return any more.

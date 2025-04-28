@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy wrath lieth hard upon me, And thou hast afflicted me with all thy waves. {{Selah
+Your wrath lies heavily on me. You have afflicted me with all your waves. Selah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their eyes were opened. And Jesus strictly charged them, saying, See that no man know it.
+Their eyes were opened. Jesus strictly commanded them, saying, "See that no one knows about this."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for to every purpose there is a time and judgment; because the misery of man is great upon him:
+For there is a time and procedure for every purpose, although the misery of man is heavy on him.

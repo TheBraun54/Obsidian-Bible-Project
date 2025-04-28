@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day shall messengers go forth from before me in ships to make the careless Ethiopians afraid; and there shall be anguish upon them, as in the day of Egypt; for, lo, it cometh.
+In that day shall messengers go forth from before me in ships to make the careless Ethiopians afraid; and there shall be anguish on them, as in the day of Egypt; for, behold, it comes.

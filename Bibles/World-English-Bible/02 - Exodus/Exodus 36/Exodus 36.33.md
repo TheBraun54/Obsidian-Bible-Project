@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the middle bar to pass through in the midst of the boards from the one end to the other.
+He made the middle bar to pass through in the midst of the boards from the one end to the other.

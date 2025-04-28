@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when she saw that she was stedfastly minded to go with her, she left off speaking unto her.
+When she saw that she was steadfastly minded to go with her, she left off speaking to her.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he came in unto her, and said, Hail, thou that art highly favored, the Lord [is] with thee.
+Having come in, the angel said to her, "Rejoice, you highly favored one! The Lord is with you. Blessed are you among women!"

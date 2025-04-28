@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, there appeared unto them Moses and Elijah talking with him.
+Behold, Moses and Elijah appeared to them talking with him.

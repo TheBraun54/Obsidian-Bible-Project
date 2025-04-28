@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the fourth to Izri, his sons and his brethren, twelve:
+the fourth to Izri, his sons and his brothers, twelve:

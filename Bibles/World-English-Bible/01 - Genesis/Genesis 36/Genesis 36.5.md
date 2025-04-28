@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Oholibamah bare Jeush, and Jalam, and Korah: these are the sons of Esau, that were born unto him in the land of Canaan.
+Oholibamah bore Jeush, Jalam, and Korah. These are the sons of Esau, who were born to him in the land of Canaan.

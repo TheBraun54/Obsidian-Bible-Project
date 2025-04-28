@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his sister stood afar off, to know what would be done to him.
+His sister stood far off, to see what would be done to him.

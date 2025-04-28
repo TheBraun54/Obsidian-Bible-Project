@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, Cornelius a centurion, a righteous man and one that feareth God, and well reported of by all the nation of the Jews, was warned [of God] by a holy angel to send for thee into his house, and to hear words from thee.
+They said, "Cornelius, a centurion, a righteous man and one who fears God, and well spoken of by all the nation of the Jews, was directed by a holy angel to invite you to his house, and to listen to what you say."

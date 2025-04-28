@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the seven priests bearing the seven trumpets of rams' horns before the ark of Jehovah went on continually, and blew the trumpets: and the armed men went before them; and the rearward came after the ark of Jehovah, [the priests] blowing the trumpets as they went.
+The seven priests bearing the seven trumpets of rams' horns before the ark of Yahweh went on continually, and blew the trumpets: and the armed men went before them. The rear guard came after the ark of Yahweh. The trumpets sounded as they went.

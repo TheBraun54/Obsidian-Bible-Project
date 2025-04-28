@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and say thou unto them, Thus saith Jehovah, the God of Israel: Cursed be the man that heareth not the words of this covenant,
+and say to them, Thus says Yahweh, the God of Israel: Cursed is the man who doesn't hear the words of this covenant,

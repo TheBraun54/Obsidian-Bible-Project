@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore, putting away falsehood, speak ye truth each one with his neighbor: for we are members one of another.
+Therefore, putting away falsehood, speak truth each one with his neighbor. For we are members of one another.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they straightway left the boat and their father, and followed him.
+They immediately left the boat and their father, and followed him.

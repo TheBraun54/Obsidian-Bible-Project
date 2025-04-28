@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For she did not know that I gave her the grain, and the new wine, and the oil, and multiplied unto her silver and gold, which they used for Baal.
+For she did not know that I gave her the grain, the new wine, and the oil, and multiplied to her silver and gold, which they used for Baal.

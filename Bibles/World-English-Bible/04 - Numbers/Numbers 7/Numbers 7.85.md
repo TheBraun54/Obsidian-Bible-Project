@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-each silver platter [weighing] a hundred and thirty [shekels], and each bowl seventy; all the silver of the vessels two thousand and four hundred [shekels], after the shekel of the sanctuary;
+each silver platter weighing one hundred thirty shekels, and each bowl seventy; all the silver of the vessels two thousand four hundred shekels, after the shekel of the sanctuary;

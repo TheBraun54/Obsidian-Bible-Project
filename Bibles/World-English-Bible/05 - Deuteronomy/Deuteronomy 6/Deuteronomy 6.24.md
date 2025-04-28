@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah commanded us to do all these statutes, to fear Jehovah our God, for our good always, that he might preserve us alive, as at this day.
+Yahweh commanded us to do all these statutes, to fear Yahweh our God, for our good always, that he might preserve us alive, as at this day.

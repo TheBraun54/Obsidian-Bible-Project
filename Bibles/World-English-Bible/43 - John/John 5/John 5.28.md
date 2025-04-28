@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Marvel not at this: for the hour cometh, in which all that are in the tombs shall hear his voice,
+Don't marvel at this, for the hour comes, in which all that are in the tombs will hear his voice,

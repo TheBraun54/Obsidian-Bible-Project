@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one he-goat for a sin-offering unto Jehovah; it shall be offered besides the continual burnt-offering, and the drink-offering thereof.
+One male goat for a sin offering to Yahweh; it shall be offered besides the continual burnt offering, and the drink offering of it.

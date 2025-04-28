@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jehu came forth to the servants of his lord: and one said unto him, Is all well? wherefore came this mad fellow to thee? And he said unto them, Ye know the man and what his talk was.
+Then Jehu came forth to the servants of his lord: and one said to him, "Is all well? Why did this mad fellow come to you?" He said to them, "You know the man and what his talk was."

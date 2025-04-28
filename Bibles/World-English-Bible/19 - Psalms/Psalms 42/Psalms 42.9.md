@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will say unto God my rock, Why hast thou forgotten me? Why go I mourning because of the oppression of the enemy?
+I will ask God, my rock, "Why have you forgotten me? Why do I go mourning because of the oppression of the enemy?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The land of Zebulun and the land of Naphtali, Toward the sea, beyond the Jordan, Galilee of the Gentiles,
+"The land of Zebulun and the land of Naphtali, toward the sea, beyond the Jordan, Galilee of the Gentiles,

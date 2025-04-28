@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as he was yet a coming, the demon dashed him down, and tare [him] grievously. But Jesus rebuked the unclean spirit, and healed the boy, and gave him back to his father.
+While he was still coming, the demon threw him down and convulsed him violently. But Jesus rebuked the unclean spirit, and healed the boy, and gave him back to his father.

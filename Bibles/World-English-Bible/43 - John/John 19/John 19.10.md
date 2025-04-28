@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pilate therefore saith unto him, Speakest thou not unto me? Knowest thou not that I have power to release thee, and have power to crucify thee?
+Pilate therefore said to him, "Aren't you speaking to me? Don't you know that I have power to release you, and have power to crucify you?"

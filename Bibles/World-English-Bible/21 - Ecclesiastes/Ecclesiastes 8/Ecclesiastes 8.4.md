@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the king's word [hath] power; and who may say unto him, What doest thou?
+for the king's word is supreme. Who can say to him, "What are you doing?"

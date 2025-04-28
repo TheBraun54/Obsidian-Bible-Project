@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of these, twenty and four thousand were to oversee the work of the house of Jehovah; and six thousand were officers and judges;
+David said, "Of these, twenty-four thousand were to oversee the work of the house of Yahweh; six thousand were officers and judges;

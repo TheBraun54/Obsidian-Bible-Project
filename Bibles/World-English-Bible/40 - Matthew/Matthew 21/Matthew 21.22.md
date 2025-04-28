@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all things, whatsoever ye shall ask in prayer, believing, ye shall receive.
+All things, whatever you ask in prayer, believing, you will receive."

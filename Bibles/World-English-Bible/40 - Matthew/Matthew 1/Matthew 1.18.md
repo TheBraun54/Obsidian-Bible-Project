@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the birth of Jesus Christ was on this wise: When his mother Mary had been betrothed to Joseph, before they came together she was found with child of the Holy Spirit.
+Now the birth of Jesus Christ was like this; for after his mother, Mary, was engaged to Joseph, before they came together, she was found pregnant by the Holy Spirit.

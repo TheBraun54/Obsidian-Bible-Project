@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Watch therefore, for ye know not the day nor the hour.
+Watch therefore, for you don't know the day nor the hour in which the Son of Man is coming.

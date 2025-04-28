@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As an oblation of first-[ fruits] ye shall offer them unto Jehovah: but they shall not come up for a sweet savor on the altar.
+As an offering of firstfruits you shall offer them to Yahweh: but they shall not ascend for a pleasant aroma on the altar.

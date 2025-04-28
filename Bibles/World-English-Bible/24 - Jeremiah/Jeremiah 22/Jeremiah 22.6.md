@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah concerning the house of the king of Judah: Thou art Gilead unto me, [and] the head of Lebanon; [yet] surely I will make thee a wilderness, [and] cities which are not inhabited.
+For thus says Yahweh concerning the house of the king of Judah: You are Gilead to me, [and] the head of Lebanon; [yet] surely I will make you a wilderness, [and] cities which are not inhabited.

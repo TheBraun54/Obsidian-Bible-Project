@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Your fathers, where are they? and the prophets, do they live for ever?
+Your fathers, where are they? And the prophets, do they live forever?

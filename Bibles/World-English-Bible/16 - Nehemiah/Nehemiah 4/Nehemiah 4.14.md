@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I looked, and rose up, and said unto the nobles, and to the rulers, and to the rest of the people, Be not ye afraid of them: remember the Lord, who is great and terrible, and fight for your brethren, your sons, and your daughters, your wives, and your houses.
+I looked, and rose up, and said to the nobles, and to the rulers, and to the rest of the people, "Don't be afraid of them! Remember the Lord, who is great and awesome, and fight for your brothers, your sons, and your daughters, your wives, and your houses."

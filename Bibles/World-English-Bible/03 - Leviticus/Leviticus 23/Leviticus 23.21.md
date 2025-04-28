@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall make proclamation on the selfsame day; there shall be a holy convocation unto you; ye shall do no servile work: it is a statute for ever in all your dwellings throughout your generations.
+You shall make proclamation on the same day: there shall be a holy convocation to you; you shall do no regular work. This is a statute forever in all your dwellings throughout your generations.

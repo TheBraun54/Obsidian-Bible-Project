@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The woman saith unto him, Sir, thou hast nothing to draw with, and the well is deep: whence then hast thou that living water?
+The woman said to him, "Sir, you have nothing to draw with, and the well is deep. From where then have you that living water?

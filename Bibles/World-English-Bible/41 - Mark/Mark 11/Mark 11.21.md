@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Peter calling to remembrance saith unto him, Rabbi, behold, the fig tree which thou cursedst is withered away.
+Peter, remembering, said to him, "Rabbi, look! The fig tree which you cursed has withered away."

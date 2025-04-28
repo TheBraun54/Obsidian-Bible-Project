@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The seventh [captain] for the seventh month was Helez the Pelonite, of the children of Ephraim: and in his course were twenty and four thousand.
+The seventh [captain] for the seventh month was Helez the Pelonite, of the children of Ephraim: and in his division were twenty-four thousand.

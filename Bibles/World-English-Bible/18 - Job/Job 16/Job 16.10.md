@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have gaped upon me with their mouth; They have smitten me upon the cheek reproachfully: They gather themselves together against me.
+They have gaped on me with their mouth. They have struck me on the cheek reproachfully. They gather themselves together against me.

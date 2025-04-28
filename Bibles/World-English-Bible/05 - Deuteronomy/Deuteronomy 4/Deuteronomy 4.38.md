@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to drive out nations from before thee greater and mightier than thou, to bring thee in, to give thee their land for an inheritance, as at this day.
+to drive out nations from before you greater and mightier than you, to bring you in, to give you their land for an inheritance, as at this day.

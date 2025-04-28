@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, When will the new moon be gone, that we may sell grain? and the sabbath, that we may set forth wheat, making the ephah small, and the shekel great, and dealing falsely with balances of deceit;
+Saying, 'When will the new moon be gone, that we may sell grain? And the Sabbath, that we may market wheat, making the ephah small, and the shekel large, and dealing falsely with balances of deceit;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By his Spirit the heavens are garnished; His hand hath pierced the swift serpent.
+By his Spirit the heavens are garnished. His hand has pierced the swift serpent.

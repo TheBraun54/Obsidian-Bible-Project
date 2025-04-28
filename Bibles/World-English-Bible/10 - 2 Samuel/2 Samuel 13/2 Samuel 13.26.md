@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Absalom, If not, I pray thee, let my brother Amnon go with us. And the king said unto him, Why should he go with thee?
+Then Absalom said, "If not, please let my brother Amnon go with us." The king said to him, "Why should he go with you?"

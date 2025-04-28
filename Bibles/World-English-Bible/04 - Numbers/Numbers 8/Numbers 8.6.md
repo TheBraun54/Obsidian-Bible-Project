@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take the Levites from among the children of Israel, and cleanse them.
+"Take the Levites from among the children of Israel, and cleanse them.

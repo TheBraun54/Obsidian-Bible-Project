@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God will hear, and answer them, Even he that abideth of old, {{Selah [The men] who have no changes, And who fear not God.
+God, who is enthroned forever, will hear, and answer them. Selah. They never change, who don't fear God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will beat down his adversaries before him, And smite them that hate him.
+I will beat down his adversaries before him, and strike those who hate him.

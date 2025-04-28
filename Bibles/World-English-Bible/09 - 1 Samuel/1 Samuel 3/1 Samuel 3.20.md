@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all Israel from Dan even to Beer-sheba knew that Samuel was established to be a prophet of Jehovah.
+All Israel from Dan even to Beersheba knew that Samuel was established to be a prophet of Yahweh.

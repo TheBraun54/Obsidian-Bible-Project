@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the brazen altar, and its grating of brass, its staves, and all its vessels, the laver and its base;
+the bronze altar, its grating of brass, its poles, all of its vessels, the basin and its base,

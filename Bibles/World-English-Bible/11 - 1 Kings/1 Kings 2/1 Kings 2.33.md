@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So shall their blood return upon the head of Joab, and upon the head of his seed for ever: but unto David, and unto his seed, and unto his house, and unto his throne, shall there be peace for ever from Jehovah.
+So shall their blood return on the head of Joab, and on the head of his seed forever. But to David, and to his seed, and to his house, and to his throne, there shall be peace forever from Yahweh."

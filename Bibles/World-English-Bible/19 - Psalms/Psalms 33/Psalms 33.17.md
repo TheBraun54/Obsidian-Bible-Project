@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A horse is a vain thing for safety; Neither doth he deliver any by his great power.
+A horse is a vain thing for safety, neither does he deliver any by his great power.

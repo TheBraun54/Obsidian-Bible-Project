@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arabia, and all the princes of Kedar, they were the merchants of thy hand; in lambs, and rams, and goats, in these were they thy merchants.
+Arabia, and all the princes of Kedar, they were the merchants of your hand; in lambs, and rams, and goats, in these were they your merchants.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he sacrificed unto the gods of Damascus, which smote him; and he said, Because the gods of the kings of Syria helped them, [therefore] will I sacrifice to them, that they may help me. But they were the ruin of him, and of all Israel.
+For he sacrificed to the gods of Damascus, which struck him; and he said, "Because the gods of the kings of Syria helped them, so I will sacrifice to them, that they may help me." But they were the ruin of him, and of all Israel.

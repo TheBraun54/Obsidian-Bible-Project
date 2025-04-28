@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Raise a song, and bring hither the timbrel, The pleasant harp with the psaltery.
+Raise a song, and bring here the tambourine, the pleasant lyre with the harp.

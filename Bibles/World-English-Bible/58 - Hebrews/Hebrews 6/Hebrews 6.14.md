@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, Surely blessing I will bless thee, and multiplying I will multiply thee.
+saying, "Surely blessing I will bless you, and multiplying I will multiply you."

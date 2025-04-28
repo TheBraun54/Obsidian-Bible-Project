@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, In this thou shalt know that I am Jehovah: behold, I will smite with the rod that is in my hand upon the waters which are in the river, and they shall be turned to blood.
+Thus says Yahweh, "In this you shall know that I am Yahweh. Behold, I will strike with the rod that is in my hand on the waters which are in the river, and they shall be turned to blood.

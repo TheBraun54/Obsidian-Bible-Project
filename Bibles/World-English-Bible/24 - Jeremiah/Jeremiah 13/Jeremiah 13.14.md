@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will dash them one against another, even the fathers and the sons together, saith Jehovah: I will not pity, nor spare, nor have compassion, that I should not destroy them.
+I will dash them one against another, even the fathers and the sons together, says Yahweh: I will not pity, nor spare, nor have compassion, that I should not destroy them.

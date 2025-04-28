@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ to wit], Jerusalem, and the cities of Judah, and the kings thereof, and the princes thereof, to make them a desolation, an astonishment, a hissing, and a curse, as it is this day;
+[to wit], Jerusalem, and the cities of Judah, and its kings, and its princes, to make them a desolation, an astonishment, a hissing, and a curse, as it is this day;

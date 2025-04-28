@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They abhor me, they stand aloof from me, And spare not to spit in my face.
+They abhor me, they stand aloof from me, and don't hesitate to spit in my face.

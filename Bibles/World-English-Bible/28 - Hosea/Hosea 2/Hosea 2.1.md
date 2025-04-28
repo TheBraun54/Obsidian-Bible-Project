@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Say ye unto your brethren, Ammi; and to your sisters, Ruhamah.
+"Say to your brothers, 'My people!' and to your sisters, 'My loved one!'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be still, ye inhabitants of the coast, thou whom the merchants of Sidon, that pass over the sea, have replenished.
+Be still, you inhabitants of the coast, you whom the merchants of Sidon, that pass over the sea, have replenished.

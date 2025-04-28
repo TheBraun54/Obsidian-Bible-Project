@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-when thou tillest the ground, it shall not henceforth yield unto thee its strength; a fugitive and a wanderer shalt thou be in the earth.
+From now on, when you till the ground, it won't yield its strength to you. You shall be a fugitive and a wanderer in the earth."

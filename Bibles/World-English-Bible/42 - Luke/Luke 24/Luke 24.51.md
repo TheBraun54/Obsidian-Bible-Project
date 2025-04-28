@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, while he blessed them, he parted from them, and was carried up into heaven.
+It happened, while he blessed them, that he withdrew from them, and was carried up into heaven.

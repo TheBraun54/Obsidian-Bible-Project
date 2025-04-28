@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So mightily grew the word of the Lord and prevailed.
+So the word of the Lord was growing and becoming mighty.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that rebuketh a man shall afterward find more favor Than he that flattereth with the tongue.
+One who rebukes a man will afterward find more favor than one who flatters with the tongue.

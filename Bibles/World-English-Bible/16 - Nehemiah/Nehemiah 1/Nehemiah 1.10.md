@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now these are thy servants and thy people, whom thou hast redeemed by thy great power, and by thy strong hand.
+"Now these are your servants and your people, whom you have redeemed by your great power, and by your strong hand.

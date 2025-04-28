@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the young man deferred not to do the thing, because he had delight in Jacob's daughter: and he was honored above all the house of his father.
+The young man didn't wait to do this thing, because he had delight in Jacob's daughter, and he was honored above all the house of his father.

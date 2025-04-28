@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they found fat pasture and good, and the land was wide, and quiet, and peaceable; for they that dwelt there aforetime were of Ham.
+They found fat pasture and good, and the land was wide, and quiet, and peaceable; for those who lived there before were of Ham.

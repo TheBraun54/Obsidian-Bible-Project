@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel did according to the word of Moses; and they asked of the Egyptians jewels of silver, and jewels of gold, and raiment:
+The children of Israel did according to the word of Moses; and they asked of the Egyptians jewels of silver, and jewels of gold, and clothing.

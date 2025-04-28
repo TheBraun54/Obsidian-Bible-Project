@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priests and the prophets and all the people heard Jeremiah speaking these words in the house of Jehovah.
+The priests and the prophets and all the people heard Jeremiah speaking these words in the house of Yahweh.

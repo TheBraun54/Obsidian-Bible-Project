@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if any man would go to law with thee, and take away thy coat, let him have thy cloak also.
+If anyone sues you to take away your coat, let him have your cloak also.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the Spirit entered into me, and set me upon my feet; and he spake with me, and said unto me, Go, shut thyself within thy house.
+Then the Spirit entered into me, and set me on my feet; and he spoke with me, and said to me, Go, shut yourself inside your house.

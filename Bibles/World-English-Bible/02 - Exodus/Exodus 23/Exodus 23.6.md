@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not wrest the justice [due] to thy poor in his cause.
+"You shall not deny justice to your poor people in their lawsuits.

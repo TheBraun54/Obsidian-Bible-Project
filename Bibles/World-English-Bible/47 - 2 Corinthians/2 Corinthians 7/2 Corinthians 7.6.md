@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless he that comforteth the lowly, [even] God, comforted us by the coming of Titus;
+Nevertheless, he who comforts the lowly, God, comforted us by the coming of Titus;

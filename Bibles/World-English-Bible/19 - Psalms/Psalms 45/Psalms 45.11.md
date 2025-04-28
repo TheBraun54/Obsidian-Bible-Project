@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So will the king desire thy beauty; For he is thy lord; And reverence thou him.
+So the king will desire your beauty, honor him, for he is your lord.

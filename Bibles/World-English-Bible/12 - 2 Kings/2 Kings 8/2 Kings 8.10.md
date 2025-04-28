@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elisha said unto him, Go, say unto him, Thou shalt surely recover; howbeit Jehovah hath showed me that he shall surely die.
+Elisha said to him, "Go, tell him, 'You shall surely recover;' however Yahweh has shown me that he shall surely die."

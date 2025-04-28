@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now will I break his yoke from off thee, and will burst thy bonds in sunder.
+Now will I break his yoke from off you, and will burst your bonds apart."

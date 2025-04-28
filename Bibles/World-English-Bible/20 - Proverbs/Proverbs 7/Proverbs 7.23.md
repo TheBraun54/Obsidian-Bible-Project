@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Till an arrow strike through his liver; As a bird hasteth to the snare, And knoweth not that it is for his life.
+Until an arrow strikes through his liver, as a bird hurries to the snare, and doesn't know that it will cost his life.

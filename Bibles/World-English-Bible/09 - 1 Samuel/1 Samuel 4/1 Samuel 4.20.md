@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And about the time of her death the women that stood by her said unto her, Fear not; for thou hast brought forth a son. But she answered not, neither did she regard it.
+About the time of her death the women who stood by her said to her, "Don't be afraid; for you have brought forth a son." But she didn't answer, neither did she regard it.

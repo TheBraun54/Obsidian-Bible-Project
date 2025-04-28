@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-having despoiled the principalities and the powers, he made a show of them openly, triumphing over them in it.
+having stripped the principalities and the powers, he made a show of them openly, triumphing over them in it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I charge [thee] in the sight of God, and of Christ Jesus, who shall judge the living and the dead, and by his appearing and his kingdom:
+I command you therefore before God and the Lord Jesus Christ, who will judge the living and the dead at his appearing and his Kingdom:

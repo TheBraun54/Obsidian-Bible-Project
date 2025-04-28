@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And for the unclean they shall take of the ashes of the burning of the sin-offering; and running water shall be put thereto in a vessel:
+"For the unclean they shall take of the ashes of the burning of the sin offering; and running water shall be put thereto in a vessel:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Jews that were in Shushan gathered themselves together on the fourteenth day also of the month Adar, and slew three hundred men in Shushan; but on the spoil they laid not their hand.
+The Jews who were in Shushan gathered themselves together on the fourteenth day also of the month Adar, and killed three hundred men in Shushan; but they didn't lay their hand on the spoil.

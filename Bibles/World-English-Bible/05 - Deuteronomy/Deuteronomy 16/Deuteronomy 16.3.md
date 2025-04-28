@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt eat no leavened bread with it; seven days shalt thou eat unleavened bread therewith, even the bread of affliction; for thou camest forth out of the land of Egypt in haste: that thou mayest remember the day when thou camest forth out of the land of Egypt all the days of thy life.
+You shall eat no leavened bread with it. You shall eat unleavened bread with it seven days, even the bread of affliction; for you came forth out of the land of Egypt in haste: that you may remember the day when you came forth out of the land of Egypt all the days of your life.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Out of the north cometh golden splendor: God hath upon him terrible majesty.
+Out of the north comes golden splendor. With God is awesome majesty.

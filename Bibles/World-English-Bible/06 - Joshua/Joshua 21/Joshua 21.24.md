@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Aijalon with its suburbs, Gath-rimmon with its suburbs; four cities.
+Aijalon with its suburbs, Gath Rimmon with its suburbs; four cities.

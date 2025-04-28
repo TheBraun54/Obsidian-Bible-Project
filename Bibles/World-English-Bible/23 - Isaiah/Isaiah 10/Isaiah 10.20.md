@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, that the remnant of Israel, and they that are escaped of the house of Jacob, shall no more again lean upon him that smote them, but shall lean upon Jehovah, the Holy One of Israel, in truth.
+It will come to pass in that day that the remnant of Israel, and those who have escaped from the house of Jacob will no more again lean on him who struck them, but shall lean on Yahweh, the Holy One of Israel, in truth.

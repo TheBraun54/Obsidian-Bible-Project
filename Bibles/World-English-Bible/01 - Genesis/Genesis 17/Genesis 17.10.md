@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is my covenant, which ye shall keep, between me and you and thy seed after thee: every male among you shall be circumcised.
+This is my covenant, which you shall keep, between me and you and your seed after you. Every male among you shall be circumcised.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto the world because of occasions of stumbling! for it must needs be that the occasions come; but woe to that man through whom the occasion cometh!
+"Woe to the world because of occasions of stumbling! For it must be that the occasions come, but woe to that person through whom the occasion comes!

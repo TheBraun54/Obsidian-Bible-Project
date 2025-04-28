@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For perhaps he was therefore parted [from thee] for a season, that thou shouldest have him for ever;
+For perhaps he was therefore separated from you for a while, that you would have him forever,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When they are heated, I will make their feast, and I will make them drunken, that they may rejoice, and sleep a perpetual sleep, and not wake, saith Jehovah.
+When they are heated, I will make their feast, and I will make them drunken, that they may rejoice, and sleep a perpetual sleep, and not wake, says Yahweh.

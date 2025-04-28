@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But she is happier if she abide as she is, after my judgment: and I think that I also have the Spirit of God.
+But she is happier if she stays as she is, in my judgment, and I think that I also have God's Spirit.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Nathan said unto David, Do all that is in thy heart; for God is with thee.
+Nathan said to David, "Do all that is in your heart; for God is with you."

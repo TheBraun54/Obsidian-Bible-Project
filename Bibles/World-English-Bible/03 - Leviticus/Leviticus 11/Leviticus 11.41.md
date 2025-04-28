@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every creeping thing that creepeth upon the earth is an abomination; it shall not be eaten.
+"'Every creeping thing that creeps on the earth is an abomination. It shall not be eaten.

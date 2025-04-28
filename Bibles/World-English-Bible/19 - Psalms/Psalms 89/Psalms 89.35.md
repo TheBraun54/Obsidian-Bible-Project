@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Once have I sworn by my holiness: I will not lie unto David:
+Once have I sworn by my holiness, I will not lie to David.

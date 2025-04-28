@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he that is mighty hath done to me great things; And holy is his name.
+For he who is mighty has done great things for me. Holy is his name.

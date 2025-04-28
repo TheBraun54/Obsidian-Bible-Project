@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also they were over the bearers of burdens, and set forward all that did the work in every manner of service: and of the Levites there were scribes, and officers, and porters.
+Also they were over the bearers of burdens, and set forward all who did the work in every kind of service: and of the Levites there were scribes, and officers, and porters.

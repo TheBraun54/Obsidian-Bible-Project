@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore then hast thou brought me forth out of the womb? I had given up the ghost, and no eye had seen me.
+"'Why, then, have you brought me forth out of the womb? I wish I had given up the spirit, and no eye had seen me.

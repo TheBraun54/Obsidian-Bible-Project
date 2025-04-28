@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is anything too hard for Jehovah? At the set time I will return unto thee, when the season cometh round, and Sarah shall have a son.
+Is anything too hard for Yahweh? At the set time I will return to you, when the season comes round, and Sarah will have a son."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I would have you to be free from cares. He that is unmarried is careful for the things of the Lord, how he may please the Lord:
+But I desire to have you to be free from cares. He who is unmarried is concerned for the things of the Lord, how he may please the Lord;

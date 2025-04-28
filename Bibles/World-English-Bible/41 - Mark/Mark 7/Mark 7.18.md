@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he saith unto them, Are ye so without understanding also? Perceive ye not, that whatsoever from without goeth into the man, [it] cannot defile him;
+He said to them, "Are you thus without understanding also? Don't you perceive that whatever goes into the man from outside can't defile him,

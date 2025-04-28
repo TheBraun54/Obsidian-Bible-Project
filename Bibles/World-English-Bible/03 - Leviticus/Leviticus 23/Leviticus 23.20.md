@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall wave them with the bread of the first-fruits for a wave-offering before Jehovah, with the two lambs: they shall be holy to Jehovah for the priest.
+The priest shall wave them with the bread of the first fruits for a wave offering before Yahweh, with the two lambs. They shall be holy to Yahweh for the priest.

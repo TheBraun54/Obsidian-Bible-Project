@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wisdom is as good as an inheritance; yea, more excellent is it for them that see the sun.
+Wisdom is as good as an inheritance. Yes, it is more excellent for those who see the sun.

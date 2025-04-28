@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As Jehovah commanded Moses, so the children of Israel did; and they divided the land.
+The children of Israel did as Yahweh commanded Moses, and they divided the land.

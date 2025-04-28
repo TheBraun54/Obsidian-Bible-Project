@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O ye sons of men, how long shall my glory be turned into dishonor? [How long] will ye love vanity, and seek after falsehood? {{Selah
+You sons of men, how long shall my glory be turned into dishonor? Will you love vanity, and seek after falsehood? Selah.

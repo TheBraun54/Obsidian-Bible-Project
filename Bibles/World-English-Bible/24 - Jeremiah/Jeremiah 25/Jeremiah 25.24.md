@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and all the kings of Arabia, and all the kings of the mingled people that dwell in the wilderness;
+and all the kings of Arabia, and all the kings of the mixed people who dwell in the wilderness;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh that they were wise, that they understood this, That they would consider their latter end!
+Oh that they were wise, that they understood this, that they would consider their latter end!

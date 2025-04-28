@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For my people are foolish, they know me not; they are sottish children, and they have no understanding; they are wise to do evil, but to do good they have no knowledge.
+"For my people are foolish, they don't know me. They are foolish children, and they have no understanding. They are skillful in doing evil, but to do good they have no knowledge."

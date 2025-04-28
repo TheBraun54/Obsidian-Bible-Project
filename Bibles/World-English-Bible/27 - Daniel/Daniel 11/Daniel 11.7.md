@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But out of a shoot from her roots shall one stand up in his place, who shall come unto the army, and shall enter into the fortress of the king of the north, and shall deal against them, and shall prevail.
+But out of a shoot from her roots shall one stand up in his place, who shall come to the army, and shall enter into the fortress of the king of the north, and shall deal against them, and shall prevail.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now a mediator is not [a mediator] of one; but God is one.
+Now a mediator is not between one, but God is one.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, behold, the king walketh before you; and I am old and grayheaded; and, behold, my sons are with you: and I have walked before you from my youth unto this day.
+Now, behold, the king walks before you; and I am old and gray-headed; and behold, my sons are with you: and I have walked before you from my youth to this day.

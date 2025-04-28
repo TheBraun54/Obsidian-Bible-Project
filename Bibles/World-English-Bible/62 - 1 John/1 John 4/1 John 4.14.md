@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we have beheld and bear witness that the Father hath sent the Son [to be] the Saviour of the world.
+We have seen and testify that the Father has sent the Son as the Savior of the world.

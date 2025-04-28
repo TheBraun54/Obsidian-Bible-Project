@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the lean and ill-favored kine did eat up the first seven fat kine:
+The thin and ugly cattle ate up the first seven fat cattle,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And by faith in his name hath his name made this man strong, whom ye behold and know: yea, the faith which is through him hath given him this perfect soundness in the presence of you all.
+By faith in his name, his name has made this man strong, whom you see and know. Yes, the faith which is through him has given him this perfect soundness in the presence of you all.

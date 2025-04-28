@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul said unto Samuel, I have sinned; for I have transgressed the commandment of Jehovah, and thy words, because I feared the people, and obeyed their voice.
+Saul said to Samuel, "I have sinned; for I have transgressed the commandment of Yahweh, and your words, because I feared the people, and obeyed their voice.

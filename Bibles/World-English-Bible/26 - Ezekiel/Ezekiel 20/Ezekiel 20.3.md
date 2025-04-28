@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, speak unto the elders of Israel, and say unto them, Thus saith the Lord Jehovah: Is it to inquire of me that ye are come? As I live, saith the Lord Jehovah, I will not be inquired of by you.
+Son of man, speak to the elders of Israel, and tell them, Thus says the Lord Yahweh: Is it to inquire of me that you have come? As I live, says the Lord Yahweh, I will not be inquired of by you.

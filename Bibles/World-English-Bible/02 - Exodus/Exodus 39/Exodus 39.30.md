@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they made the plate of the holy crown of pure gold, and wrote upon it a writing, like the engravings of a signet, HOLY TO JEHOVAH.
+They made the plate of the holy crown of pure gold, and wrote on it a writing, like the engravings of a signet: "HOLY TO YAHWEH."

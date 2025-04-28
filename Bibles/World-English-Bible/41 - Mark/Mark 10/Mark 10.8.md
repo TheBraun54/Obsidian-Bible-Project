@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the two shall become one flesh: so that they are no more two, but one flesh.
+and the two will become one flesh, so that they are no longer two, but one flesh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fearfulness and trembling are come upon me, And horror hath overwhelmed me.
+Fearfulness and trembling have come on me. Horror has overwhelmed me.

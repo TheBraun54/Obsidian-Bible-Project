@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-which he wrought in Christ, when he raised him from the dead, and made him to sit at his right hand in the heavenly [places] ,
+which he worked in Christ, when he raised him from the dead, and made him to sit at his right hand in the heavenly places,

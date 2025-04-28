@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My breath is strange to my wife, And my supplication to the children of mine own mother.
+My breath is offensive to my wife. I am loathsome to the children of my own mother.

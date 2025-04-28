@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he knoweth false men: He seeth iniquity also, even though he consider it not.
+For he knows false men. He sees iniquity also, even though he doesn't consider it.

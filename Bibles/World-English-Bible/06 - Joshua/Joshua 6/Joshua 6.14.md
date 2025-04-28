@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the second day they compassed the city once, and returned into the camp: so they did six days.
+The second day they marched around the city once, and returned into the camp. They did this six days.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Philistines were afraid, for they said, God is come into the camp. And they said, Woe unto us! for there hath not been such a thing heretofore.
+The Philistines were afraid, for they said, "God has come into the camp." They said, "Woe to us! For there has not been such a thing before.

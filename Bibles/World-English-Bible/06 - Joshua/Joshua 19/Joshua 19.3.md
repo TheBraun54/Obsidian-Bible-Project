@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Hazar-shual, and Balah, and Ezem,
+Hazar Shual, Balah, Ezem,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the men of the place asked him of his wife; and he said, She is my sister: for he feared to say, My wife; lest, [said he], the men of the place should kill me for Rebekah; because she was fair to look upon.
+The men of the place asked him about his wife. He said, "She is my sister," for he was afraid to say, "My wife," lest, he thought, "the men of the place might kill me for Rebekah, because she is beautiful to look at."

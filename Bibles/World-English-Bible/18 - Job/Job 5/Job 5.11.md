@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So that he setteth up on high those that are low, And those that mourn are exalted to safety.
+so that he sets up on high those who are low, those who mourn are exalted to safety.

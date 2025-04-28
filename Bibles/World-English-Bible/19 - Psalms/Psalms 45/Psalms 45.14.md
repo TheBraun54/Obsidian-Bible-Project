@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She shall be led unto the king in broidered work: The virgins her companions that follow her Shall be brought unto thee.
+She shall be led to the king in embroidered work. The virgins, her companions who follow her, shall be brought to you.

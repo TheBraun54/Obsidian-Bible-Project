@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the day long he dealeth graciously, and lendeth; And his seed is blessed.
+All day long he deals graciously, and lends. His seed is blessed.

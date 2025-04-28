@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Walk about Zion, and go round about her; Number the towers thereof;
+Walk about Zion, and go around her. Number its towers.

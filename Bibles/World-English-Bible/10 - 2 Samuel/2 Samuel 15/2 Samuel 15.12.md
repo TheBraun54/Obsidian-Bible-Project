@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Absalom sent for Ahithophel the Gilonite, David's counsellor, from his city, even from Giloh, while he was offering the sacrifices. And the conspiracy was strong; for the people increased continually with Absalom.
+Absalom sent for Ahithophel the Gilonite, David's counselor, from his city, even from Giloh, while he was offering the sacrifices. The conspiracy was strong; for the people increased continually with Absalom.

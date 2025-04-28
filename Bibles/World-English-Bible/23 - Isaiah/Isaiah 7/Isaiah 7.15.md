@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Butter and honey shall he eat, when he knoweth to refuse the evil, and choose the good.
+He shall eat butter and honey when he knows to refuse the evil, and choose the good.

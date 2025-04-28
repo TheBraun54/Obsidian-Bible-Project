@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-merchandise of gold, and silver, and precious stone, and pearls, and fine linen, and purple, and silk, and scarlet; and all thyine wood, and every vessel of ivory, and every vessel made of most precious wood, and of brass, and iron, and marble;
+merchandise of gold, silver, precious stones, pearls, fine linen, purple, silk, scarlet, all expensive wood, every vessel of ivory, every vessel made of most precious wood, and of brass, and iron, and marble;

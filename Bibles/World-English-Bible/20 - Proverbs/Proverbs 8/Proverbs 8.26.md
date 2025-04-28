@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-While as yet he had not made the earth, nor the fields, Nor the beginning of the dust of the world.
+while as yet he had not made the earth, nor the fields, nor the beginning of the dust of the world.

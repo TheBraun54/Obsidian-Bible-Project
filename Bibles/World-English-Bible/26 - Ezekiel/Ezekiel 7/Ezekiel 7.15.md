@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sword is without, and the pestilence and the famine within: he that is in the field shall die with the sword: and he that is in the city, famine and pestilence shall devour him.
+The sword is outside, and the pestilence and the famine within: he who is in the field shall die with the sword: and he who is in the city, famine and pestilence shall devour him.

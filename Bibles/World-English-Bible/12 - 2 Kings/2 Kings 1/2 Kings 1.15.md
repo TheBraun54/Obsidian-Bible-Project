@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel of Jehovah said unto Elijah, Go down with him: be not afraid of him. And he arose, and went down with him unto the king.
+The angel of Yahweh said to Elijah, "Go down with him. Don't be afraid of him." He arose, and went down with him to the king.

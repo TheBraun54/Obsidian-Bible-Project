@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Rabbith, and Kishion, and Ebez,
+Rabbith, Kishion, Ebez,

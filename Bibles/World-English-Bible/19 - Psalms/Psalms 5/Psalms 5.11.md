@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But let all those that take refuge in thee rejoice, Let them ever shout for joy, because thou defendest them: Let them also that love thy name be joyful in thee.
+But let all those who take refuge in you rejoice, Let them always shout for joy, because you defend them. Let them also who love your name be joyful in you.

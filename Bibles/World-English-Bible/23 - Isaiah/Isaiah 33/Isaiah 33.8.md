@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The highways lie waste, the wayfaring man ceaseth: [the enemy] hath broken the covenant, he hath despised the cities, he regardeth not man.
+The highways are desolate. The traveling man ceases. The covenant is broken. He has despised the cities. He doesn't respect man.

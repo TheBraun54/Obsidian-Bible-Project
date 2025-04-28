@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Else, if thou wilt not let my people go, behold, I will send swarms of flies upon thee, and upon they servants, and upon thy people, and into thy houses: and the houses of the Egyptians shall be full of swarms of flies, and also the ground whereon they are.
+Else, if you will not let my people go, behold, I will send swarms of flies on you, and on your servants, and on your people, and into your houses: and the houses of the Egyptians shall be full of swarms of flies, and also the ground whereon they are.

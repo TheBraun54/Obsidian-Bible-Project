@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he remembered for them his covenant, And repented according to the multitude of his lovingkindnesses.
+He remembered for them his covenant, and repented according to the multitude of his loving kindnesses.

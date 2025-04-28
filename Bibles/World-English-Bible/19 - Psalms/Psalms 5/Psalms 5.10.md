@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hold them guilty, O God; Let them fall by their own counsels; Thrust them out in the multitude of their transgressions; For they have rebelled against thee.
+Hold them guilty, God. Let them fall by their own counsels; Thrust them out in the multitude of their transgressions, for they have rebelled against you.

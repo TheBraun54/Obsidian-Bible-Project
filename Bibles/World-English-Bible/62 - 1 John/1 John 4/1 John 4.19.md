@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We love, because he first loved us.
+We love him, because he first loved us.

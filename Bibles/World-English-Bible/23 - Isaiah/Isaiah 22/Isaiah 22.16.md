@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What doest thou here? and whom has thou here, that thou hast hewed thee out here a sepulchre? hewing him out a sepulchre on high, graving a habitation for himself in the rock!
+'What are you doing here? Who has you here, that you have dug out a tomb here?' Cutting himself out a tomb on high, chiseling a habitation for himself in the rock!"

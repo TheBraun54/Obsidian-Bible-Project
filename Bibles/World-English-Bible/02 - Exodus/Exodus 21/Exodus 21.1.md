@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now these are the ordinances which thou shalt set before them.
+"Now these are the ordinances which you shall set before them.

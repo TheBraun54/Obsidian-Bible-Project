@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when the Jews spake against it, I was constrained to appeal unto Caesar; not that I had aught whereof to accuse my nation.
+But when the Jews spoke against it, I was constrained to appeal to Caesar, not that I had anything about which to accuse my nation.

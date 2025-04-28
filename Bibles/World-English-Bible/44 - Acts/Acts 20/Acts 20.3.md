@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had spent three months [there], and a plot was laid against him by Jews as he was about to set sail for Syria, he determined to return through Macedonia.
+When he had spent three months there, and a plot was made against him by Jews as he was about to set sail for Syria, he determined to return through Macedonia.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore pray not thou for this people, neither lift up cry nor prayer for them; for I will not hear them in the time that they cry unto me because of their trouble.
+Therefore don't pray for this people, neither lift up cry nor prayer for them; for I will not hear them in the time that they cry to me because of their trouble.

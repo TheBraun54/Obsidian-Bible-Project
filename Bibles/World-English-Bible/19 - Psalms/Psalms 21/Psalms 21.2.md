@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast given him his heart's desire, And hast not withholden the request of his lips. {{Selah
+You have given him his heart's desire, and have not withheld the request of his lips. Selah.

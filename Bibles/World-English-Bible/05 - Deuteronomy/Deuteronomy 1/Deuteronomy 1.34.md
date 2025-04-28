@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah heard the voice of your words, and was wroth, and sware, saying,
+Yahweh heard the voice of your words, and was angry, and swore, saying,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when his armorbearer saw that Saul was dead, he likewise fell upon his sword, and died with him.
+When his armor bearer saw that Saul was dead, he likewise fell on his sword, and died with him.

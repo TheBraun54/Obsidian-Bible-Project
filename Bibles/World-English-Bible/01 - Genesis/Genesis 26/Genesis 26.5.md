@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because that Abraham obeyed my voice, and kept my charge, my commandments, my statutes, and my laws.
+because Abraham obeyed my voice, and kept my requirements, my commandments, my statutes, and my laws."

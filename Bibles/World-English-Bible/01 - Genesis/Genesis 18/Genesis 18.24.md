@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Peradventure there are fifty righteous within the city: wilt thou consume and not spare the place for the fifty righteous that are therein?
+What if there are fifty righteous within the city? Will you consume and not spare the place for the fifty righteous who are in it?

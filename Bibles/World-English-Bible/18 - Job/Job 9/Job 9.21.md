@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am perfect; I regard not myself; I despise my life.
+I am blameless. I don't respect myself. I despise my life.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now we have been discharged from the law, having died to that wherein we were held; so that we serve in newness of the spirit, and not in oldness of the letter.
+But now we have been discharged from the law, having died to that in which we were held; so that we serve in newness of the spirit, and not in oldness of the letter.

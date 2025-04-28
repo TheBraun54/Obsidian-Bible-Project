@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, correct me, but in measure: not in thine anger, lest thou bring me to nothing.
+Yahweh, correct me, but in measure: not in your anger, lest you bring me to nothing.

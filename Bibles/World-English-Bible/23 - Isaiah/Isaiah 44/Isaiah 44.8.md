@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fear ye not, neither be afraid: have I not declared unto thee of old, and showed it? and ye are my witnesses. Is there a God besides me? yea, there is no Rock; I know not any.
+Don't fear, neither be afraid. Haven't I declared it to you long ago, and shown it? You are my witnesses. Is there a God besides me? Indeed, there is not. I don't know any other Rock."

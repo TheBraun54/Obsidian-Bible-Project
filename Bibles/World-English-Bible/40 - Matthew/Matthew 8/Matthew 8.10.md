@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Jesus heard it, he marvelled, and said to them that followed, Verily I say unto you, I have not found so great faith, no, not in Israel.
+When Jesus heard it, he marveled, and said to those who followed, "Most certainly I tell you, I haven't found so great a faith, not even in Israel.

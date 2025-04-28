@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now there was a certain disciple at Damascus, named Ananias; and the Lord said unto him in a vision, Ananias. And he said, Behold, I [am here], Lord.
+Now there was a certain disciple at Damascus named Ananias. The Lord said to him in a vision, "Ananias!" He said, "Behold, it's me, Lord."

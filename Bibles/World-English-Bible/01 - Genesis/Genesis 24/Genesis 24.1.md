@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham was old, [and] well stricken in age: and Jehovah had blessed Abraham in all things.
+Abraham was old, and well stricken in age. Yahweh had blessed Abraham in all things.

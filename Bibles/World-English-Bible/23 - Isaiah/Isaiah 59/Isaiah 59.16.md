@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he saw that there was no man, and wondered that there was no intercessor: therefore his own arm brought salvation unto him; and his righteousness, it upheld him.
+He saw that there was no man, and wondered that there was no intercessor: therefore his own arm brought salvation to him; and his righteousness, it upheld him.

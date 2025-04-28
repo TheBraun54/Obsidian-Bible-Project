@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thine eye shall not pity him, but thou shalt put away the innocent blood from Israel, that it may go well with thee.
+Your eye shall not pity him, but you shall put away the innocent blood from Israel, that it may go well with you.

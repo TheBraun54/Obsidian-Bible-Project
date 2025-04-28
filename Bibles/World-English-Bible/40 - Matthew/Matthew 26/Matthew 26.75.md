@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Peter remembered the word which Jesus had said, Before the cock crow, thou shalt deny me thrice. And he went out, and wept bitterly.
+Peter remembered the word which Jesus had said to him, "Before the rooster crows, you will deny me three times." He went out and wept bitterly.

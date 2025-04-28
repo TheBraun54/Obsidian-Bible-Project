@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came to Elim, where were twelve springs of water, and threescore and ten palm-trees: and they encamped there by the waters.
+They came to Elim, where there were twelve springs of water, and seventy palm trees: and they encamped there by the waters.

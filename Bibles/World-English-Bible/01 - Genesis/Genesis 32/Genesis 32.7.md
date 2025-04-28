@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jacob was greatly afraid and was distressed: and he divided the people that were with him, and the flocks, and the herds, and the camels, into two companies;
+Then Jacob was greatly afraid and was distressed. He divided the people who were with him, and the flocks, and the herds, and the camels, into two companies;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My heart is smitten like grass, and withered; For I forget to eat my bread.
+My heart is blighted like grass, and withered, for I forget to eat my bread.

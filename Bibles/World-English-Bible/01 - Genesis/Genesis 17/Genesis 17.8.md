@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will give unto thee, and to thy seed after thee, the land of thy sojournings, all the land of Canaan, for an everlasting possession; and I will be their God.
+I will give to you, and to your seed after you, the land where you are traveling, all the land of Canaan, for an everlasting possession. I will be their God."

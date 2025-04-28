@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and rend your heart, and not your garments, and turn unto Jehovah your God; for he is gracious and merciful, slow to anger, and abundant in lovingkindness, and repenteth him of the evil.
+Tear your heart, and not your garments, and turn to Yahweh, your God; for he is gracious and merciful, slow to anger, and abundant in loving kindness, and relents from sending calamity.

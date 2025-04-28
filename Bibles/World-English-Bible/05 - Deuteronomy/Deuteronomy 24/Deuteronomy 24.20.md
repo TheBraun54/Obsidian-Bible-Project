@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou beatest thine olive-tree, thou shalt not go over the boughs again: it shall be for the sojourner, for the fatherless, and for the widow.
+When you beat your olive tree, you shall not go over the boughs again: it shall be for the foreigner, for the fatherless, and for the widow.

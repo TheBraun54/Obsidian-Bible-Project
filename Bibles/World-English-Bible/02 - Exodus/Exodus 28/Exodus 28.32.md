@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall have a hole for the head in the midst thereof: it shall have a binding of woven work round about the hole of it, as it were the hole of a coat of mail, that it be not rent.
+It shall have a hole for the head in its midst: it shall have a binding of woven work around its hole, as it were the hole of a coat of mail, that it not be torn.

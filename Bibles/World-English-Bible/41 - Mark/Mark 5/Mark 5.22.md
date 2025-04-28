@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there cometh one of the rulers of the synagogue, Jairus by name; and seeing him, he falleth at his feet,
+Behold, one of the rulers of the synagogue, Jairus by name, came; and seeing him, he fell at his feet,

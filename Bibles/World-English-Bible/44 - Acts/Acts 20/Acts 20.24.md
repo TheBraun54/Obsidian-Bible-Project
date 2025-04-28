@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I hold not my life of any account as dear unto myself, so that I may accomplish my course, and the ministry which I received from the Lord Jesus, to testify the gospel of the grace of God.
+But these things don't count; nor do I hold my life dear to myself, so that I may finish my race with joy, and the ministry which I received from the Lord Jesus, to fully testify to the Good News of the grace of God.

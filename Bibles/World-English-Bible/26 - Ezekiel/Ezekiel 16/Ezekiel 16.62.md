@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will establish my covenant with thee; and thou shalt know that I am Jehovah;
+I will establish my covenant with you; and you shall know that I am Yahweh;

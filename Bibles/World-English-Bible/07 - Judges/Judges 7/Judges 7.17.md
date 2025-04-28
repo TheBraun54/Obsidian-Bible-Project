@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Look on me, and do likewise: and, behold, when I come to the outermost part of the camp, it shall be that, as I do, so shall ye do.
+He said to them, "Watch me, and do likewise. Behold, when I come to the outermost part of the camp, it shall be that, as I do, so you shall do.

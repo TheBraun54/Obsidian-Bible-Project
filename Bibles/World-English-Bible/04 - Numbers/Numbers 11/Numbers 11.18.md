@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And say thou unto the people, Sanctify yourselves against to-morrow, and ye shall eat flesh; for ye have wept in the ears of Jehovah, saying, Who shall give us flesh to eat? for it was well with us in Egypt: therefore Jehovah will give you flesh, and ye shall eat.
+"Say to the people, 'Sanctify yourselves against tomorrow, and you will eat flesh; for you have wept in the ears of Yahweh, saying, "Who will give us flesh to eat? For it was well with us in Egypt." Therefore Yahweh will give you flesh, and you will eat.

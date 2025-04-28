@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But be ye doers of the word, and not hearers only, deluding your own selves.
+But be doers of the word, and not only hearers, deluding your own selves.

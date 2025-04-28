@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith the Lord Jehovah: Because ye have spoken falsehood, and seen lies, therefore, behold, I am against you, saith the Lord Jehovah.
+Therefore thus says the Lord Yahweh: Because you have spoken falsehood, and seen lies, therefore, behold, I am against you, says the Lord Yahweh.

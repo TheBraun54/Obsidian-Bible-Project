@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely at the commandment of Jehovah came this upon Judah, to remove them out of his sight, for the sins of Manasseh, according to all that he did,
+Surely at the commandment of Yahweh came this on Judah, to remove them out of his sight, for the sins of Manasseh, according to all that he did,

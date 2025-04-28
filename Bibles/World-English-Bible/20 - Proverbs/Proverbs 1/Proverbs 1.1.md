@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The proverbs of Solomon the son of David, king of Israel:
+The proverbs of Solomon, the son of David, king of Israel:

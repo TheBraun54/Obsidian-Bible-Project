@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Nebo, and Baal-meon, (their names being changed,) and Sibmah: and they gave other names unto the cities which they builded.
+and Nebo, and Baal Meon, (their names being changed), and Sibmah: and they gave other names to the cities which they built.

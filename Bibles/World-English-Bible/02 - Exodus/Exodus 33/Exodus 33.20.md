@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Thou canst not see my face; for man shall not see me and live.
+He said, "You cannot see my face, for man may not see me and live."

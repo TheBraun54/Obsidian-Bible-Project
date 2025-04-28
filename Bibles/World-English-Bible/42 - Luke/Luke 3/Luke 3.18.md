@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With many other exhortations therefore preached he good tidings unto the people;
+Then with many other exhortations he preached good news to the people,

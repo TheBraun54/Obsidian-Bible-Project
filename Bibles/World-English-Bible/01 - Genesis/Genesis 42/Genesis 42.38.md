@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, My son shall not go down with you; for his brother is dead, and he only is left: if harm befall him by the way in which ye go, then will ye bring down my gray hairs with sorrow to Sheol.
+He said, "My son shall not go down with you; for his brother is dead, and he only is left. If harm happens to him along the way in which you go, then you will bring down my gray hairs with sorrow to Sheol."

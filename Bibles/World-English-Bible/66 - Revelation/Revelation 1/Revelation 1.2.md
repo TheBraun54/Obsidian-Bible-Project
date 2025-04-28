@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who bare witness of the word of God, and of the testimony of Jesus Christ, [even] of all things that he saw.
+who testified to God's word, and of the testimony of Jesus Christ, about everything that he saw.

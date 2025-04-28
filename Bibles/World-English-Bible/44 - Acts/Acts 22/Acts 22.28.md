@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the chief captain answered, With a great sum obtained I this citizenship. And Paul said, But I am [a Roman] born.
+The commanding officer answered, "I bought my citizenship for a great price." Paul said, "But I was born a Roman."

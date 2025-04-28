@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Besides the continual burnt-offering, and the meal-offering thereof, ye shall offer them (they shall be unto you without blemish), and their drink-offerings.
+Besides the continual burnt offering, and the meal offering of it, you shall offer them (they shall be to you without blemish), and their drink offerings.

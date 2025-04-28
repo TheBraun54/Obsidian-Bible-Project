@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely the wrath of man shall praise thee: The residue of wrath shalt thou gird upon thee.
+Surely the wrath of man praises you. The survivors of your wrath are restrained.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said I, Ah, Lord Jehovah! behold, I know not how to speak; for I am a child.
+Then I said, "Ah, Lord Yahweh! Behold, I don't know how to speak; for I am a child."

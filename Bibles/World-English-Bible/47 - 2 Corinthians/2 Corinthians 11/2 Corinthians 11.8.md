@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I robbed other churches, taking wages [of them] that I might minister unto you;
+I robbed other assemblies, taking wages from them that I might serve you.

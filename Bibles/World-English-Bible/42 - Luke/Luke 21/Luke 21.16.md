@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye shall be delivered up even by parents, and brethren, and kinsfolk, and friends; and [some] of you shall they cause to be put to death.
+You will be handed over even by parents, brothers, relatives, and friends. They will cause some of you to be put to death.

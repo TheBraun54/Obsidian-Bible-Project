@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and saith unto him, If thou art the Son of God, cast thyself down: for it is written, He shall give his angels charge concerning thee: and, On their hands they shall bear thee up, lest haply thou dash thy foot against a stone.
+and said to him, "If you are the Son of God, throw yourself down, for it is written, 'He will put his angels in charge of you.' and, 'On their hands they will bear you up, so that you don't dash your foot against a stone.'"

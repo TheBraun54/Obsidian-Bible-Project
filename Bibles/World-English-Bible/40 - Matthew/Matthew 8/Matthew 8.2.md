@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, there came to him a leper and worshipped him, saying, Lord, if thou wilt, thou canst make me clean.
+Behold, a leper came to him and worshiped him, saying, "Lord, if you want to, you can make me clean."

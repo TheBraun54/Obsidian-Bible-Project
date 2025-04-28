@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I, behold, I establish my covenant with you, and with your seed after you;
+"As for me, behold, I establish my covenant with you, and with your offspring after you,

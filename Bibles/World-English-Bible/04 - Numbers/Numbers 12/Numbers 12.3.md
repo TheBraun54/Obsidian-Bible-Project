@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the man Moses was very meek, above all the men that were upon the face of the earth.
+Now the man Moses was very humble, above all the men who were on the surface of the earth.

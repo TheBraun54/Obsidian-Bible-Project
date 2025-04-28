@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah hath chosen Jacob unto himself, [And] Israel for his own possession.
+For Yah has chosen Jacob for himself; Israel for his own possession.

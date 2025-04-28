@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, lo, I raise up the Chaldeans, that bitter and hasty nation, that march through the breadth of the earth, to possess dwelling-places that are not theirs.
+For, behold, I raise up the Chaldeans, that bitter and hasty nation, that march through the breadth of the earth, to possess dwelling places that are not theirs.

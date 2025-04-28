@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in pureness, in knowledge, in long suffering, in kindness, in the Holy Spirit, in love unfeigned,
+in pureness, in knowledge, in patience, in kindness, in the Holy Spirit, in sincere love,

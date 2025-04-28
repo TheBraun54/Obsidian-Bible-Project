@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joab said, Jehovah make his people a hundred times as many as they are: but, my lord the king, are they not all my lord's servants? why doth my lord require this thing? why will he be a cause of guilt unto Israel?
+Joab said, "May Yahweh make his people a hundred times as many as they are. But, my lord the king, aren't they all my lord's servants? Why does my lord require this thing? Why will he be a cause of guilt to Israel?"

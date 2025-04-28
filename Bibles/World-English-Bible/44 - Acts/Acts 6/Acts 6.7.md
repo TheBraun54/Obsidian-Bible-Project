@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the word of God increased; and the number of the disciples multiplied in Jerusalem exceedingly; and a great company of the priests were obedient to the faith.
+The word of God increased and the number of the disciples multiplied in Jerusalem exceedingly. A great company of the priests were obedient to the faith.

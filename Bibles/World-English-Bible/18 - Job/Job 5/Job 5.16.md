@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the poor hath hope, And iniquity stoppeth her mouth.
+So the poor has hope, and injustice shuts her mouth.

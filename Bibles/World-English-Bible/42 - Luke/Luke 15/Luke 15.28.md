@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he was angry, and would not go in: and his father came out, and entreated him.
+But he was angry, and would not go in. Therefore his father came out, and begged him.

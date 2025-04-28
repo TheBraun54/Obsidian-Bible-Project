@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A righteous man regardeth the life of his beast; But the tender mercies of the wicked are cruel.
+A righteous man respects the life of his animal, but the tender mercies of the wicked are cruel.

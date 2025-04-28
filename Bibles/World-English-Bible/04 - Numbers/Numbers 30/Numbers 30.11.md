@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and her husband heard it, and held his peace at her, and disallowed her not; then all her vows shall stand, and every bond wherewith she bound her soul shall stand.
+and her husband heard it, and held his peace at her, and didn't disallow her; then all her vows shall stand, and every bond with which she bound her soul shall stand.

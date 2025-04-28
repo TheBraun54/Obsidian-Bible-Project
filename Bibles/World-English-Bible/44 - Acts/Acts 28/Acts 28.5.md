@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit he shook off the creature into the fire, and took no harm.
+However he shook off the creature into the fire, and wasn't harmed.

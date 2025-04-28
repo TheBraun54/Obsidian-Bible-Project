@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, there came a man named Jairus, and he was a ruler of the synagogue: and he fell down at Jesus' feet, and besought him to come into his house;
+Behold, there came a man named Jairus, and he was a ruler of the synagogue. He fell down at Jesus' feet, and begged him to come into his house,

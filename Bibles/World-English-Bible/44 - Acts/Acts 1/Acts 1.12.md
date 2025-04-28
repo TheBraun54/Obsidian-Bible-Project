@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then returned they unto Jerusalem from the mount called Olivet, which is nigh unto Jerusalem, a Sabbath day's journey off.
+Then they returned to Jerusalem from the mountain called Olivet, which is near Jerusalem, a Sabbath day's journey away.

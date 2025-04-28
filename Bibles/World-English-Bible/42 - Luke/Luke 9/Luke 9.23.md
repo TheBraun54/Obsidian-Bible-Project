@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto all, If any man would come after me, let him deny himself, and take up his cross daily, and follow me.
+He said to all, "If anyone desires to come after me, let him deny himself, take up his cross, and follow me.

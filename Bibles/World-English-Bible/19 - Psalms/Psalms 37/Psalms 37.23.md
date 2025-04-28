@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A man's goings are established of Jehovah; And he delighteth in his way.
+A man's goings are established by Yahweh. He delights in his way.

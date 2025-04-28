@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A divine sentence is in the lips of the king; His mouth shall not transgress in judgment.
+Inspired judgments are on the lips of the king. He shall not betray his mouth.

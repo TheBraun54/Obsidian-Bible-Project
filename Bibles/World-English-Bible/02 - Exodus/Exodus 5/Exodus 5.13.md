@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the taskmasters were urgent, saying, Fulfil your works, [your] daily tasks, as when there was straw.
+The taskmasters were urgent saying, "Fulfill your work quota daily, as when there was straw!"

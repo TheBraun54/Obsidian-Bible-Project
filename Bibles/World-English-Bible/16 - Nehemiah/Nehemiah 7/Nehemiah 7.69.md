@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ their] camels, four hundred thirty and five; [their] asses, six thousand seven hundred and twenty.
+[their] camels, four hundred thirty-five; [their] donkeys, six thousand seven hundred twenty.

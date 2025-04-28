@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and, On their hands they shall bear thee up, Lest haply thou dash thy foot against a stone.
+and, 'On their hands they will bear you up, lest perhaps you dash your foot against a stone.'"

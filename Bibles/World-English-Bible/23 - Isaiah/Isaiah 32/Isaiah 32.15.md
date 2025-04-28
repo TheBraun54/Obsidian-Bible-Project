@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-until the Spirit be poured upon us from on high, and the wilderness become a fruitful field, and the fruitful field be esteemed as a forest.
+Until the Spirit is poured on us from on high, and the wilderness becomes a fruitful field, and the fruitful field is considered a forest.

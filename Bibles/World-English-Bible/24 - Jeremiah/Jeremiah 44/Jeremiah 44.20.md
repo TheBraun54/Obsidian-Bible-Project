@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jeremiah said unto all the people, to the men, and to the women, even to all the people that had given him that answer, saying,
+Then Jeremiah said to all the people, to the men, and to the women, even to all the people who had given him an answer, saying,

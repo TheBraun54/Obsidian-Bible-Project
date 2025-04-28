@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he came also to Derbe and to Lystra: and behold, a certain disciple was there, named Timothy, the son of a Jewess that believed; but his father was a Greek.
+He came to Derbe and Lystra: and behold, a certain disciple was there, named Timothy, the son of a Jewess who believed; but his father was a Greek.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A wise son [heareth] his father's instruction; But a scoffer heareth not rebuke.
+A wise son listens to his father's instruction, but a scoffer doesn't listen to rebuke.

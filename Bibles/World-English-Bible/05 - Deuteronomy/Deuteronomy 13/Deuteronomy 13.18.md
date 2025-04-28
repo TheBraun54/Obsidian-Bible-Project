@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-when thou shalt hearken to the voice of Jehovah thy God, to keep all his commandments which I command thee this day, to do that which is right in the eyes of Jehovah thy God.
+when you shall listen to the voice of Yahweh your God, to keep all his commandments which I command you this day, to do that which is right in the eyes of Yahweh your God.

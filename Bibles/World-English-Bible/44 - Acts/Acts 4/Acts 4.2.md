@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-being sore troubled because they taught the people, and proclaimed in Jesus the resurrection from the dead.
+being upset because they taught the people and proclaimed in Jesus the resurrection from the dead.

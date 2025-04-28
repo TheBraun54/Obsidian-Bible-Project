@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sing unto God, sing praises to his name: Cast up a highway for him that rideth through the deserts; His name is Jehovah; and exult ye before him.
+Sing to God! Sing praises to his name! Extol him who rides on the clouds: to Yah, his name! Rejoice before him!

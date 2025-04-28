@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore I say unto you, Every sin and blasphemy shall be forgiven unto men; but the blasphemy against the Spirit shall not be forgiven.
+Therefore I tell you, every sin and blasphemy will be forgiven men, but the blasphemy against the Spirit will not be forgiven men.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and whosoever would be first among you, shall be servant of all.
+Whoever of you wants to become first among you, shall be bondservant of all.

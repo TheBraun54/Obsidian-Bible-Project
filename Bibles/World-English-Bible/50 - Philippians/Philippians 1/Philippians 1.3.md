@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I thank my God upon all my remembrance of you,
+I thank my God whenever I remember you,

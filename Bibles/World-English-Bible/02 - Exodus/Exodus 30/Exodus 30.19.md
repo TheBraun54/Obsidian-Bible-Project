@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Aaron and his sons shall wash their hands and their feet thereat:
+Aaron and his sons shall wash their hands and their feet in it.

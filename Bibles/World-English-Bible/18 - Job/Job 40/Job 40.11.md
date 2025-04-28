@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pour forth the overflowings of thine anger; And look upon every one that is proud, and abase him.
+Pour out the fury of your anger. Look at everyone who is proud, and bring him low.

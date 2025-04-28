@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thy estimation shall be of the male from twenty years old even unto sixty years old, even thy estimation shall be fifty shekels of silver, after the shekel of the sanctuary.
+Your valuation shall be of a male from twenty years old even to sixty years old, even your valuation shall be fifty shekels of silver, after the shekel of the sanctuary.

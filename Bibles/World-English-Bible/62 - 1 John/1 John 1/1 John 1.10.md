@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If we say that we have not sinned, we make him a liar, and his word is not in us.
+If we say that we haven't sinned, we make him a liar, and his word is not in us.

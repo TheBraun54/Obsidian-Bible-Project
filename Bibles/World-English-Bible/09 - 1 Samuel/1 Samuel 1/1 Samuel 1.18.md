@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said, Let thy handmaid find favor in thy sight. So the woman went her way, and did eat; and her countenance was no more [sad] .
+She said, "Let your handmaid find favor in your sight." So the woman went her way, and ate; and her facial expression wasn't sad any more.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah preserveth the simple: I was brought low, and he saved me.
+Yahweh preserves the simple. I was brought low, and he saved me.

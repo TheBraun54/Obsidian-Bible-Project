@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The law of Jehovah is perfect, restoring the soul: The testimony of Jehovah is sure, making wise the simple.
+Yahweh's law is perfect, restoring the soul. Yahweh's testimony is sure, making wise the simple.

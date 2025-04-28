@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They then that were about to examine him straightway departed from him: and the chief captain also was afraid when he knew that he was a Roman, and because he had bound him.
+Immediately those who were about to examine him departed from him, and the commanding officer also was afraid when he realized that he was a Roman, because he had bound him.

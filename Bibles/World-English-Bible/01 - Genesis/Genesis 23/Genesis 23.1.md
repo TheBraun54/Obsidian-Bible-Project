@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the life of Sarah was a hundred and seven and twenty years: these were the years of the life of Sarah.
+Sarah lived one hundred twenty-seven years. This was the length of Sarah's life.

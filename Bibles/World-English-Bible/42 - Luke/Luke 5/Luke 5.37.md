@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And no man putteth new wine into old wine-skins; else the new wine will burst the skins, and itself will be spilled, and the skins will perish.
+No one puts new wine into old wineskins, or else the new wine will burst the skins, and it will be spilled, and the skins will be destroyed.

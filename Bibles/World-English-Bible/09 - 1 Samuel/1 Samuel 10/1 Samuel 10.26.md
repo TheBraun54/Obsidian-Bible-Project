@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul also went to his house to Gibeah; and there went with him the host, whose hearts God had touched.
+Saul also went to his house to Gibeah; and there went with him the army, whose hearts God had touched.

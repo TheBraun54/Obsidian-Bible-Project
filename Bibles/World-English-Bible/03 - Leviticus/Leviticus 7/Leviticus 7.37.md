@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the law of the burnt-offering, of the meal-offering, and of the sin-offering, and of the trespass-offering, and of the consecration, and of the sacrifice of peace-offerings;
+This is the law of the burnt offering, of the meal offering, and of the sin offering, and of the trespass offering, and of the consecration, and of the sacrifice of peace offerings;

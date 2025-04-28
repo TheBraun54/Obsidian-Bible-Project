@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was entered into a boat, his disciples followed him.
+When he got into a boat, his disciples followed him.

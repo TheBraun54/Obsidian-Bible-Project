@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is again the second sign that Jesus did, having come out of Judaea into Galilee.
+This is again the second sign that Jesus did, having come out of Judea into Galilee.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Doth not wisdom cry, And understanding put forth her voice?
+Doesn't wisdom cry out? Doesn't understanding raise her voice?

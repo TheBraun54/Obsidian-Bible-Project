@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-how he entered into the house of God, and took and ate the showbread, and gave also to them that were with him; which it is not lawful to eat save for the priests alone?
+how he entered into the house of God, and took and ate the show bread, and gave also to those who were with him, which is not lawful to eat except for the priests alone?"

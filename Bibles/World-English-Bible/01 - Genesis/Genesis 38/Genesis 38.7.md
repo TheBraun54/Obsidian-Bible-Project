@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Er, Judah's first-born, was wicked in the sight of Jehovah; and Jehovah slew him.
+Er, Judah's firstborn, was wicked in the sight of Yahweh. Yahweh killed him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Saul to his servant, Well said; come, let us go. So they went unto the city where the man of God was.
+Then Saul said to his servant, "Well said. Come, let us go." So they went to the city where the man of God was.

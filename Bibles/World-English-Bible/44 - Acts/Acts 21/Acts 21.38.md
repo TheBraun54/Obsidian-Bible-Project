@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Art thou not then the Egyptian, who before these days stirred up to sedition and led out into the wilderness the four thousand men of the Assassins?
+Aren't you then the Egyptian, who before these days stirred up to sedition and led out into the wilderness the four thousand men of the Assassins?"

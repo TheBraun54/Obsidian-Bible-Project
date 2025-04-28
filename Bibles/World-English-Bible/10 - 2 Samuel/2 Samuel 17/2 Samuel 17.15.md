@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Hushai unto Zadok and to Abiathar the priests, Thus and thus did Ahithophel counsel Absalom and the elders of Israel; and thus and thus have I counselled.
+Then Hushai said to Zadok and to Abiathar the priests, "Ahithophel counseled Absalom and the elders of Israel that way; and I have counseled this way.

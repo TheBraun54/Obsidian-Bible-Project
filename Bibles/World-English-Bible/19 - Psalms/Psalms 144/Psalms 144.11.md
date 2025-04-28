@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rescue me, and deliver me out of the hand of aliens, Whose mouth speaketh deceit, And whose right hand is a right hand of falsehood.
+Rescue me, and deliver me out of the hands of foreigners, whose mouths speak deceit, whose right hand is a right hand of falsehood.

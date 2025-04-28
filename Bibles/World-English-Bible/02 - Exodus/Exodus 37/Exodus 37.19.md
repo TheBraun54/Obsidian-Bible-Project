@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-three cups made like almond-blossoms in one branch, a knop and a flower, and three cups made like almond-blossoms in the other branch, a knop and a flower: so for the six branches going out of the candlestick.
+three cups made like almond blossoms in one branch, a bud and a flower, and three cups made like almond blossoms in the other branch, a bud and a flower: so for the six branches going out of the lampstand.

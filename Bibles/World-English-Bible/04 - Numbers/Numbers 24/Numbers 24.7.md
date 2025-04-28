@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Water shall flow from his buckets, And his seed shall be in many waters, And his king shall be higher than Agag, And his kingdom shall be exalted.
+Water shall flow from his buckets. His seed shall be in many waters. His king shall be higher than Agag. His kingdom shall be exalted.

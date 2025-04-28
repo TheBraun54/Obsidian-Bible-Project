@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have seen his ways, and will heal him: I will lead him also, and restore comforts unto him and to his mourners.
+I have seen his ways, and will heal him: I will lead him also, and restore comforts to him and to his mourners.

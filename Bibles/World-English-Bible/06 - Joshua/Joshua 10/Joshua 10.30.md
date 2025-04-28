@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jehovah delivered it also, and the king thereof, into the hand of Israel; and he smote it with the edge of the sword, and all the souls that were therein; he left none remaining in it; and he did unto the king thereof as he had done unto the king of Jericho.
+Yahweh delivered it also, with its king, into the hand of Israel. He struck it with the edge of the sword, and all the souls who were in it. He left none remaining in it. He did to its king as he had done to the king of Jericho.

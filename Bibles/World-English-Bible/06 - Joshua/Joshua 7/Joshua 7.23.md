@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they took them from the midst of the tent, and brought them unto Joshua, and unto all the children of Israel; and they laid them down before Jehovah.
+They took them from the middle of the tent, and brought them to Joshua and to all the children of Israel. They laid them down before Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Two things have I asked of thee; Deny me [them] not before I die:
+"Two things I have asked of you; don't deny me before I die:

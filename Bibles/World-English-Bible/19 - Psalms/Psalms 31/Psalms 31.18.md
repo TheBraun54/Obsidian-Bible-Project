@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the lying lips be dumb, Which speak against the righteous insolently, With pride and contempt.
+Let the lying lips be mute, which speak against the righteous insolently, with pride and contempt.

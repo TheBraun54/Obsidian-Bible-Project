@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed be Jehovah God, the God of Israel, Who only doeth wondrous things:
+Praise be to Yahweh God, the God of Israel, who alone does marvelous deeds.

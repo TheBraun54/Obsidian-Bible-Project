@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Noah was five hundred years old: and Noah begat Shem, Ham, and Japheth.
+Noah was five hundred years old, and Noah became the father of Shem, Ham, and Japheth.

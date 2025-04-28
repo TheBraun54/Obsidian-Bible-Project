@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Nebo, fifty and two.
+The children of Nebo, fifty-two.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-not a novice, lest being puffed up he fall into the condemnation of the devil.
+not a new convert, lest being puffed up he fall into the same condemnation as the devil.

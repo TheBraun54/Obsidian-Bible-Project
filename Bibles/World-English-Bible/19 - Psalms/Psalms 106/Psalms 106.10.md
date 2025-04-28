@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he saved them from the hand of him that hated them, And redeemed them from the hand of the enemy.
+He saved them from the hand of him who hated them, and redeemed them from the hand of the enemy.

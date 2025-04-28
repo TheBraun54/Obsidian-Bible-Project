@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I exhort Euodia, and I exhort Syntyche, to be of the same mind in the Lord.
+I exhort Euodia, and I exhort Syntyche, to think the same way in the Lord.

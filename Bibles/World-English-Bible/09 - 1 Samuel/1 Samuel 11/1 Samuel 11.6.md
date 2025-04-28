@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Spirit of God came mightily upon Saul when he heard those words, and his anger was kindled greatly.
+The Spirit of God came mightily on Saul when he heard those words, and his anger was kindled greatly.

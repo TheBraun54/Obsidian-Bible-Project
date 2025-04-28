@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-save Caleb the son of Jephunneh: he shall see it; and to him will I give the land that he hath trodden upon, and to his children, because he hath wholly followed Jehovah.
+except Caleb the son of Jephunneh: he shall see it; and to him will I give the land that he has trodden on, and to his children, because he has wholly followed Yahweh."

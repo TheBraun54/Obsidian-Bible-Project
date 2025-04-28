@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sought to see Jesus who he was; and could not for the crowd, because he was little of stature.
+He was trying to see who Jesus was, and couldn't because of the crowd, because he was short.

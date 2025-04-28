@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then were the men exceedingly afraid, and said unto him, What is this that thou hast done? For the men knew that he was fleeing from the presence of Jehovah, because he had told them.
+Then were the men exceedingly afraid, and said to him, "What is this that you have done?" For the men knew that he was fleeing from the presence of Yahweh, because he had told them.

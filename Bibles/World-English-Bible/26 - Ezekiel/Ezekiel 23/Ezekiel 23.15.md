@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-girded with girdles upon their loins, with flowing turbans upon their heads, all of them princes to look upon, after the likeness of the Babylonians in Chaldea, the land of their nativity.
+dressed with girdles on their waists, with flowing turbans on their heads, all of them princes to look on, after the likeness of the Babylonians in Chaldea, the land of their birth.

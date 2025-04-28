@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the multitudes said, This is the prophet, Jesus, from Nazareth of Galilee.
+The multitudes said, "This is the prophet, Jesus, from Nazareth of Galilee."

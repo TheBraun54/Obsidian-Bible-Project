@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Which of you convicteth me of sin? If I say truth, why do ye not believe me?
+Which of you convicts me of sin? If I tell the truth, why do you not believe me?

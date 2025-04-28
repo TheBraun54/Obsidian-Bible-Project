@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not thou envious against evil men; Neither desire to be with them:
+Don't be envious of evil men; neither desire to be with them:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt take thereof a few in number, and bind them in thy skirts.
+You shall take of it a few in number, and bind them in your skirts.

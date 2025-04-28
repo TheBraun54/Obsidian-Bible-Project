@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I partake with thankfulness, why am I evil spoken of for that for which I give thanks?
+If I partake with thankfulness, why am I denounced for that for which I give thanks?

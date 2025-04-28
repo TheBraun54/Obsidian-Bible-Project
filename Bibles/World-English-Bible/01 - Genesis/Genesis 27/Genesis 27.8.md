@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, my son, obey my voice according to that which I command thee.
+Now therefore, my son, obey my voice according to that which I command you.

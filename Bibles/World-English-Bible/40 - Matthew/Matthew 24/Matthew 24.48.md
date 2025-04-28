@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if that evil servant shall say in his heart, My lord tarrieth;
+But if that evil servant should say in his heart, 'My lord is delaying his coming,'

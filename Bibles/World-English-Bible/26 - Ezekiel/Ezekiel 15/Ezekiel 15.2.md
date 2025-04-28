@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, what is the vine-tree more than any tree, the vine-branch which is among the trees of the forest?
+Son of man, what is the vine tree more than any tree, the vine-branch which is among the trees of the forest?

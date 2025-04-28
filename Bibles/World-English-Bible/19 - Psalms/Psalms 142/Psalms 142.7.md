@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bring my soul out of prison, That I may give thanks unto thy name: The righteous shall compass me about; For thou wilt deal bountifully with me.
+Bring my soul out of prison, that I may give thanks to your name. The righteous will surround me, for you will be good to me. A Psalm by David.

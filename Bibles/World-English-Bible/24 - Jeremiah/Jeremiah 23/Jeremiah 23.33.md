@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when this people, or the prophet, or a priest, shall ask thee, saying, What is the burden of Jehovah? then shalt thou say unto them, What burden! I will cast you off, saith Jehovah.
+When this people, or the prophet, or a priest, shall ask you, saying, What is the burden of Yahweh? Then you shall tell them, What burden! I will cast you off, says Yahweh.

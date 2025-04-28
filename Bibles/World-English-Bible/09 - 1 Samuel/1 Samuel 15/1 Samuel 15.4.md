@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul summoned the people, and numbered them in Telaim, two hundred thousand footmen, and ten thousand men of Judah.
+Saul summoned the people, and numbered them in Telaim, two hundred thousand footmen, and ten thousand men of Judah.

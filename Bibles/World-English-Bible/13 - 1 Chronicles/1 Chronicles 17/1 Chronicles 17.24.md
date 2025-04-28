@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And let thy name be established and magnified for ever, saying, Jehovah of hosts is the God of Israel, even a God to Israel: and the house of David thy servant is established before thee.
+Let your name be established and magnified forever, saying, 'Yahweh of Armies is the God of Israel, even a God to Israel. The house of David your servant is established before you.'

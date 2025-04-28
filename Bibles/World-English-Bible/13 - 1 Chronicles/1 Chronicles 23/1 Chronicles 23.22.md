@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Eleazar died, and had no sons, but daughters only: and their brethren the sons of Kish took them [to wife] .
+Eleazar died, and had no sons, but daughters only: and their brothers the sons of Kish took them [to wife].

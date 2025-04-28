@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore do the Jews of the villages, that dwell in the unwalled towns, make the fourteenth day of the month Adar [a day of] gladness and feasting, and a good day, and of sending portions one to another.
+Therefore the Jews of the villages, who live in the unwalled towns, make the fourteenth day of the month Adar a day of gladness and feasting, a good day, and a day of sending presents of food to one another.

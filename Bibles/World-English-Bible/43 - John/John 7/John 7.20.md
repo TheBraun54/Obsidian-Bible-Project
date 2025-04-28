@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The multitude answered, Thou hast a demon: who seeketh to kill thee?
+The multitude answered, "You have a demon! Who seeks to kill you?"

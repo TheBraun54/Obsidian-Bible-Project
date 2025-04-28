@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sing unto Jehovah, praise ye Jehovah; for he hath delivered the soul of the needy from the hand of evil-doers.
+Sing to Yahweh, praise Yahweh; for he has delivered the soul of the needy from the hand of evildoers.

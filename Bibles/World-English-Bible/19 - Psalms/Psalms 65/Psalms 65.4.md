@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed is the man whom thou choosest, and causest to approach [unto thee], That he may dwell in thy courts: We shall be satisfied with the goodness of thy house, Thy holy temple.
+Blessed is one whom you choose, and cause to come near, that he may live in your courts. We will be filled with the goodness of your house, your holy temple.

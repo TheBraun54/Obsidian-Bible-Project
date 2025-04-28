@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the sons of Ham, after their families, after their tongues, in their lands, in their nations.
+These are the sons of Ham, after their families, after their languages, in their lands, in their nations.

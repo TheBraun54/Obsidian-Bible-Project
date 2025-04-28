@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall two walk together, except they have agreed?
+Do two walk together, unless they have agreed?

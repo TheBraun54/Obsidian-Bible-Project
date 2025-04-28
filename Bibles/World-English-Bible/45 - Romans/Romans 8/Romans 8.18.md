@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I reckon that the sufferings of this present time are not worthy to be compared with the glory which shall be revealed to us-ward.
+For I consider that the sufferings of this present time are not worthy to be compared with the glory which will be revealed toward us.

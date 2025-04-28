@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To whom it was revealed, that not unto themselves, but unto you, did they minister these things, which now have been announced unto you through them that preached the gospel unto you by the Holy Spirit sent forth from heaven; which things angels desire to look into.
+To them it was revealed, that not to themselves, but to you, they ministered these things, which now have been announced to you through those who preached the Good News to you by the Holy Spirit sent out from heaven; which things angels desire to look into.

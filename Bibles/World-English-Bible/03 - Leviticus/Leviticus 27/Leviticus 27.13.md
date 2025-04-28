@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if he will indeed redeem it, then he shall add the fifth part thereof unto thy estimation.
+But if he will indeed redeem it, then he shall add the fifth part of it to its valuation.

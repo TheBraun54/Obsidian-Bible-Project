@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is the will of him that sent me, that of all that which he hath given me I should lose nothing, but should raise it up at the last day.
+This is the will of my Father who sent me, that of all he has given to me I should lose nothing, but should raise him up at the last day.

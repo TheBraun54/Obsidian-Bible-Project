@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou art different from [other] women in thy whoredoms, in that none followeth thee to play the harlot; and whereas thou givest hire, and no hire is given unto thee, therefore thou art different.
+You are different from [other] women in your prostitution, in that no one follows you to play the prostitute; and whereas you give hire, and no hire is given to you, therefore you are different.

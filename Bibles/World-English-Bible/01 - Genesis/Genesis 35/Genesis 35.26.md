@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the sons of Zilpah, Leah's handmaid: Gad and Asher: these are the sons of Jacob, that were born to him in Paddan-aram.
+The sons of Zilpah (Leah's handmaid): Gad and Asher. These are the sons of Jacob, who were born to him in Paddan Aram.

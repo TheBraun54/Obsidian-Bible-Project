@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when there had been much questioning, Peter rose up, and said unto them, Brethren, ye know that a good while ago God made choice among you, that by my mouth the Gentiles should hear the word of the gospel, and believe.
+When there had been much discussion, Peter rose up and said to them, "Brothers, you know that a good while ago God made a choice among you, that by my mouth the nations should hear the word of the Good News, and believe.

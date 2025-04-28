@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, see thou thy children's children. Peace be upon Israel.
+Yes, may you see your children's children. Peace be upon Israel. A Song of Ascents.

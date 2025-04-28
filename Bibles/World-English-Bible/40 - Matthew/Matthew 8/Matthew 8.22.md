@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus saith unto him, Follow me; and leave the dead to bury their own dead.
+But Jesus said to him, "Follow me, and leave the dead to bury their own dead."

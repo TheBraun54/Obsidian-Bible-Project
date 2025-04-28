@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham hastened into the tent unto Sarah, and said, Make ready quickly three measures of fine meal, knead it, and make cakes.
+Abraham hurried into the tent to Sarah, and said, "Quickly prepare three measures of fine meal, knead it, and make cakes."

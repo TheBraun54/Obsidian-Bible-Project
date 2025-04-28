@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-before the silver cord is loosed, or the golden bowl is broken, or the pitcher is broken at the fountain, or the wheel broken at the cistern,
+before the silver cord is severed, or the golden bowl is broken, or the pitcher is broken at the spring, or the wheel broken at the cistern,

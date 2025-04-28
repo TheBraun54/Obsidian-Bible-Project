@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came the word of Jehovah unto Jeremiah in Tahpanhes, saying,
+Then came the word of Yahweh to Jeremiah in Tahpanhes, saying,

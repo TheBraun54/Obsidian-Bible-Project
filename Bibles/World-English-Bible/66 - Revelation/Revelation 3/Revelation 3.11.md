@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I come quickly: hold fast that which thou hast, that no one take thy crown.
+I am coming quickly! Hold firmly that which you have, so that no one takes your crown.

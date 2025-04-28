@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah of hosts revealed himself in mine ears, Surely this iniquity shall not be forgiven you till ye die, saith the Lord, Jehovah of hosts.
+Yahweh of Armies revealed himself in my ears, "Surely this iniquity will not be forgiven you until you die," says the Lord, Yahweh of Armies.

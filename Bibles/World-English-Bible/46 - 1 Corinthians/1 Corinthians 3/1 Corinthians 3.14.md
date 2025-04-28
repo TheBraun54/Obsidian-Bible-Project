@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If any man's work shall abide which he built thereon, he shall receive a reward.
+If any man's work remains which he built on it, he will receive a reward.

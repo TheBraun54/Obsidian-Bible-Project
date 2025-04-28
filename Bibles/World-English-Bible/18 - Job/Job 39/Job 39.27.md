@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is it at thy command that the eagle mounteth up, And maketh her nest on high?
+Is it at your command that the eagle mounts up, and makes his nest on high?

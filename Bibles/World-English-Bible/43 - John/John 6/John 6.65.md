@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, For this cause have I said unto you, that no man can come unto me, except it be given unto him of the Father.
+He said, "For this cause have I said to you that no one can come to me, unless it is given to him by my Father."

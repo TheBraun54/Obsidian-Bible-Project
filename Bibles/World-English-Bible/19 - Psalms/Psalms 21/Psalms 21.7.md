@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the king trusteth in Jehovah; And through the lovingkindness of the Most High he shall not be moved.
+For the king trusts in Yahweh. Through the loving kindness of the Most High, he shall not be moved.

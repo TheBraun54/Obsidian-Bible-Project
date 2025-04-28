@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah of hosts, him shall ye sanctify; and let him be your fear, and let him be your dread.
+Yahweh of Armies is who you must respect as holy. He is the one you must fear. He is the one you must dread.

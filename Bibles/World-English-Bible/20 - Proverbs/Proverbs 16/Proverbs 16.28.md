@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A perverse man scattereth abroad strife; And a whisperer separateth chief friends.
+A perverse man stirs up strife. A whisperer separates close friends.

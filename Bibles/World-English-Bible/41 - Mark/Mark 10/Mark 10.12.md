@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and if she herself shall put away her husband, and marry another, she committeth adultery.
+If a woman herself divorces her husband, and marries another, she commits adultery."

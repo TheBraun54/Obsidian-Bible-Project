@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and in [your] knowledge self-control; and in [your] self-control patience; and in [your] patience godliness;
+and in knowledge, self-control; and in self-control patience; and in patience godliness;

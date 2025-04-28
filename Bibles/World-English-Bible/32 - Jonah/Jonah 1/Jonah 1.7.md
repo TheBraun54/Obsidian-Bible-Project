@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said every one to his fellow, Come, and let us cast lots, that we may know for whose cause this evil is upon us. So they cast lots, and the lot fell upon Jonah.
+They all said to each other, "Come, let us cast lots, that we may know who is responsible for this evil that is on us." So they cast lots, and the lot fell on Jonah.

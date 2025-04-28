@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-having been buried with him in baptism, wherein ye were also raised with him through faith in the working of God, who raised him from the dead.
+having been buried with him in baptism, in which you were also raised with him through faith in the working of God, who raised him from the dead.

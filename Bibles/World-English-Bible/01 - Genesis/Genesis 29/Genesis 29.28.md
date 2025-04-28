@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob did so, and fulfilled her week: and he gave him Rachel his daughter to wife.
+Jacob did so, and fulfilled her week. He gave him Rachel his daughter as wife.

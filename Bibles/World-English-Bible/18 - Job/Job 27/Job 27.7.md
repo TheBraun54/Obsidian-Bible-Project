@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let mine enemy be as the wicked, And let him that riseth up against me be as the unrighteous.
+"Let my enemy be as the wicked. Let him who rises up against me be as the unrighteous.

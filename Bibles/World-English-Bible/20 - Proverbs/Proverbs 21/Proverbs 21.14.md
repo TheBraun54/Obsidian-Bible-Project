@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A gift in secret pacifieth anger; And a present in the bosom, strong wrath.
+A gift in secret pacifies anger; and a bribe in the cloak, strong wrath.

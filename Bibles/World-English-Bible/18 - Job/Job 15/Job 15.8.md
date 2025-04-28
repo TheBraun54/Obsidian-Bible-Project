@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hast thou heard the secret counsel of God? And dost thou limit wisdom to thyself?
+Have you heard the secret counsel of God? Do you limit wisdom to yourself?

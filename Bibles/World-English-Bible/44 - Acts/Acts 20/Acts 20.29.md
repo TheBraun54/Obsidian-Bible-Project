@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I know that after my departing grievous wolves shall enter in among you, not sparing the flock;
+For I know that after my departure, vicious wolves will enter in among you, not sparing the flock.

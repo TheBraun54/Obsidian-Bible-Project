@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye husbands, in like manner, dwell with [your wives] according to knowledge, giving honor unto the woman, as unto the weaker vessel, as being also joint-heirs of the grace of life; to the end that your prayers be not hindered.
+You husbands, in the same way, live with your wives according to knowledge, giving honor to the woman, as to the weaker vessel, as being also joint heirs of the grace of life; that your prayers may not be hindered.

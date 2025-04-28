@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Diverse weights are an abomination to Jehovah; And a false balance is not good.
+Yahweh detests differing weights, and dishonest scales are not pleasing.

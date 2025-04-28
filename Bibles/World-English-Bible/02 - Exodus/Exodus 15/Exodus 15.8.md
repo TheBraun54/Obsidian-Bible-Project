@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And with the blast of thy nostrils the waters were piled up, The floods stood upright as a heap; The deeps were congealed in the heart of the sea.
+With the blast of your nostrils, the waters were piled up. The floods stood upright as a heap. The deeps were congealed in the heart of the sea.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The officers answered, Never man so spake.
+The officers answered, "No man ever spoke like this man!"

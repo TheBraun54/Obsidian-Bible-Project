@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he grew up before him as a tender plant, and as a root out of a dry ground: he hath no form nor comeliness; and when we see him, there is no beauty that we should desire him.
+For he grew up before him as a tender plant, and as a root out of dry ground. He has no form nor comeliness. When we see him, there is no beauty that we should desire him.

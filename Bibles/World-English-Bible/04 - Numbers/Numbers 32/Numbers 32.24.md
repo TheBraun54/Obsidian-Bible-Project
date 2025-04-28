@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Build you cities for your little ones, and folds for your sheep; and do that which hath proceeded out of your mouth.
+Build cities for your little ones, and folds for your sheep; and do that which has proceeded out of your mouth."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They therefore, being brought on their way by the church, passed through both Phoenicia and Samaria, declaring the conversion of the Gentiles: and they caused great joy unto all the brethren.
+They, being sent on their way by the assembly, passed through both Phoenicia and Samaria, declaring the conversion of the Gentiles. They caused great joy to all the brothers.

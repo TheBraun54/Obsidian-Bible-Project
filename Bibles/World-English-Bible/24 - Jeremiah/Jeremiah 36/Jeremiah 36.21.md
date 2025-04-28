@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the king sent Jehudi to fetch the roll; and he took it out of the chamber of Elishama the scribe. And Jehudi read it in the ears of the king, and in the ears of all the princes that stood beside the king.
+So the king sent Jehudi to get the scroll; and he took it out of the room of Elishama the scribe. Jehudi read it in the ears of the king, and in the ears of all the princes who stood beside the king.

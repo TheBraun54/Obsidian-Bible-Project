@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, This is Wickedness: and he cast her down into the midst of the ephah; and he cast the weight of lead upon the mouth thereof.
+He said, "This is Wickedness;" and he threw her down into the midst of the ephah basket; and he threw the weight of lead on its mouth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Lord be with thy spirit. Grace be with you.
+The Lord Jesus Christ be with your spirit. Grace be with you. Amen.

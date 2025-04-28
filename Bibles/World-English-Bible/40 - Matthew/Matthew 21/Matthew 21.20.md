@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the disciples saw it, they marvelled, saying, How did the fig tree immediately wither away?
+When the disciples saw it, they marveled, saying, "How did the fig tree immediately wither away?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Israel said to Jehoshaphat, Did I not tell thee that he would not prophesy good concerning me, but evil?
+The king of Israel said to Jehoshaphat, "Didn't I tell you that he would not prophesy good concerning me, but evil?"

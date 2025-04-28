@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall keep his charge, and the charge of the whole congregation before the tent of meeting, to do the service of the tabernacle.
+They shall keep his requirements, and the requirements of the whole congregation before the Tent of Meeting, to do the service of the tabernacle.

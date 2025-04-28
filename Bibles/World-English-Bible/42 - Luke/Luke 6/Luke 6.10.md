@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he looked round about on them all, and said unto him, Stretch forth thy hand. And he did [so] : and his hand was restored.
+He looked around at them all, and said to the man, "Stretch out your hand." He did, and his hand was restored as sound as the other.

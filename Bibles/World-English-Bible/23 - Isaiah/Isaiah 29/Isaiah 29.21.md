@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that make a man an offender in [his] cause, and lay a snare for him that reproveth in the gate, and turn aside the just with a thing of nought.
+who cause a person to be indicted by a word, and lay a snare for the arbiter in the gate, and who deprive the innocent of justice with false testimony.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Greater love hath no man than this, that a man lay down his life for his friends.
+Greater love has no one than this, that someone lay down his life for his friends.

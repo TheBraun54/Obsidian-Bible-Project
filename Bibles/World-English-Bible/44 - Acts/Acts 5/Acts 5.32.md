@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we are witnesses of these things; and [so is] the Holy Spirit, whom God hath given to them that obey him.
+We are His witnesses of these things; and so also is the Holy Spirit, whom God has given to those who obey him."

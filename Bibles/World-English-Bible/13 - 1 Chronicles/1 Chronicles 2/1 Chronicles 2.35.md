@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Sheshan gave his daughter to Jarha his servant to wife; and she bare him Attai.
+Sheshan gave his daughter to Jarha his servant as wife; and she bore him Attai.

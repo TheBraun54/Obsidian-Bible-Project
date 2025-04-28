@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, the King of Israel, and his Redeemer, Jehovah of hosts: I am the first, and I am the last; and besides me there is no God.
+This is what Yahweh, the King of Israel, and his Redeemer, Yahweh of Armies, says: "I am the first, and I am the last; and besides me there is no God.

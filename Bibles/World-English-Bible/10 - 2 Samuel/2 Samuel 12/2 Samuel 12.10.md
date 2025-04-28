@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore the sword shall never depart from thy house, because thou hast despised me, and hast taken the wife of Uriah the Hittite to be thy wife.
+Now therefore the sword will never depart from your house, because you have despised me, and have taken the wife of Uriah the Hittite to be your wife.'

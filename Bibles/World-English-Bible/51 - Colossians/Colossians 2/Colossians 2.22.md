@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(all which things are to perish with the using), after the precepts and doctrines of men?
+(all of which perish with use), according to the precepts and doctrines of men?

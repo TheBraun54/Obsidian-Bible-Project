@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the thing which Jehovah doth command concerning the daughters of Zelophehad, saying, Let them be married to whom they think best; only into the family of the tribe of their father shall they be married.
+This is the thing which Yahweh does command concerning the daughters of Zelophehad, saying, Let them be married to whom they think best; only into the family of the tribe of their father shall they be married.

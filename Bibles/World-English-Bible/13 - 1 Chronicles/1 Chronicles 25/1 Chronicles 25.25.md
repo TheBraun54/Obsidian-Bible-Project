@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the eighteenth to Hanani, his sons and his brethren, twelve:
+for the eighteenth to Hanani, his sons and his brothers, twelve:

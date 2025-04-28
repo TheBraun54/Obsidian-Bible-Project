@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they answered Joshua, and said, Because it was certainly told thy servants, how that Jehovah thy God commanded his servant Moses to give you all the land, and to destroy all the inhabitants of the land from before you; therefore we were sore afraid for our lives because of you, and have done this thing.
+They answered Joshua, and said, "Because your servants were certainly told how Yahweh your God commanded his servant Moses to give you all the land, and to destroy all the inhabitants of the land from before you. Therefore we were very afraid for our lives because of you, and have done this thing.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My flesh and my heart faileth; [But] God is the strength of my heart and my portion for ever.
+My flesh and my heart fails, but God is the strength of my heart and my portion forever.

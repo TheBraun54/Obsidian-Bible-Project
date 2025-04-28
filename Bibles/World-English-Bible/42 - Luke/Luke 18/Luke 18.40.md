@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus stood, and commanded him to be brought unto him: and when he was come near, he asked him,
+Standing still, Jesus commanded him to be brought to him. When he had come near, he asked him,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore will I divide him a portion with the great, and he shall divide the spoil with the strong; because he poured out his soul unto death, and was numbered with the transgressors: yet he bare the sin of many, and [ made intercession for the transgressors.
+Therefore will I divide him a portion with the great, and he shall divide the spoil with the strong; because he poured out his soul to death, and was numbered with the transgressors; yet he bore the sin of many, and made intercession for the transgressors.

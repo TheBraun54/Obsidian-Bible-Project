@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then I will set my face against that man, and against his family, and will cut him off, and all that play the harlot after him, to play the harlot with Molech, from among their people.
+then I will set my face against that man, and against his family, and will cut him off, and all who play the prostitute after him, to play the prostitute with Molech, from among their people.

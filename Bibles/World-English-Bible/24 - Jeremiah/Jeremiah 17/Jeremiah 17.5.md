@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah: Cursed is the man that trusteth in man, and maketh flesh his arm, and whose heart departeth from Jehovah.
+Thus says Yahweh: Cursed is the man who trusts in man, and makes flesh his arm, and whose heart departs from Yahweh.

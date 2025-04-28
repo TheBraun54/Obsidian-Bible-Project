@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he built there an altar, and called the place El-beth-el; because there God was revealed unto him, when he fled from the face of his brother.
+He built an altar there, and called the place El Beth El; because there God was revealed to him, when he fled from the face of his brother.

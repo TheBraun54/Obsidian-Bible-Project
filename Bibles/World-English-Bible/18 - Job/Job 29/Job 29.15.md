@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I was eyes to the blind, And feet was I to the lame.
+I was eyes to the blind, and feet to the lame.

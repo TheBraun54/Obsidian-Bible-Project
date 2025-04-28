@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wicked shall see it, and be grieved; He shall gnash with his teeth, and melt away: The desire of the wicked shall perish.
+The wicked will see it, and be grieved. He shall gnash with his teeth, and melt away. The desire of the wicked will perish.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the selfsame day entered Noah, and Shem, and Ham, and Japheth, the sons of Noah, and Noah's wife, and the three wives of his sons with them, into the ark;
+In the same day Noah, and Shem, Ham, and Japheth, the sons of Noah, and Noah's wife, and the three wives of his sons with them, entered into the ship;

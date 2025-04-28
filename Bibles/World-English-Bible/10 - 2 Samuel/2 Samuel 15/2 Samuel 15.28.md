@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-See, I will tarry at the fords of the wilderness, until there come word from you to certify me.
+Behold, I will stay at the fords of the wilderness, until word comes from you to inform me."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A man shall be commended according to his wisdom; But he that is of a perverse heart shall be despised.
+A man shall be commended according to his wisdom, but he who has a warped mind shall be despised.

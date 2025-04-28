@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They therefore, when they were come together, asked him, saying, Lord, dost thou at this time restore the kingdom to Israel?
+Therefore, when they had come together, they asked him, "Lord, are you now restoring the kingdom to Israel?"

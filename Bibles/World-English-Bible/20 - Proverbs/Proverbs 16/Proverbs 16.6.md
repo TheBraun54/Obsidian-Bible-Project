@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By mercy and truth iniquity is atoned for; And by the fear of Jehovah men depart from evil.
+By mercy and truth iniquity is atoned for. By the fear of Yahweh men depart from evil.

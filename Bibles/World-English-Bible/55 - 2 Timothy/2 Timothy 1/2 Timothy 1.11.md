@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whereunto I was appointed a preacher, and an apostle, and a teacher.
+For this, I was appointed as a preacher, an apostle, and a teacher of the Gentiles.

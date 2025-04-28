@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because of the wrath of Jehovah she shall not be inhabited, but she shall be wholly desolate: every one that goeth by Babylon shall be astonished, and hiss at all her plagues.
+Because of the wrath of Yahweh she shall not be inhabited, but she shall be wholly desolate: everyone who goes by Babylon shall be astonished, and hiss at all her plagues.

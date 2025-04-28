@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David saw that Saul was come out to seek his life: and David was in the wilderness of Ziph in the wood.
+David saw that Saul had come out to seek his life. David was in the wilderness of Ziph in the wood.

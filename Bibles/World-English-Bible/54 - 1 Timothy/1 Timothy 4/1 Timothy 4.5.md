@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for it is sanctified through the word of God and prayer.
+For it is sanctified through the word of God and prayer.

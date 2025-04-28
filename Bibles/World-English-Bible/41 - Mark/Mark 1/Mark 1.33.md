@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the city was gathered together at the door.
+All the city was gathered together at the door.

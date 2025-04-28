@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Solomon offered burnt-offerings unto Jehovah on the altar of Jehovah, which he had built before the porch,
+Then Solomon offered burnt offerings to Yahweh on the altar of Yahweh, which he had built before the porch,

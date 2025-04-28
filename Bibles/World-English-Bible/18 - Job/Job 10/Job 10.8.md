@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy hands have framed me and fashioned me Together round about; yet thou dost destroy me.
+"'Your hands have framed me and fashioned me altogether, yet you destroy me.

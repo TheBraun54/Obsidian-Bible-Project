@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-all the oxen for the burnt-offering twelve bullocks, the rams twelve, the he-lambs a year old twelve, and their meal-offering; and the males of the goats for a sin-offering twelve;
+all the cattle for the burnt offering twelve bulls, the rams twelve, the male lambs a year old twelve, and their meal offering; and the male goats for a sin offering twelve;

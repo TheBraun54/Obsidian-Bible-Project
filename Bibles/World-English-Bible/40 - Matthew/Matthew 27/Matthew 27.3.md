@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Judas, who betrayed him, when he saw that he was condemned, repented himself, and brought back the thirty pieces of silver to the chief priests and elders,
+Then Judas, who betrayed him, when he saw that Jesus was condemned, felt remorse, and brought back the thirty pieces of silver to the chief priests and elders,

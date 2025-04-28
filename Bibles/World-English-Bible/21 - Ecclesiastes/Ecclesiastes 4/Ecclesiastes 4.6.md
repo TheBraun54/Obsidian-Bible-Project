@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Better is a handful, with quietness, than two handfuls with labor and striving after wind.
+Better is a handful, with quietness, than two handfuls with labor and chasing after wind.

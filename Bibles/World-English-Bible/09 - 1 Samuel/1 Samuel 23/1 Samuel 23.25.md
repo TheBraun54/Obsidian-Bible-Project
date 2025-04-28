@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul and his men went to seek him. And they told David: wherefore he came down to the rock, and abode in the wilderness of Maon. And when Saul heard [that], he pursued after David in the wilderness of Maon.
+Saul and his men went to seek him. When David was told, he went down to the rock, and stayed in the wilderness of Maon. When Saul heard [that], he pursued after David in the wilderness of Maon.

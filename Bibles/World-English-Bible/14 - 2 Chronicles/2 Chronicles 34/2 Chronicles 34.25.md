@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because they have forsaken me, and have burned incense unto other gods, that they might provoke me to anger with all the works of their hands; therefore is my wrath poured out upon this place, and it shall not be quenched.
+Because they have forsaken me, and have burned incense to other gods, that they might provoke me to anger with all the works of their hands; therefore is my wrath poured out on this place, and it shall not be quenched.'"'

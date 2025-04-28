@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I would that they that unsettle you would even go beyond circumcision.
+I wish that those who disturb you would cut themselves off.

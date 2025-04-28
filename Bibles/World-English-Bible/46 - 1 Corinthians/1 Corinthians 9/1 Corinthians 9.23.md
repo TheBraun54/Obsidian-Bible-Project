@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I do all things for the gospel's sake, that I may be a joint partaker thereof.
+Now I do this for the sake of the Good News, that I may be a joint partaker of it.

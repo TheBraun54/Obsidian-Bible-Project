@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For those days shall be tribulation, such as there hath not been the like from the beginning of the creation which God created until now, and never shall be.
+For in those days there will be oppression, such as there has not been the like from the beginning of the creation which God created until now, and never will be.

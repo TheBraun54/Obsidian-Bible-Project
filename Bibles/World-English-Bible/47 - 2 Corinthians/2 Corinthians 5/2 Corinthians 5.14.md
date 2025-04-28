@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the love of Christ constraineth us; because we thus judge, that one died for all, therefore all died;
+For the love of Christ constrains us; because we judge thus, that one died for all, therefore all died.

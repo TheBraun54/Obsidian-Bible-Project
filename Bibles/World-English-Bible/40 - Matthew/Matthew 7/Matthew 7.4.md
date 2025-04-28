@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or how wilt thou say to thy brother, Let me cast out the mote out of thine eye; and lo, the beam is in thine own eye?
+Or how will you tell your brother, 'Let me remove the speck from your eye;' and behold, the beam is in your own eye?

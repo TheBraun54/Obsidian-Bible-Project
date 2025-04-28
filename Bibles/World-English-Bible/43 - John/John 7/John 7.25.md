@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Some therefore of them of Jerusalem said, Is not this he whom they seek to kill?
+Therefore some of them of Jerusalem said, "Isn't this he whom they seek to kill?

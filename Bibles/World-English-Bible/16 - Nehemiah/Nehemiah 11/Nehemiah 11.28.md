@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and in Ziklag, and in Meconah and in the towns thereof,
+and in Ziklag, and in Meconah and in its towns,

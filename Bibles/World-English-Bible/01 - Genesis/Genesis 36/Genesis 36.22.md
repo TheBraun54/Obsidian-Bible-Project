@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Lotan were Hori and Heman; and Lotan's sister was Timna.
+The children of Lotan were Hori and Heman. Lotan's sister was Timna.

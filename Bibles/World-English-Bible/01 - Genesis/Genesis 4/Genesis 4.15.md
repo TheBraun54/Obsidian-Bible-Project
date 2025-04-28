@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto him, Therefore whosoever slayeth Cain, vengeance shall be taken on him sevenfold. And Jehovah appointed a sign for Cain, lest any finding him should smite him.
+Yahweh said to him, "Therefore whoever slays Cain, vengeance will be taken on him sevenfold." Yahweh appointed a sign for Cain, lest any finding him should strike him.

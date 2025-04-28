@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the waters shall fail from the sea, and the river shall be wasted and become dry.
+The waters will fail from the sea, and the river will be wasted and become dry.

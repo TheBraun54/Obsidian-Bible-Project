@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when we cried unto Jehovah, he heard our voice, and sent an angel, and brought us forth out of Egypt: and, behold, we are in Kadesh, a city in the uttermost of thy border.
+and when we cried to Yahweh, he heard our voice, and sent an angel, and brought us forth out of Egypt: and behold, we are in Kadesh, a city in the uttermost of your border.

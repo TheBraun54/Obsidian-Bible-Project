@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then shall ye begin to say, We did eat and drink in thy presence, and thou didst teach in our streets;
+Then you will begin to say, 'We ate and drank in your presence, and you taught in our streets.'

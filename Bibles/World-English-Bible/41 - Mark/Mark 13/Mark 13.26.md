@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And then shall they see the Son of man coming in clouds with great power and glory.
+Then they will see the Son of Man coming in clouds with great power and glory.

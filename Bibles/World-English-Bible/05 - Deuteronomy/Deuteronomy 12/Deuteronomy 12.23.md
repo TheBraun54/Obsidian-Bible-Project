@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only be sure that thou eat not the blood: for the blood is the life; and thou shalt not eat the life with the flesh.
+Only be sure that you don't eat the blood: for the blood is the life; and you shall not eat the life with the flesh.

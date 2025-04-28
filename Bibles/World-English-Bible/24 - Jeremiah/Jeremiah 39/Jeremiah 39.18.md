@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I will surely save thee, and thou shalt not fall by the sword, but thy life shall be for a prey unto thee; because thou hast put thy trust in me, saith Jehovah.
+For I will surely save you, and you shall not fall by the sword, but your life shall be for a prey to you; because you have put your trust in me, says Yahweh.

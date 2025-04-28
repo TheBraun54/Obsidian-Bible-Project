@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, and what are ye to me, O Tyre, and Sidon, and all the regions of Philistia? will ye render me a recompense? and if ye recompense me, swiftly and speedily will I return your recompense upon your own head.
+"Yes, and what are you to me, Tyre, and Sidon, and all the regions of Philistia? Will you repay me? And if you repay me, I will swiftly and speedily return your repayment on your own head.

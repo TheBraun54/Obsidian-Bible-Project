@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the Pharisees, when they heard that he had put the Sadducees to silence, gathered themselves together.
+But the Pharisees, when they heard that he had silenced the Sadducees, gathered themselves together.

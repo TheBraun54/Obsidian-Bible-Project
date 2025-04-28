@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall be great, and shall be called the Son of the Most High: and the Lord God shall give unto him the throne of his father David:
+He will be great, and will be called the Son of the Most High. The Lord God will give him the throne of his father, David,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Love worketh no ill to his neighbor: love therefore is the fulfilment of the law.
+Love doesn't harm a neighbor. Love therefore is the fulfillment of the law.

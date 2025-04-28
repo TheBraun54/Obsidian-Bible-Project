@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The salutation of me Paul with mine own hand.
+This greeting is by me, Paul, with my own hand.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then they said to Jeremiah, Jehovah be a true and faithful witness amongst us, if we do not according to all the word wherewith Jehovah thy God shall send thee to us.
+Then they said to Jeremiah, Yahweh be a true and faithful witness among us, if we don't do according to all the word with which Yahweh your God shall send you to us.

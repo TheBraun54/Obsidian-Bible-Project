@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yet thou in thy manifold mercies forsookest them not in the wilderness: the pillar of cloud departed not from over them by day, to lead them in the way; neither the pillar of fire by night, to show them light, and the way wherein they should go.
+yet you in your manifold mercies didn't forsake them in the wilderness: the pillar of cloud didn't depart from over them by day, to lead them in the way; neither the pillar of fire by night, to show them light, and the way in which they should go.

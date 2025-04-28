@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph also went up from Galilee, out of the city of Nazareth, into Judaea, to the city of David, which is called Bethlehem, because he was of the house and family of David;
+Joseph also went up from Galilee, out of the city of Nazareth, into Judea, to the city of David, which is called Bethlehem, because he was of the house and family of David;

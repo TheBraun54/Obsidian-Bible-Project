@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They gape upon me with their mouth, [As] a ravening and a roaring lion.
+They open their mouths wide against me, lions tearing prey and roaring.

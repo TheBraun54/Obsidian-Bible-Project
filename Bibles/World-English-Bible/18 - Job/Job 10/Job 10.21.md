@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Before I go whence I shall not return, [Even] to the land of darkness and of the shadow of death;
+before I go where I shall not return from, to the land of darkness and of the shadow of death;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the Canaanites and all the inhabitants of the land will hear of it, and will compass us round, and cut off our name from the earth: and what wilt thou do for thy great name?
+For the Canaanites and all the inhabitants of the land will hear of it, and will surround us, and cut off our name from the earth. What will you do for your great name?"

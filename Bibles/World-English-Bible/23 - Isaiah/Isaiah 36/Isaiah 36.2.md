@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Assyria sent Rabshakeh from Lachish to Jerusalem unto king Hezekiah with a great army. And he stood by the conduit of the upper pool in the highway of the fuller's field.
+The king of Assyria sent Rabshakeh from Lachish to Jerusalem to king Hezekiah with a large army. He stood by the aqueduct from the upper pool in the fuller's field highway.

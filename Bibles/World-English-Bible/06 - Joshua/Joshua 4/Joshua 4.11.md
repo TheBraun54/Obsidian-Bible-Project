@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when all the people were clean passed over, that the ark of Jehovah passed over, and the priests, in the presence of the people.
+It happened, when all the people had completely passed over, that the ark of Yahweh passed over, with the priests, in the presence of the people.

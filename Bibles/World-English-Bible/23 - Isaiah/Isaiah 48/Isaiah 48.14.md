@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Assemble yourselves, all ye, and hear; who among them hath declared these things? He whom Jehovah loveth shall perform his pleasure on Babylon, and his arm [shall be on] the Chaldeans. [
+"Assemble yourselves, all you, and hear; who among them has declared these things? He whom Yahweh loves shall perform his pleasure on Babylon, and his arm [shall be on] the Chaldeans.

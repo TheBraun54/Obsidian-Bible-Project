@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when they had eaten up the grain which they had brought out of Egypt, their father said unto them, Go again, buy us a little food.
+It happened, when they had eaten up the grain which they had brought out of Egypt, their father said to them, "Go again, buy us a little more food."

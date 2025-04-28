@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Edom revolted from under the hand of Judah unto this day: then did Libnah revolt at the same time from under his hand, because he had forsaken Jehovah, the God of his fathers.
+So Edom revolted from under the hand of Judah to this day: then did Libnah revolt at the same time from under his hand, because he had forsaken Yahweh, the God of his fathers.

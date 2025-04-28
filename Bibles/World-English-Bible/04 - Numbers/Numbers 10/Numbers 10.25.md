@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the standard of the camp of the children of Dan, which was the rearward of all the camps, set forward according to their hosts: and over his host was Ahiezer the son of Ammishaddai.
+The standard of the camp of the children of Dan, which was the rear guard of all the camps, set forward according to their armies. Ahiezer the son of Ammishaddai was over his army.

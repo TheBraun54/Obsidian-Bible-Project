@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If after the manner of men I fought with beasts at Ephesus, what doth it profit me? If the dead are not raised, let us eat and drink, for to-morrow we die.
+If I fought with animals at Ephesus for human purposes, what does it profit me? If the dead are not raised, then "let us eat and drink, for tomorrow we die."

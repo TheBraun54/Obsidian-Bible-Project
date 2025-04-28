@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Honor and majesty are before him: Strength and gladness are in his place.
+Honor and majesty are before him. Strength and gladness are in his place.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, If her father had but spit in her face, should she not be ashamed seven days? let her be shut up without the camp seven days, and after that she shall be brought in again.
+Yahweh said to Moses, "If her father had but spit in her face, shouldn't she be ashamed seven days? Let her be shut up outside of the camp seven days, and after that she shall be brought in again."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come, eat ye of my bread, And drink of the wine which I have mingled.
+"Come, eat some of my bread, Drink some of the wine which I have mixed!

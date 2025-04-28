@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, As the new wine is found in the cluster, and one saith, Destroy it not, for a blessing is in it: so will I do for my servants' sake, that I may not destroy them all.
+Thus says Yahweh, "As the new wine is found in the cluster, and one says, 'Don't destroy it, for a blessing is in it:' so will I do for my servants' sake, that I may not destroy them all.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For though we walk in the flesh, we do not war according to the flesh
+For though we walk in the flesh, we don't wage war according to the flesh;

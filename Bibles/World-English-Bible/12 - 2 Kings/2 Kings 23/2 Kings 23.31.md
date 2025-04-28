@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehoahaz was twenty and three years old when he began to reign; and he reigned three months in Jerusalem: and his mother's name was Hamutal the daughter of Jeremiah of Libnah.
+Jehoahaz was twenty-three years old when he began to reign; and he reigned three months in Jerusalem: and his mother's name was Hamutal the daughter of Jeremiah of Libnah.

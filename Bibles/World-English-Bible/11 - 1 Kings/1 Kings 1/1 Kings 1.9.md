@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Adonijah slew sheep and oxen and fatlings by the stone of Zoheleth, which is beside En-rogel; and he called all his brethren, the king's sons, and all the men of Judah, the king's servants: [
+Adonijah killed sheep and cattle and fatlings by the stone of Zoheleth, which is beside En Rogel; and he called all his brothers, the king's sons, and all the men of Judah, the king's servants:

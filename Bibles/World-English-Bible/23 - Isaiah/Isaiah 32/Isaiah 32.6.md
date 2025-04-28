@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the fool will speak folly, and his heart will work iniquity, to practise profaneness, and to utter error against Jehovah, to make empty the soul of the hungry, and to cause the drink of the thirsty to fail.
+For the fool will speak folly, and his heart will work iniquity, to practice profanity, and to utter error against Yahweh, To make empty the soul of the hungry, and to cause the drink of the thirsty to fail.

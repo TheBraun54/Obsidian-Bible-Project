@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Zadok the priest and Nathan the prophet have anointed him king in Gihon; and they are come up from thence rejoicing, so that the city rang again. This is the noise that ye have heard.
+Zadok the priest and Nathan the prophet have anointed him king in Gihon. They have come up from there rejoicing, so that the city rang again. This is the noise that you have heard.

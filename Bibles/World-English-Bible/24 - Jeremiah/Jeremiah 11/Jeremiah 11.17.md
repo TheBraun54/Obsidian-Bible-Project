@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah of hosts, who planted thee, hath pronounced evil against thee, because of the evil of the house of Israel and of the house of Judah, which they have wrought for themselves in provoking me to anger by offering incense unto Baal.
+For Yahweh of Armies, who planted you, has pronounced evil against you, because of the evil of the house of Israel and of the house of Judah, which they have worked for themselves in provoking me to anger by offering incense to Baal.

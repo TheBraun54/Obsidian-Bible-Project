@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the day which Jehovah hath made; We will rejoice and be glad in it.
+This is the day that Yahweh has made. We will rejoice and be glad in it!

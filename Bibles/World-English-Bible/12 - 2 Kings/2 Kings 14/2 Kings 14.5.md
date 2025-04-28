@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as soon as the kingdom was established in his hand, that he slew his servants who had slain the king his father:
+It happened, as soon as the kingdom was established in his hand, that he killed his servants who had slain the king his father:

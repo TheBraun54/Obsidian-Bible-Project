@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Zebul unto him, Where is now thy mouth, that thou saidst, Who is Abimelech, that we should serve him? is not this the people that thou hast despised? go out now, I pray, and fight with them.
+Then Zebul said to him, "Now where is your mouth, that you said, 'Who is Abimelech, that we should serve him?' Isn't this the people that you have despised? Please go out now and fight with them."

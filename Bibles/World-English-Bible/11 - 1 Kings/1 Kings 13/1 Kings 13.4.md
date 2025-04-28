@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the king heard the saying of the man of God, which he cried against the altar in Beth-el, that Jeroboam put forth his hand from the altar, saying, Lay hold on him. And his hand, which he put forth against him, dried up, so that he could not draw it back again to him.
+It happened, when the king heard the saying of the man of God, which he cried against the altar in Bethel, that Jeroboam put out his hand from the altar, saying, "Seize him!" His hand, which he put out against him, dried up, so that he could not draw it back again to himself.

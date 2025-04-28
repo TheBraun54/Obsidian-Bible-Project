@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who made heaven and earth, The sea, and all that in them is; Who keepeth truth for ever;
+who made heaven and earth, the sea, and all that is in them; who keeps truth forever;

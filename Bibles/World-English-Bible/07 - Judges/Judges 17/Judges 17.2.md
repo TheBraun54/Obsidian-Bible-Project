@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto his mother, The eleven hundred [pieces] of silver that were taken from thee, about which thou didst utter a curse, and didst also speak it in mine ears, behold, the silver is with me; I took it. And his mother said, Blessed be my son of Jehovah.
+He said to his mother, "The eleven hundred [pieces] of silver that were taken from you, about which you uttered a curse, and also spoke it in my ears, behold, the silver is with me; I took it." His mother said, "Blessed be my son of Yahweh."

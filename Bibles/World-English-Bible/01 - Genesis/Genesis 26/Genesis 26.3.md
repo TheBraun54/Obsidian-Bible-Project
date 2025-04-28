@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-sojourn in this land, and I will be with thee, and will bless thee; for unto thee, and unto thy seed, I will give all these lands, and I will establish the oath which I sware unto Abraham thy father;
+Live in this land, and I will be with you, and will bless you. For to you, and to your seed, I will give all these lands, and I will establish the oath which I swore to Abraham your father.

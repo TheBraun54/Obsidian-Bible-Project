@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the passover, the feast of the Jews, was at hand.
+Now the Passover, the feast of the Jews, was at hand.

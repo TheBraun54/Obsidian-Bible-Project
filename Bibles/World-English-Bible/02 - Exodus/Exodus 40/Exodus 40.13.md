@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt put upon Aaron the holy garments; and thou shalt anoint him, and sanctify him, that he may minister unto me in the priest's office.
+You shall put on Aaron the holy garments; and you shall anoint him, and sanctify him, that he may minister to me in the priest's office.

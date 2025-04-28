@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but having suffered before and been shamefully treated, as ye know, at Philippi, we waxed bold in our God to speak unto you the gospel of God in much conflict.
+but having suffered before and been shamefully treated, as you know, at Philippi, we grew bold in our God to tell you the Good News of God in much conflict.

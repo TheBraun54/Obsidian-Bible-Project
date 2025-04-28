@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore thou art without excuse, O man, whosoever thou art that judgest: for wherein thou judges another, thou condemnest thyself; for thou that judgest dost practise the same things.
+Therefore you are without excuse, O man, whoever you are who judge. For in that which you judge another, you condemn yourself. For you who judge practice the same things.

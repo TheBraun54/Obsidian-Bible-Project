@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-since he longed after you all, and was sore troubled, because ye had heard that he was sick:
+since he longed for you all, and was very troubled, because you had heard that he was sick.

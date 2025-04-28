@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And out of the smoke came forth locusts upon the earth; and power was given them, as the scorpions of the earth have power.
+Then out of the smoke came forth locusts on the earth, and power was given to them, as the scorpions of the earth have power.

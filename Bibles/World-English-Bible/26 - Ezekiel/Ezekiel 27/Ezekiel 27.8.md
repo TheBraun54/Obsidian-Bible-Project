@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The inhabitants of Sidon and Arvad were thy rowers: thy wise men, O Tyre, were in thee, they were thy pilots.
+The inhabitants of Sidon and Arvad were your rowers: your wise men, Tyre, were in you, they were your pilots.

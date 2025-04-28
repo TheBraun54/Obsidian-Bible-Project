@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Pekah the son of Remaliah slew in Judah a hundred and twenty thousand in one day, all of them valiant men; because they had forsaken Jehovah, the God of their fathers.
+For Pekah the son of Remaliah killed in Judah one hundred twenty thousand in one day, all of them valiant men; because they had forsaken Yahweh, the God of their fathers.

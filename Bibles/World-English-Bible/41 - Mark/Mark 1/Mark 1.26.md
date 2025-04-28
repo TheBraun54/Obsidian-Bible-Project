@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the unclean spirit, tearing him and crying with a loud voice, came out of him.
+The unclean spirit, convulsing him and crying with a loud voice, came out of him.

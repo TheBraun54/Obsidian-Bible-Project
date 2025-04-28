@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That maketh the Bear, Orion, and the Pleiades, And the chambers of the south;
+He makes the Bear, Orion, and the Pleiades, and the rooms of the south.

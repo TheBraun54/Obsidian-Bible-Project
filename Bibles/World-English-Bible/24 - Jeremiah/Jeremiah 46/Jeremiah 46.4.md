@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Harness the horses, and get up, ye horsemen, and stand forth with your helmets; furbish the spears, put on the coats of mail.
+Harness the horses, and get up, you horsemen, and stand forth with your helmets; furbish the spears, put on the coats of mail.

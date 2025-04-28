@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He gave over their cattle also to the hail, And their flocks to hot thunderbolts.
+He gave over their livestock also to the hail, and their flocks to hot thunderbolts.

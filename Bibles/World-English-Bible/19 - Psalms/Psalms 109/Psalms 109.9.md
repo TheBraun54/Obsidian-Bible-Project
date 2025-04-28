@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let his children be fatherless, And his wife a widow.
+Let his children be fatherless, and his wife a widow.

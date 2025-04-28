@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The righteous man considereth the house of the wicked, [How] the wicked are overthrown to [their] ruin.
+The Righteous One considers the house of the wicked, and brings the wicked to ruin.

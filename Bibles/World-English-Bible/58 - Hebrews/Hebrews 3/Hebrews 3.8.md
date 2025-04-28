@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Harden not your hearts, as in the provocation, Like as in the day of the trial in the wilderness,
+don't harden your hearts, as in the rebellion, like as in the day of the trial in the wilderness,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus said unto them, They have no need to go away; give ye them to eat.
+But Jesus said to them, "They don't need to go away. You give them something to eat."

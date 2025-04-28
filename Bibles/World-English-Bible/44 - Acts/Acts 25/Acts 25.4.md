@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit Festus answered, that Paul was kept in charge at Caesarea, and that he himself was about to depart [thither] shortly.
+However Festus answered that Paul should be kept in custody at Caesarea, and that he himself was about to depart shortly.

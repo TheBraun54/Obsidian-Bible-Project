@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither have I obeyed the voice of my teachers, Nor inclined mine ear to them that instructed me!
+neither have I obeyed the voice of my teachers, nor turned my ear to those who instructed me!

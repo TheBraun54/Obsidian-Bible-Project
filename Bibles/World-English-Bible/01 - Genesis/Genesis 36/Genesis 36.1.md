@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now these are the generations of Esau (the same is Edom).
+Now this is the history of the generations of Esau (that is, Edom).

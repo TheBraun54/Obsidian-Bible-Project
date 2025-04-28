@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He rebuked the Red Sea also, and it was dried up: So he led them through the depths, as through a wilderness.
+He rebuked the Red Sea also, and it was dried up; so he led them through the depths, as through a desert.

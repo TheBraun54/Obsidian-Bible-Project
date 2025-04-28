@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but when [the matter] came before the king, he commanded by letters that his wicked device, which he had devised against the Jews, should return upon his own head, and that he and his sons should be hanged on the gallows.
+but when this became known to the king, he commanded by letters that his wicked device, which he had devised against the Jews, should return on his own head, and that he and his sons should be hanged on the gallows.

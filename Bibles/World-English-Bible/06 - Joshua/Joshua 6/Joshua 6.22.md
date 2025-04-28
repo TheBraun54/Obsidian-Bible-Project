@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua said unto the two men that had spied out the land, Go into the harlot's house, and bring out thence the woman, and all that she hath, as ye sware unto her.
+Joshua said to the two men who had spied out the land, "Go into the prostitute's house, and bring out from there the woman and all that she has, as you swore to her."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And made Israel to pass through the midst of it; For his lovingkindness [endureth] for ever;
+And made Israel to pass through its midst; for his loving kindness endures forever;

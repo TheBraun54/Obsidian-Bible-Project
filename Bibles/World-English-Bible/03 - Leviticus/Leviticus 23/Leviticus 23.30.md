@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whatsoever soul it be that doeth any manner of work in that same day, that soul will I destroy from among his people.
+Whoever it is who does any kind of work in that same day, that person I will destroy from among his people.

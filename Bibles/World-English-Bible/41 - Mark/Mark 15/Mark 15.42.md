@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when even was now come, because it was the Preparation, that is, the day before the sabbath,
+When evening had now come, because it was the Preparation Day, that is, the day before the Sabbath,

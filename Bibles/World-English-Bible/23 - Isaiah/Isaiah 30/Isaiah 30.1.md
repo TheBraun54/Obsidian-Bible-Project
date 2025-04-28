@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe to the rebellious children, saith Jehovah, that take counsel, but not of me; and that make a league, but not of my Spirit, that they may add sin to sin,
+"Woe to the rebellious children," says Yahweh, "who take counsel, but not from me; and who make an alliance, but not with my Spirit, that they may add sin to sin,

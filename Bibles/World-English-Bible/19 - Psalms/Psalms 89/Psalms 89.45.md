@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The days of his youth hast thou shortened: Thou hast covered him with shame. {{Selah
+You have shortened the days of his youth. You have covered him with shame. Selah.

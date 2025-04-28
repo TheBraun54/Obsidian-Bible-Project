@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, thou hast driven me out this day from the face of the ground; and from thy face shall I be hid; and I shall be a fugitive and a wanderer in the earth; and it will come to pass, that whosoever findeth me will slay me.
+Behold, you have driven me out this day from the surface of the ground. I will be hidden from your face, and I will be a fugitive and a wanderer in the earth. It will happen that whoever finds me will kill me."

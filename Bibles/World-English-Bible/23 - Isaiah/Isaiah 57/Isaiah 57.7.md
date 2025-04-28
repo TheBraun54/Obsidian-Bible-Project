@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Upon a high and lofty mountain hast thou set thy bed; thither also wentest thou up to offer sacrifice.
+On a high and lofty mountain you have set your bed; there also you went up to offer sacrifice.

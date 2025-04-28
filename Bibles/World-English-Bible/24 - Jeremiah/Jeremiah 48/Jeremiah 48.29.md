@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We have heard of the pride of Moab, [that] he is very proud; his loftiness, and his pride, and his arrogancy, and the haughtiness of his heart.
+We have heard of the pride of Moab, [that] he is very proud; his loftiness, and his pride, and his arrogance, and the haughtiness of his heart.

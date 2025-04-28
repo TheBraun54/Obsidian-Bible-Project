@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Offer the sacrifices of righteousness, And put your trust in Jehovah.
+Offer the sacrifices of righteousness. Put your trust in Yahweh.

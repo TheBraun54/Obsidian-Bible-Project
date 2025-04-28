@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Owe no man anything, save to love one another: for he that loveth his neighbor hath fulfilled the law.
+Owe no one anything, except to love one another; for he who loves his neighbor has fulfilled the law.

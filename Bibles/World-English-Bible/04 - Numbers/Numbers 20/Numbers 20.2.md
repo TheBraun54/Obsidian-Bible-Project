@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was no water for the congregation: and they assembled themselves together against Moses and against Aaron.
+There was no water for the congregation: and they assembled themselves together against Moses and against Aaron.

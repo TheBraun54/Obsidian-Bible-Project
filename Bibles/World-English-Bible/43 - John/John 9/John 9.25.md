@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He therefore answered, Whether he is a sinner, I know not: one thing I know, that, whereas I was blind, now I see.
+He therefore answered, "I don't know if he is a sinner. One thing I do know: that though I was blind, now I see."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the king's servants, that were in the king's gate, bowed down, and did reverence to Haman; for the king had so commanded concerning him. But Mordecai bowed not down, nor did him reverence.
+All the king's servants who were in the king's gate bowed down, and paid homage to Haman; for the king had so commanded concerning him. But Mordecai didn't bow down or pay him homage.

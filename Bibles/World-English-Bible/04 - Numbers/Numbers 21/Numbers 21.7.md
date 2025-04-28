@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people came to Moses, and said, We have sinned, because we have spoken against Jehovah, and against thee; pray unto Jehovah, that he take away the serpents from us. And Moses prayed for the people.
+The people came to Moses, and said, "We have sinned, because we have spoken against Yahweh, and against you. Pray to Yahweh, that he take away the serpents from us." Moses prayed for the people.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But every woman praying or prophesying with her head unveiled dishonoreth her head; for it is one and the same thing as if she were shaven.
+But every woman praying or prophesying with her head unveiled dishonors her head. For it is one and the same thing as if she were shaved.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Jordan was the border of it on the east quarter. This was the inheritance of the children of Benjamin, by the borders thereof round about, according to their families.
+The Jordan was its border on the east quarter. This was the inheritance of the children of Benjamin, by the borders around it, according to their families.

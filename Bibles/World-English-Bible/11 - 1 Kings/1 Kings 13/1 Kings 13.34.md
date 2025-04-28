@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this thing became sin unto the house of Jeroboam, even to cut it off, and to destroy it from off the face of the earth.
+This thing became sin to the house of Jeroboam, even to cut it off, and to destroy it from off the surface of the earth.

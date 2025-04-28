@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they intended evil against thee; They conceived a device which they are not able to perform.
+For they intended evil against you. They plotted evil against you which cannot succeed.

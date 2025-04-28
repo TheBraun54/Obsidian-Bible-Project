@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Micaiah said, Behold, thou shalt see on that day, when thou shalt go into an inner chamber to hide thyself.
+Micaiah said, "Behold, you shall see on that day, when you shall go into an inner room to hide yourself."

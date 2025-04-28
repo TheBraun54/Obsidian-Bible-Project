@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who gave himself for our sins, that he might deliver us out of this present evil world, according to the will of our God and Father:
+who gave himself for our sins, that he might deliver us out of this present evil age, according to the will of our God and Father--

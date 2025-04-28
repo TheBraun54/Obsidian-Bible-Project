@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he walked in the way of the kings of Israel, yea, and made his son to pass through the fire, according to the abominations of the nations, whom Jehovah cast out from before the children of Israel.
+But he walked in the way of the kings of Israel, yes, and made his son to pass through the fire, according to the abominations of the nations, whom Yahweh cast out from before the children of Israel.

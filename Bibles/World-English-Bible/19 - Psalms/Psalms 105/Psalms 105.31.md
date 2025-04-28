@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He spake, and there came swarms of flies, And lice in all their borders.
+He spoke, and swarms of flies came, and lice in all their borders.

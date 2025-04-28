@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I shall not die, but live, And declare the works of Jehovah.
+I will not die, but live, and declare Yah's works.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And that was reckoned unto him for righteousness, Unto all generations for evermore.
+That was credited to him for righteousness, for all generations to come.

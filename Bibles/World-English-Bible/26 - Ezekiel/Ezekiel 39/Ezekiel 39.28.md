@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall know that I am Jehovah their God, in that I caused them to go into captivity among the nations, and have gathered them unto their own land; and I will leave none of them any more there;
+They shall know that I am Yahweh their God, in that I caused them to go into captivity among the nations, and have gathered them to their own land; and I will leave none of them any more there;

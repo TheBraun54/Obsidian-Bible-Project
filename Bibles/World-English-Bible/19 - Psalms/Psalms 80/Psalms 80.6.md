@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou makest us a strife unto our neighbors; And our enemies laugh among themselves.
+You make us a source of contention to our neighbors. Our enemies laugh among themselves.

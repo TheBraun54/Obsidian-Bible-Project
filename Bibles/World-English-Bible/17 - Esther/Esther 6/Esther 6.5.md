@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king's servants said unto him, Behold, Haman standeth in the court. And the king said, Let him come in.
+The king's servants said to him, "Behold, Haman stands in the court." The king said, "Let him come in."

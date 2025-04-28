@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ruled in mount Hermon, and in Salecah, and in all Bashan, unto the border of the Geshurites and the Maacathites, and half Gilead, the border of Sihon king of Heshbon.
+and ruled in Mount Hermon, and in Salecah, and in all Bashan, to the border of the Geshurites and the Maacathites, and half Gilead, the border of Sihon king of Heshbon.

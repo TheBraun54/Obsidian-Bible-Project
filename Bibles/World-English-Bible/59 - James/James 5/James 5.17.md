@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Elijah was a man of like passions with us, and he prayed fervently that it might not rain; and it rained not on the earth for three years and six months.
+Elijah was a man with a nature like ours, and he prayed earnestly that it might not rain, and it didn't rain on the earth for three years and six months.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of Israel were distressed that day; for Saul had adjured the people, saying, Cursed be the man that eateth any food until it be evening, and I be avenged on mine enemies. So none of the people tasted food.
+The men of Israel were distressed that day; for Saul had adjured the people, saying, "Cursed is the man who eats any food until it is evening, and I am avenged of my enemies." So none of the people tasted food.

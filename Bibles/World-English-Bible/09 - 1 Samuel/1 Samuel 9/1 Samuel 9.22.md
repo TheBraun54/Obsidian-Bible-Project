@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel took Saul and his servant, and brought them into the guest-chamber, and made them sit in the chiefest place among them that were bidden, who were about thirty persons.
+Samuel took Saul and his servant, and brought them into the guest room, and made them sit in the best place among those who were invited, who were about thirty persons.

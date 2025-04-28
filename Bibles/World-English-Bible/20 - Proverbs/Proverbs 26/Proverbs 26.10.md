@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[As] an archer that woundeth all, So is he that hireth a fool and he that hireth them that pass by.
+As an archer who wounds all, so is he who hires a fool or he who hires those who pass by.

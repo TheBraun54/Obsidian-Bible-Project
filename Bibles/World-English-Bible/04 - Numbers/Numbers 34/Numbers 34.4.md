@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and your border shall turn about southward of the ascent of Akrabbim, and pass along to Zin; and the goings out thereof shall be southward of Kadesh-barnea; and it shall go forth to Hazar-addar, and pass along to Azmon;
+and your border shall turn about southward of the ascent of Akrabbim, and pass along to Zin; and the goings out of it shall be southward of Kadesh Barnea; and it shall go forth to Hazar Addar, and pass along to Azmon;

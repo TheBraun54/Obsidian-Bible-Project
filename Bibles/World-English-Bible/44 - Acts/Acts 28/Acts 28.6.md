@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they expected that he would have swollen, or fallen down dead suddenly: but when they were long in expectation and beheld nothing amiss came to him, they changed their minds, and said that he was a god.
+But they expected that he would have swollen or fallen down dead suddenly, but when they watched for a long time and saw nothing bad happen to him, they changed their minds, and said that he was a god.

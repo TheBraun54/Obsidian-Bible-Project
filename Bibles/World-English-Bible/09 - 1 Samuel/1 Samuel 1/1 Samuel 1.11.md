@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she vowed a vow, and said, O Jehovah of hosts, if thou wilt indeed look on the affliction of thy handmaid, and remember me, and not forget thy handmaid, but wilt give unto thy handmaid a man-child, then I will give him unto Jehovah all the days of his life, and there shall no razor come upon his head.
+She vowed a vow, and said, "Yahweh of Armies, if you will indeed look on the affliction of your handmaid, and remember me, and not forget your handmaid, but will give to your handmaid a boy, then I will give him to Yahweh all the days of his life, and no razor shall come on his head."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though thou shouldest bray a fool in a mortar with a pestle along with bruised grain, Yet will not his foolishness depart from him.
+Though you grind a fool in a mortar with a pestle along with grain, yet his foolishness will not be removed from him.

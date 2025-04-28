@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After him the Tekoites repaired another portion, over against the great tower that standeth out, and unto the wall of Ophel.
+After him the Tekoites repaired another portion, over against the great tower that stands out, and to the wall of Ophel.

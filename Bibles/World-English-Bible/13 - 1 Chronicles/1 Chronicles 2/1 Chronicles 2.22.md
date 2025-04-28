@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Segub begat Jair, who had three and twenty cities in the land of Gilead.
+Segub became the father of Jair, who had twenty-three cities in the land of Gilead.

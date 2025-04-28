@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the days of Shamgar the son of Anath, In the days of Jael, the highways were unoccupied, And the travellers walked through byways.
+"In the days of Shamgar the son of Anath, in the days of Jael, the highways were unoccupied. The travelers walked through byways.

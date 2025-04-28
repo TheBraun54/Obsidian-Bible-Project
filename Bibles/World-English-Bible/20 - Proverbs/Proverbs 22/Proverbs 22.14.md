@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The mouth of strange women is a deep pit: He that is abhorred of Jehovah shall fall therein.
+The mouth of an adulteress is a deep pit: he who is under Yahweh's wrath will fall into it.

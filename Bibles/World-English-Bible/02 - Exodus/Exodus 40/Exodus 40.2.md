@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On the first day of the first month shalt thou rear up the tabernacle of the tent of meeting.
+"On the first day of the first month you shall raise up the tabernacle of the Tent of Meeting.

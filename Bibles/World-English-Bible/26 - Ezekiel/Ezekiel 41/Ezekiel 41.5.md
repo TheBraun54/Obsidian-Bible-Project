@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he measured the wall of the house, six cubits; and the breadth of every side-chamber, four cubits, round about the house on every side.
+Then he measured the wall of the house, six cubits; and the breadth of every side room, four cubits, all around the house on every side.

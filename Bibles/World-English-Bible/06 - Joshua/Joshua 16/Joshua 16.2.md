@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it went out from Beth-el to Luz, and passed along unto the border of the Archites to Ataroth;
+It went out from Bethel to Luz, and passed along to the border of the Archites to Ataroth;

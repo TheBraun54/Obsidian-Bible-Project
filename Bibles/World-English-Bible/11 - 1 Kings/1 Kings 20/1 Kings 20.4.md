@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Israel answered and said, It is according to thy saying, my lord, O king; I am thine, and all that I have.
+The king of Israel answered, "It is according to your saying, my lord, O king. I am yours, and all that I have."

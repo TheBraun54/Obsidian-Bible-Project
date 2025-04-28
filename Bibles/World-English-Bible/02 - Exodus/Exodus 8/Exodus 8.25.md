@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh called for Moses and for Aaron, and said, Go ye, sacrifice to your God in the land.
+Pharaoh called for Moses and for Aaron, and said, "Go, sacrifice to your God in the land!"

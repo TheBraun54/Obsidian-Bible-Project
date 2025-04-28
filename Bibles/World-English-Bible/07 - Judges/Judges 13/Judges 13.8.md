@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Manoah entreated Jehovah, and said, Oh, Lord, I pray thee, let the man of God whom thou didst send come again unto us, and teach us what we shall do unto the child that shall be born.
+Then Manoah entreated Yahweh, and said, "Oh, Lord, please let the man of God whom you did send come again to us, and teach us what we shall do to the child who shall be born."

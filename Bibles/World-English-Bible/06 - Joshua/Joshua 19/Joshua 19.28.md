@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Ebron, and Rehob, and Hammon, and Kanah, even unto great Sidon;
+and Ebron, Rehob, Hammon, and Kanah, even to great Sidon.

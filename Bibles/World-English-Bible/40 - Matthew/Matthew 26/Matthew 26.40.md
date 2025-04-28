@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he cometh unto the disciples, and findeth them sleeping, and saith unto Peter, What, could ye not watch with me one hour?
+He came to the disciples, and found them sleeping, and said to Peter, "What, couldn't you watch with me for one hour?

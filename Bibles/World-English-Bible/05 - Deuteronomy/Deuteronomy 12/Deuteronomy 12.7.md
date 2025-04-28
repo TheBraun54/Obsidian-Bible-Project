@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and there ye shall eat before Jehovah your God, and ye shall rejoice in all that ye put your hand unto, ye and your households, wherein Jehovah thy God hath blessed thee.
+and there you shall eat before Yahweh your God, and you shall rejoice in all that you put your hand to, you and your households, in which Yahweh your God has blessed you.

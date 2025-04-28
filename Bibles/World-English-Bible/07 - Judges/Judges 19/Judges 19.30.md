@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was so, that all that saw it said, There was no such deed done nor seen from the day that the children of Israel came up out of the land of Egypt unto this day: consider it, take counsel, and speak.
+It was so, that all who saw it said, "There was no such deed done nor seen from the day that the children of Israel came up out of the land of Egypt to this day! Consider it, take counsel, and speak."

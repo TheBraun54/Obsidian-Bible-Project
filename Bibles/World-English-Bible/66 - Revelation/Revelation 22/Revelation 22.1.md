@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he showed me a river of water of life, bright as crystal, proceeding out of the throne of God and of the Lamb,
+He showed me a river of water of life, clear as crystal, proceeding out of the throne of God and of the Lamb,

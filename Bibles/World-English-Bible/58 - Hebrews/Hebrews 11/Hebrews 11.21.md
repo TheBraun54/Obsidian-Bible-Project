@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By faith Jacob, when he was dying, blessed each of the sons of Joseph; and worshipped, [leaning] upon the top of his staff.
+By faith, Jacob, when he was dying, blessed each of the sons of Joseph, and worshiped, leaning on the top of his staff.

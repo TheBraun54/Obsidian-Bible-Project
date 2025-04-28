@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am afflicted very much: Quicken me, O Jehovah, according unto thy word.
+I am afflicted very much. Revive me, Yahweh, according to your word.

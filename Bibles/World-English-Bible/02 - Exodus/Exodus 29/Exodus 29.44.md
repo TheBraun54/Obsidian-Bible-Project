@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will sanctify the tent of meeting, and the altar: Aaron also and his sons will I sanctify, to minister to me in the priest's office.
+I will sanctify the Tent of Meeting and the altar: Aaron also and his sons I will sanctify, to minister to me in the priest's office.

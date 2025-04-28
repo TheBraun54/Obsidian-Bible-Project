@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On the left hand, when he doth work, but I cannot behold him; He hideth himself on the right hand, that I cannot see him.
+He works to the north, but I can't see him. He turns south, but I can't catch a glimpse of him.

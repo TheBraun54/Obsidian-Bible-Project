@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-unto a foreigner thou mayest lend upon interest; but unto thy brother thou shalt not lend upon interest, that Jehovah thy God may bless thee in all that thou puttest thy hand unto, in the land whither thou goest in to possess it.
+to a foreigner you may lend on interest; but to your brother you shall not lend on interest, that Yahweh your God may bless you in all that you put your hand to, in the land where you go in to possess it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this shall be the sign unto thee from Jehovah, that Jehovah will do this thing that he hath spoken:
+This shall be the sign to you from Yahweh, that Yahweh will do this thing that he has spoken.

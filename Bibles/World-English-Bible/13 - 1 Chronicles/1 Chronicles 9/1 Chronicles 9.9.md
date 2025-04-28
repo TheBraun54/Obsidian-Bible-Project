@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and their brethren, according to their generations, nine hundred and fifty and six. All these men were heads of fathers' [houses] by their fathers' houses.
+and their brothers, according to their generations, nine hundred fifty-six. All these men were heads of fathers' [houses] by their fathers' houses.

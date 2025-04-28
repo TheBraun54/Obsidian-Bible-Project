@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In thee have they set light by father and mother; in the midst of thee have they dealt by oppression with the sojourner; in thee have they wronged the fatherless and the widow.
+In you have they set light by father and mother; in the midst of you have they dealt by oppression with the foreigner; in you have they wronged the fatherless and the widow.

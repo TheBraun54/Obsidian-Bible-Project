@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the service of the sons of Kohath in the tent of meeting, [about] the most holy things:
+"This is the service of the sons of Kohath in the Tent of Meeting, the most holy things.

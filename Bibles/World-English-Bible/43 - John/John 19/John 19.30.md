@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Jesus therefore had received the vinegar, he said, It is finished: and he bowed his head, and gave up his spirit.
+When Jesus therefore had received the vinegar, he said, "It is finished." He bowed his head, and gave up his spirit.

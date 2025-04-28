@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is a trespass-offering: he is certainly guilty before Jehovah.
+It is a trespass offering. He is certainly guilty before Yahweh."

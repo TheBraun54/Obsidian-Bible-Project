@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-David therefore sent out spies, and understood that Saul was come of a certainty.
+David therefore sent out spies, and understood that Saul had certainly come.

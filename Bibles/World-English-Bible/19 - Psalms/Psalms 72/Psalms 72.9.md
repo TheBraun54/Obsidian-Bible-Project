@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that dwell in the wilderness shall bow before him; And his enemies shall lick the dust.
+Those who dwell in the wilderness shall bow before him. His enemies shall lick the dust.

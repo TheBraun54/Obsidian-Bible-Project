@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then wherefore gavest thou not my money into the bank, and I at my coming should have required it with interest?
+Then why didn't you deposit my money in the bank, and at my coming, I might have earned interest on it?'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehoshaphat made peace with the king of Israel.
+Jehoshaphat made peace with the king of Israel.

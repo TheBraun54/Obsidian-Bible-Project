@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will fill its mountains with its slain: in thy hills and in thy valleys and in all thy watercourses shall they fall that are slain with the sword.
+I will fill its mountains with its slain: in your hills and in your valleys and in all your watercourses shall they fall who are slain with the sword.

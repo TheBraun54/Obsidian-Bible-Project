@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I beheld, and considered well; I saw, and received instruction:
+Then I saw, and considered well. I saw, and received instruction:

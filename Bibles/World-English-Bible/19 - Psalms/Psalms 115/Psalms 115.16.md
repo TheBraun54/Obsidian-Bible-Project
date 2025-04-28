@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The heavens are the heavens of Jehovah; But the earth hath he given to the children of men.
+The heavens are the heavens of Yahweh; but the earth has he given to the children of men.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Jehallelel: Ziph, and Ziphah, Tiria, and Asarel.
+The sons of Jehallelel: Ziph, and Ziphah, Tiria, and Asarel.

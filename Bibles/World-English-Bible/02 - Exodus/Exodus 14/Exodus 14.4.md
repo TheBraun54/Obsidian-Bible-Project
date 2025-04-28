@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will harden Pharaoh's heart, and he shall follow after them; and I will get me honor upon Pharaoh, and upon all his host; and the Egyptians shall know that I am Jehovah. And they did so. [
+I will harden Pharaoh's heart, and he will follow after them; and I will get honor over Pharaoh, and over all his armies; and the Egyptians shall know that I am Yahweh." They did so.

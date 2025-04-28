@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Israel was brought very low because of Midian; and the children of Israel cried unto Jehovah.
+Israel was brought very low because of Midian; and the children of Israel cried to Yahweh.

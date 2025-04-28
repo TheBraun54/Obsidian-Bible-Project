@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the rib, which Jehovah God had taken from the man, made he a woman, and brought her unto the man.
+He made the rib, which Yahweh God had taken from the man, into a woman, and brought her to the man.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there went forth a wind from Jehovah, and brought quails from the sea, and let them fall by the camp, about a day's journey on this side, and a day's journey on the other side, round about the camp, and about two cubits above the face of the earth.
+A wind from Yahweh went out and brought quails from the sea, and let them fall by the camp, about a day's journey on this side, and a day's journey on the other side, around the camp, and about two cubits above the surface of the earth.

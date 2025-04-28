@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he slept and dreamed a second time: and, behold, seven ears of grain came up upon one stalk, rank and good.
+He slept and dreamed a second time: and behold, seven heads of grain came up on one stalk, healthy and good.

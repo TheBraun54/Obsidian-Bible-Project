@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt sacrifice the passover unto Jehovah thy God, of the flock and the herd, in the place which Jehovah shall choose, to cause his name to dwell there.
+You shall sacrifice the Passover to Yahweh your God, of the flock and the herd, in the place which Yahweh shall choose, to cause his name to dwell there.

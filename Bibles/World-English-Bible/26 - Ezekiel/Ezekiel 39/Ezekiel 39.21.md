@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will set my glory among the nations; and all the nations shall see my judgment that I have executed, and my hand that I have laid upon them.
+I will set my glory among the nations; and all the nations shall see my judgment that I have executed, and my hand that I have laid on them.

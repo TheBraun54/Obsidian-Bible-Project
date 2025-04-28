@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Gad came to David, and told him, and said unto him, Shall seven years of famine come unto thee in thy land? or wilt thou flee three months before thy foes while they pursue thee? or shall there be three days' pestilence in thy land? now advise thee, and consider what answer I shall return to him that sent me.
+So Gad came to David, and told him, and said to him, "Shall seven years of famine come to you in your land? Or will you flee three months before your foes while they pursue you? Or shall there be three days' pestilence in your land? Now answer, and consider what answer I shall return to him who sent me."

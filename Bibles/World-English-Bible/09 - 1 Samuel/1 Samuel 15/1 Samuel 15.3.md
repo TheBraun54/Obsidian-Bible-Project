@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now go and smite Amalek, and utterly destroy all that they have, and spare them not; but slay both man and woman, infant and suckling, ox and sheep, camel and ass.
+Now go and strike Amalek, and utterly destroy all that they have, and don't spare them; but kill both man and woman, infant and nursing baby, ox and sheep, camel and donkey.'"

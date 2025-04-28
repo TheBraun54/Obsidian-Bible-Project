@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these shall stand upon mount Ebal for the curse: Reuben, Gad, and Asher, and Zebulun, Dan, and Naphtali.
+These shall stand on Mount Ebal for the curse: Reuben, Gad, and Asher, and Zebulun, Dan, and Naphtali.

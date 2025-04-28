@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after these things he went forth, and beheld a publican, named Levi, sitting at the place of toll, and said unto him, Follow me.
+After these things he went out, and saw a tax collector named Levi sitting at the tax office, and said to him, "Follow me!"

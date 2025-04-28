@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon left all the vessels [unweighed], because they were exceeding many: the weight of the brass could not be found out.
+Solomon left all the vessels [unweighed], because they were exceeding many: the weight of the brass could not be found out.

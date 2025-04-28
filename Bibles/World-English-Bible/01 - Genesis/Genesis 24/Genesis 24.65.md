@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said unto the servant, What man is this that walketh in the field to meet us? And the servant said, It is my master: and she took her veil, and covered herself.
+She said to the servant, "Who is the man who is walking in the field to meet us?" The servant said, "It is my master." She took her veil, and covered herself.

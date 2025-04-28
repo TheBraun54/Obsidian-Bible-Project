@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why doth this man thus speak? he blasphemeth: who can forgive sins but one, [even] God?
+"Why does this man speak blasphemies like that? Who can forgive sins but God alone?"

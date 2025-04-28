@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they beat down the cities; and on every good piece of land they cast every man his stone, and filled it; and they stopped all the fountains of water, and felled all the good trees, until in Kir-hareseth [only] they left the stones thereof; howbeit the slingers went about it, and smote it.
+They beat down the cities; and on every good piece of land they cast every man his stone, and filled it; and they stopped all the springs of water, and felled all the good trees, until in Kir Hareseth [only] they left its stones; however the men armed with slings went about it, and struck it.

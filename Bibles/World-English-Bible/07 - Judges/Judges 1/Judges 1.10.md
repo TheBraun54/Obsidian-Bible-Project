@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Judah went against the Canaanites that dwelt in Hebron (now the name of Hebron beforetime was Kiriath-arba); and they smote Sheshai, and Ahiman, and Talmai.
+Judah went against the Canaanites who lived in Hebron (now the name of Hebron before was Kiriath Arba); and they struck Sheshai, and Ahiman, and Talmai.

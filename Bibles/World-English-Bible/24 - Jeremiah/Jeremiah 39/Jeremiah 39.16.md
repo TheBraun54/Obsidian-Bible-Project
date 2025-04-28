@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go, and speak to Ebed-melech the Ethiopian, saying, Thus saith Jehovah of hosts, the God of Israel: Behold, I will bring my words upon this city for evil, and not for good; and they shall be accomplished before thee in that day.
+Go, and speak to Ebedmelech the Ethiopian, saying, Thus says Yahweh of Armies, the God of Israel: Behold, I will bring my words on this city for evil, and not for good; and they shall be accomplished before you in that day.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he returned unto him, and, lo, he was standing by his burnt-offering, he, and all the princes of Moab.
+He returned to him, and behold, he was standing by his burnt offering, he, and all the princes of Moab.

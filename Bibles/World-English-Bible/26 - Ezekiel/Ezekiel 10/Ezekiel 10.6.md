@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when he commanded the man clothed in linen, saying, Take fire from between the whirling wheels, from between the cherubim, that he went in, and stood beside a wheel.
+It came to pass, when he commanded the man clothed in linen, saying, Take fire from between the whirling wheels, from between the cherubim, that he went in, and stood beside a wheel.

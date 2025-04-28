@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There were also that said, We have borrowed money for the king's tribute [upon] our fields and our vineyards.
+There were also some who said, "We have borrowed money for the king's tribute using our fields and our vineyards as collateral.

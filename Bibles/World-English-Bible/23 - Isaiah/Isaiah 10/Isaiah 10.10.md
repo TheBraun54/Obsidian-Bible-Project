@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As my hand hath found the kingdoms of the idols, whose graven images did excel them of Jerusalem and of Samaria;
+As my hand has found the kingdoms of the idols, whose engraved images exceeded those of Jerusalem and of Samaria;

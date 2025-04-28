@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she went, and sat her down over against him a good way off, as it were a bowshot: for she said, Let me not look upon the death of the child. And she sat over against him, and lifted up her voice, and wept.
+She went and sat down opposite him, a good way off, about a bow shot away. For she said, "Don't let me see the death of the child." She sat over against him, and lifted up her voice, and wept.

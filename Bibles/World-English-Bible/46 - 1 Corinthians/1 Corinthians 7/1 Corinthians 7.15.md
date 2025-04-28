@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet if the unbelieving departeth, let him depart: the brother or the sister is not under bondage in such [cases] : but God hath called us in peace.
+Yet if the unbeliever departs, let there be separation. The brother or the sister is not under bondage in such cases, but God has called us in peace.

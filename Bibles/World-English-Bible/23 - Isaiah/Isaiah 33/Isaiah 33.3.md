@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At the noise of the tumult the peoples are fled; at the lifting up of thyself the nations are scattered.
+At the noise of the thunder, the peoples have fled. When you lift yourself up, the nations are scattered.

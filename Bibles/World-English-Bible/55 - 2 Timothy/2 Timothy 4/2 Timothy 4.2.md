@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-preach the word; be urgent in season, out of season; reprove, rebuke, exhort, with all longsuffering and teaching.
+preach the word; be urgent in season and out of season; reprove, rebuke, and exhort, with all patience and teaching.

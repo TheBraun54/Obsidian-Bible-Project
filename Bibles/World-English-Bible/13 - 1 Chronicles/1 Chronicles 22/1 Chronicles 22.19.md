@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now set your heart and your soul to seek after Jehovah your God; arise therefore, and build ye the sanctuary of Jehovah God, to bring the ark of the covenant of Jehovah, and the holy vessels of God, into the house that is to be built to the name of Jehovah.
+Now set your heart and your soul to seek after Yahweh your God. Arise therefore, and build the sanctuary of Yahweh God, to bring the ark of the covenant of Yahweh, and the holy vessels of God, into the house that is to be built to the name of Yahweh."

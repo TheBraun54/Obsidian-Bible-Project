@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-knowing that Christ being raised from the dead dieth no more; death no more hath dominion over him.
+knowing that Christ, being raised from the dead, dies no more. Death no more has dominion over him!

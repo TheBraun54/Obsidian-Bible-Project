@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Make thy face to shine upon thy servant; And teach me thy statutes.
+Make your face shine on your servant. Teach me your statutes.

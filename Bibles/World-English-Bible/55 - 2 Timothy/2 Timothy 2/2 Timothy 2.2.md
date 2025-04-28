@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the things which thou hast heard from me among many witnesses, the same commit thou to faithful men, who shall be able to teach others also.
+The things which you have heard from me among many witnesses, commit the same to faithful men, who will be able to teach others also.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I looked on all the works that my hands had wrought, and on the labor that I had labored to do; and, behold, all was vanity and a striving after wind, and there was no profit under the sun.
+Then I looked at all the works that my hands had worked, and at the labor that I had labored to do; and behold, all was vanity and a chasing after wind, and there was no profit under the sun.

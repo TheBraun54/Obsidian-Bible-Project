@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we stretch not ourselves overmuch, as though we reached not unto you: for we came even as far as unto you in the gospel of Christ:
+For we don't stretch ourselves too much, as though we didn't reach to you. For we came even as far as to you with the Good News of Christ,

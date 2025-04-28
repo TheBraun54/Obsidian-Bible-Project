@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to them they gave Hebron in the land of Judah, and the suburbs thereof round about it;
+to them they gave Hebron in the land of Judah, and its suburbs around it;

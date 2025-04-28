@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The grace of our Lord Jesus Christ be with your spirit, brethren. Amen.
+The grace of our Lord Jesus Christ be with your spirit, brothers. Amen.

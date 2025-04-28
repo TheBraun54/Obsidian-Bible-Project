@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then Israel sent messengers unto the king of Edom, saying, Let me, I pray thee, pass through thy land; but the king of Edom hearkened not. And in like manner he sent unto the king of Moab; but he would not: and Israel abode in Kadesh.
+then Israel sent messengers to the king of Edom, saying, 'Please let me pass through your land;' but the king of Edom didn't listen. In the same way, he sent to the king of Moab; but he would not: and Israel stayed in Kadesh.

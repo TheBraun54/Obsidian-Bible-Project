@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, What then is to be done for her? And Gehazi answered, Verily she hath no son, and her husband is old.
+He said, "What then is to be done for her?" Gehazi answered, "Most certainly she has no son, and her husband is old."

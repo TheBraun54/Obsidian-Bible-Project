@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on the morrow, when the Philistines came to strip the slain, that they found Saul and his three sons fallen in mount Gilboa.
+It happened on the next day, when the Philistines came to strip the slain, that they found Saul and his three sons fallen on Mount Gilboa.

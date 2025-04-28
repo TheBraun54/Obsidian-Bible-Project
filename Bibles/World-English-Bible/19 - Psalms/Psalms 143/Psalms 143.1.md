@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Psalm of David]. Hear my prayer, O Jehovah; Give ear to my supplications: In thy faithfulness answer me, [and] in thy righteousness.
+Hear my prayer, Yahweh. Listen to my petitions. In your faithfulness and righteousness, relieve me.

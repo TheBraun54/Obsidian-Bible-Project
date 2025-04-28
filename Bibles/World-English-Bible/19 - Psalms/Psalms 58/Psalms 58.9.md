@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Before your pots can feel the thorns, He will take them away with a whirlwind, the green and the burning alike.
+Before your pots can feel the heat of the thorns, he will sweep away the green and the burning alike.

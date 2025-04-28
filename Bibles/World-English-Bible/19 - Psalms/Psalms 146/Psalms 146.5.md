@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Happy is he that hath the God of Jacob for his help, Whose hope is in Jehovah his God:
+Happy is he who has the God of Jacob for his help, whose hope is in Yahweh, his God:

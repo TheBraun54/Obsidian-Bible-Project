@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Hashmonah, and encamped in Moseroth.
+They traveled from Hashmonah, and encamped in Moseroth.

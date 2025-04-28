@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will make thee unto this people a fortified brazen wall; and they shall fight against thee, but they shall not prevail against thee; for I am with thee to save thee and to deliver thee, saith Jehovah.
+I will make you to this people a fortified bronze wall; and they shall fight against you, but they shall not prevail against you; for I am with you to save you and to deliver you, says Yahweh.

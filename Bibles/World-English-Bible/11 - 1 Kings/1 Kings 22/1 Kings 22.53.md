@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he served Baal, and worshipped him, and provoked to anger Jehovah, the God of Israel, according to all that his father had done.
+He served Baal, and worshiped him, and provoked to anger Yahweh, the God of Israel, according to all that his father had done.

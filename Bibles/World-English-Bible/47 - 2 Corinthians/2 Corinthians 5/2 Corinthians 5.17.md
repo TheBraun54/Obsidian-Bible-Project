@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore if any man is in Christ, [he is] a new creature: the old things are passed away; behold, they are become new.
+Therefore if anyone is in Christ, he is a new creation. The old things have passed away. Behold, all things have become new.

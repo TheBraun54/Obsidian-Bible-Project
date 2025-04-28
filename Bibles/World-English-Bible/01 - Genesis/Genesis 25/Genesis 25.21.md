@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaac entreated Jehovah for his wife, because she was barren: and Jehovah was entreated of him, and Rebekah his wife conceived.
+Isaac entreated Yahweh for his wife, because she was barren. Yahweh was entreated by him, and Rebekah his wife conceived.

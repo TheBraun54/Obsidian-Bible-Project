@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For why shouldest thou, my son, be ravished with a strange woman, And embrace the bosom of a foreigner?
+For why should you, my son, be captivated with an adulteress? Why embrace the bosom of another?

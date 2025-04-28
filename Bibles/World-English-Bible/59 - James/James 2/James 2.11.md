@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he that said, Do not commit adultery, said also, Do not kill. Now if thou dost not commit adultery, but killest, thou art become a transgressor of the law.
+For he who said, "Do not commit adultery," also said, "Do not commit murder." Now if you do not commit adultery, but murder, you have become a transgressor of the law.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh said unto Joseph, Say unto thy brethren, This do ye: lade your beasts, and go, get you unto the land of Canaan;
+Pharaoh said to Joseph, "Tell your brothers, 'Do this. Load your animals, and go, travel to the land of Canaan.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A little while, and ye behold me no more; and again a little while, and ye shall see me.
+A little while, and you will not see me. Again a little while, and you will see me."

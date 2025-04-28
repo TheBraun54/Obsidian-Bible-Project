@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and lay shameful things to her charge, and bring up an evil name upon her, and say, I took this woman, and when I came nigh to her, I found not in her the tokens of virginity;
+and accuses her of shameful things, and brings up an evil name on her, and says, "I took this woman, and when I came near to her, I didn't find in her the tokens of virginity;"

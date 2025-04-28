@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when he thought on these things, behold, an angel of the Lord appeared unto him in a dream, saying, Joseph, thou son of David, fear not to take unto thee Mary thy wife: for that which is conceived in her is of the Holy Spirit.
+But when he thought about these things, behold, an angel of the Lord appeared to him in a dream, saying, "Joseph, son of David, don't be afraid to take to yourself Mary, your wife, for that which is conceived in her is of the Holy Spirit.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-with all lowliness and meekness, with longsuffering, forbearing one another in love;
+with all lowliness and humility, with patience, bearing with one another in love;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wise men are put to shame, they are dismayed and taken: lo, they have rejected the word of Jehovah; and what manner of wisdom is in them?
+The wise men are disappointed, they are dismayed and taken: behold, they have rejected the word of Yahweh; and what kind of wisdom is in them?

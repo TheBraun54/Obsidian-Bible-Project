@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his disciples answered him, Whence shall one be able to fill these men with bread here in a desert place?
+His disciples answered him, "From where could one satisfy these people with bread here in a deserted place?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast taken away all thy wrath; Thou hast turned [thyself] from the fierceness of thine anger.
+You have taken away all your wrath. You have turned from the fierceness of your anger.

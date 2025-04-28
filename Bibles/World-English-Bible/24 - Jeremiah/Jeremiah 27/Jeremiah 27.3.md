@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and send them to the king of Edom, and to the king of Moab, and to the king of the children of Ammon, and to the king of Tyre, and to the king of Sidon, by the hand of the messengers that come to Jerusalem unto Zedekiah king of Judah;
+and send them to the king of Edom, and to the king of Moab, and to the king of the children of Ammon, and to the king of Tyre, and to the king of Sidon, by the hand of the messengers who come to Jerusalem to Zedekiah king of Judah;

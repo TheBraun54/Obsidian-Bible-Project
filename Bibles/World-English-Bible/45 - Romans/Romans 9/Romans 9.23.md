@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that he might make known the riches of his glory upon vessels of mercy, which he afore prepared unto glory,
+and that he might make known the riches of his glory on vessels of mercy, which he prepared beforehand for glory,

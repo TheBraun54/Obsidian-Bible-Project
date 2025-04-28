@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have refrained my feet from every evil way, That I might observe thy word.
+I have kept my feet from every evil way, that I might observe your word.

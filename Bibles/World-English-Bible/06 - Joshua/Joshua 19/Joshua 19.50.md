@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-according to the commandment of Jehovah they gave him the city which he asked, even Timnath-serah in the hill-country of Ephraim; and he built the city, and dwelt therein.
+According to the commandment of Yahweh, they gave him the city which he asked, even Timnathserah in the hill country of Ephraim; and he built the city, and lived there.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then will I also walk contrary unto you; and I will smite you, even I, seven times for your sins.
+then I will also walk contrary to you; and I will strike you, even I, seven times for your sins.

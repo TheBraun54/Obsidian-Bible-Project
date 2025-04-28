@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they cast him out of the city, and stoned him: and the witnesses laid down their garments at the feet of a young man named Saul.
+They threw him out of the city, and stoned him. The witnesses placed their garments at the feet of a young man named Saul.

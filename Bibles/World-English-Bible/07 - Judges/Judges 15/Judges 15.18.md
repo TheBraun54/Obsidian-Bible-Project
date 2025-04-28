@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he was sore athirst, and called on Jehovah, and said, Thou hast given this great deliverance by the hand of thy servant; and now shall I die for thirst, and fall into the hand of the uncircumcised.
+He was very thirsty, and called on Yahweh, and said, "You have given this great deliverance by the hand of your servant; and now shall I die for thirst, and fall into the hand of the uncircumcised?"

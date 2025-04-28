@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be ye afraid of the sword: For wrath [bringeth] the punishments of the sword, That ye may know there is a judgment.
+be afraid of the sword, for wrath brings the punishments of the sword, that you may know there is a judgment."

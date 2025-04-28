@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the horses of Pharaoh went in with his chariots and with his horsemen into the sea, and Jehovah brought back the waters of the sea upon them; but the children of Israel walked on dry land in the midst of the sea.
+For the horses of Pharaoh went in with his chariots and with his horsemen into the sea, and Yahweh brought back the waters of the sea on them; but the children of Israel walked on dry land in the midst of the sea.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they were urgent with loud voices, asking that he might be crucified. And their voices prevailed.
+But they were urgent with loud voices, asking that he might be crucified. Their voices and the voices of the chief priests prevailed.

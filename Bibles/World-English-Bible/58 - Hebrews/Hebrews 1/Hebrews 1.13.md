@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But of which of the angels hath he said at any time, Sit thou on my right hand, Till I make thine enemies the footstool of thy feet?
+But which of the angels has he told at any time, "Sit at my right hand, until I make your enemies the footstool of your feet?"

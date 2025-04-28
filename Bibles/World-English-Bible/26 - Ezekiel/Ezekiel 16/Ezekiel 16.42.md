@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So will I cause my wrath toward thee to rest, and my jealousy shall depart from thee, and I will be quiet, and will be no more angry.
+So will I cause my wrath toward you to rest, and my jealousy shall depart from you, and I will be quiet, and will be no more angry.

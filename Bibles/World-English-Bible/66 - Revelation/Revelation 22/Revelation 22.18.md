@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I testify unto every man that heareth the words of the prophecy of this book, if any man shall add unto them, God shall add unto him the plagues which are written in this book:
+I testify to everyone who hears the words of the prophecy of this book, if anyone adds to them, may God add to him the plagues which are written in this book.

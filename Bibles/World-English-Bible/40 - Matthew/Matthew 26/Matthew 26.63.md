@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus held his peace. And the high priest said unto him, I adjure thee by the living God, that thou tell us whether thou art the Christ, the Son of God.
+But Jesus held his peace. The high priest answered him, "I adjure you by the living God, that you tell us whether you are the Christ, the Son of God."

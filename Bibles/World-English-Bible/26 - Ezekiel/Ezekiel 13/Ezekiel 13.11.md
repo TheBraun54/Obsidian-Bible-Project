@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-say unto them that daub it with untempered [mortar], that it shall fall: there shall be an overflowing shower; and ye, O great hailstones, shall fall; and a stormy wind shall rend it.
+tell those who plaster it with whitewash, that it shall fall: there shall be an overflowing shower; and you, great hailstones, shall fall; and a stormy wind shall tear it.

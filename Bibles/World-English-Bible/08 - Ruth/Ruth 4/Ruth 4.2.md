@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took ten men of the elders of the city, and said, Sit ye down here. And they sat down.
+He took ten men of the elders of the city, and said, "Sit down here." They sat down.

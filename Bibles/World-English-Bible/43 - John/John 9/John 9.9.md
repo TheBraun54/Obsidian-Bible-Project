@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Others said, It is he: others said, No, but he is like him. He said, I am [he] .
+Others were saying, "It is he." Still others were saying, "He looks like him." He said, "I am he."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For day and night thy hand was heavy upon me: My moisture was changed [as] with the drought of summer. {{Selah
+For day and night your hand was heavy on me. My strength was sapped in the heat of summer. Selah.

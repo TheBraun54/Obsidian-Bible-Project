@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he addeth rebellion unto his sin; He clappeth his hands among us, And multiplieth his words against God.
+For he adds rebellion to his sin. He claps his hands among us, and multiplies his words against God."

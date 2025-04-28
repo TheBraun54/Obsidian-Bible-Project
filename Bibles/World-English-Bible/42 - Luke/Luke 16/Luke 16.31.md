@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, If they hear not Moses and the prophets, neither will they be persuaded, if one rise from the dead.
+"He said to him, 'If they don't listen to Moses and the prophets, neither will they be persuaded if one rises from the dead.'"

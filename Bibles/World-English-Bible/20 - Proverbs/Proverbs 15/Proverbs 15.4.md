@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A gentle tongue is a tree of life; But perverseness therein is a breaking of the spirit.
+A gentle tongue is a tree of life, but deceit in it crushes the spirit.

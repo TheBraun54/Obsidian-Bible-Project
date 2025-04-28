@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Attend unto me, and answer me: I am restless in my complaint, and moan,
+Attend to me, and answer me. I am restless in my complaint, and moan,

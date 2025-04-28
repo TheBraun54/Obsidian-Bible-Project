@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[Him] that saith to a king, [Thou art] vile, [Or] to nobles, [Ye are] wicked;
+Who says to a king, 'Vile!' or to nobles, 'Wicked!'?

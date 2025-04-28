@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the generations of Isaac, Abraham's son: Abraham begat Isaac:
+This is the history of the generations of Isaac, Abraham's son. Abraham became the father of Isaac.

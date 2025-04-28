@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when they brought forth those kings unto Joshua, that Joshua called for all the men of Israel, and said unto the chiefs of the men of war that went with him, Come near, put your feet upon the necks of these kings. And they came near, and put their feet upon the necks of them.
+It happened, when they brought those kings out to Joshua, that Joshua called for all the men of Israel, and said to the chiefs of the men of war who went with him, "Come near, put your feet on the necks of these kings." They came near, and put their feet on their necks.

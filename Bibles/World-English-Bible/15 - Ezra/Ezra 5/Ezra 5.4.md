@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then we told them after this manner, what the names of the men were that were making this building.
+Then we told them in this way, what the names of the men were who were making this building.

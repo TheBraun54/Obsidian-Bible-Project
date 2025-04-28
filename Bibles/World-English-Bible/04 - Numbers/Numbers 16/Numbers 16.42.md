@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the congregation was assembled against Moses and against Aaron, that they looked toward the tent of meeting: and, behold, the cloud covered it, and the glory of Jehovah appeared.
+It happened, when the congregation was assembled against Moses and against Aaron, that they looked toward the Tent of Meeting: and behold, the cloud covered it, and the glory of Yahweh appeared.

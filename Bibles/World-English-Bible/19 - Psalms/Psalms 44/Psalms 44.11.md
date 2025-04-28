@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast made us like sheep [appointed] for food, And hast scattered us among the nations.
+You have made us like sheep for food, and have scattered us among the nations.

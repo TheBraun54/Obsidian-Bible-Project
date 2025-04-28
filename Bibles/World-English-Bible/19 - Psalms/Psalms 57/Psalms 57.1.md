@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; [set to] Al-tashheth. [A Psalm] of David. Michtam; when he fled from Saul, in the cave]. Be merciful unto me, O God, be merciful unto me; For my soul taketh refuge in thee: Yea, in the shadow of thy wings will I take refuge, Until [these] calamities be overpast.
+Be merciful to me, God, be merciful to me, for my soul takes refuge in you. Yes, in the shadow of your wings, I will take refuge, until disaster has passed.

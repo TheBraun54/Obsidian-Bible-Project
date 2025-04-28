@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh that my words were now written! Oh that they were inscribed in a book!
+"Oh that my words were now written! Oh that they were inscribed in a book!

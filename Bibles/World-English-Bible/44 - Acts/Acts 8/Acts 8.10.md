@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to whom they all gave heed, from the least to the greatest, saying, This man is that power of God which is called Great.
+to whom they all listened, from the least to the greatest, saying, "This man is that great power of God."

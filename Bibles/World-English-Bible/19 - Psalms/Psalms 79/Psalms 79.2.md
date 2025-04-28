@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The dead bodies of thy servants have they given to be food unto the birds of the heavens, The flesh of thy saints unto the beasts of the earth.
+They have given the dead bodies of your servants to be food for the birds of the sky, the flesh of your saints to the animals of the earth.

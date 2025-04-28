@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Among the bushes they bray; Under the nettles they are gathered together.
+Among the bushes they bray; and under the nettles they are gathered together.

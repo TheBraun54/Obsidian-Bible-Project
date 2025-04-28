@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The voice of Jehovah maketh the hinds to calve, And strippeth the forests bare: And in his temple everything saith, Glory.
+Yahweh's voice makes the deer calve, and strips the forests bare. In his temple everything says, "Glory!"

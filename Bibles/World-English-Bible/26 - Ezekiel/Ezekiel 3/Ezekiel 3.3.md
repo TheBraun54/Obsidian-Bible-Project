@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto me, Son of man, cause thy belly to eat, and fill thy bowels with this roll that I give thee. Then did I eat it; and it was in my mouth as honey for sweetness.
+He said to me, Son of man, cause your belly to eat, and fill your bowels with this scroll that I give you. Then I ate it; and it was as sweet as honey in my mouth.

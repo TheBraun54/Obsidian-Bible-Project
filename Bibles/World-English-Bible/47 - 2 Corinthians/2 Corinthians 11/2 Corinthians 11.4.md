@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if he that cometh preacheth another Jesus, whom we did not preach, or [if] ye receive a different spirit, which ye did not receive, or a different gospel, which ye did not accept, ye do well to bear with [him] .
+For if he who comes preaches another Jesus, whom we did not preach, or if you receive a different spirit, which you did not receive, or a different "good news", which you did not accept, you put up with that well enough.

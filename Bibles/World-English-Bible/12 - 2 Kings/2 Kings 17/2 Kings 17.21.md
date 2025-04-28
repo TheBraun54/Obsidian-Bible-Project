@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he rent Israel from the house of David; and they made Jeroboam the son of Nebat king: and Jeroboam drove Israel from following Jehovah, and made them sin a great sin.
+For he tore Israel from the house of David; and they made Jeroboam the son of Nebat king: and Jeroboam drove Israel from following Yahweh, and made them sin a great sin.

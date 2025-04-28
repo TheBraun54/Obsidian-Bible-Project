@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But godliness with contentment is great gain:
+But godliness with contentment is great gain.

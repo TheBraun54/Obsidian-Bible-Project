@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I desire therefore that the men pray in every place, lifting up holy hands, without wrath and disputing.
+I desire therefore that the men in every place pray, lifting up holy hands without anger and doubting.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the second took her, and died, leaving no seed behind him; and the third likewise:
+The second took her, and died, leaving no children behind him. The third likewise;

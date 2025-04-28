@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Upon this I awaked, and beheld; and my sleep was sweet unto me.
+On this I awakened, and saw; and my sleep was sweet to me.

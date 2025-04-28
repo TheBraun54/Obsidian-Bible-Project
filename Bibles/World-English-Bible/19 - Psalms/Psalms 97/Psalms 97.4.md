@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His lightnings lightened the world: The earth saw, and trembled.
+His lightning lights up the world. The earth sees, and trembles.

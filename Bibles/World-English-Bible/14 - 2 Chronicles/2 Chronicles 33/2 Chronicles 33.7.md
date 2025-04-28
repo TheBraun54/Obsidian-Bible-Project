@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he set the graven image of the idol, which he had made, in the house of God, of which God said to David and to Solomon his son, In this house, and in Jerusalem, which I have chosen out of all the tribes of Israel, will I put my name for ever:
+He set the engraved image of the idol, which he had made, in the house of God, of which God said to David and to Solomon his son, "In this house, and in Jerusalem, which I have chosen out of all the tribes of Israel, will I put my name forever:

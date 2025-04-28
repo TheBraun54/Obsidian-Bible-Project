@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua charged them with an oath at that time, saying, Cursed be the man before Jehovah, that riseth up and buildeth this city Jericho: with the loss of his first-born shall he lay the foundation thereof, and with the loss of his youngest son shall he set up the gates of it.
+Joshua commanded them with an oath at that time, saying, "Cursed is the man before Yahweh, who rises up and builds this city Jericho. With the loss of his firstborn shall he lay its foundation, and with the loss of his youngest son shall he set up its gates."

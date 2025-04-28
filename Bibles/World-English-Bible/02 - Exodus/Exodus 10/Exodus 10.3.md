@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses and Aaron went in unto Pharaoh, and said unto him, Thus saith Jehovah, the God of the Hebrews, How long wilt thou refuse to humble thyself before me? let my people go, that they may serve me.
+Moses and Aaron went in to Pharaoh, and said to him, "This is what Yahweh, the God of the Hebrews, says: 'How long will you refuse to humble yourself before me? Let my people go, that they may serve me.

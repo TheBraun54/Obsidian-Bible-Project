@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto God, Behold, when I come unto the children of Israel, and shall say unto them, The God of your fathers hath sent me unto you; and they shall say to me, What is his name? What shall I say unto them?
+Moses said to God, "Behold, when I come to the children of Israel, and tell them, 'The God of your fathers has sent me to you;' and they ask me, 'What is his name?' What should I tell them?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By little and little I will drive them out from before thee, until thou be increased, and inherit the land.
+Little by little I will drive them out from before you, until you have increased and inherit the land.

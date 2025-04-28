@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Instead of the thorn shall come up the fir-tree; and instead of the brier shall come up the myrtle-tree: and it shall be to Jehovah for a name, for an everlasting sign that shall not be cut off.
+Instead of the thorn shall come up the fir tree; and instead of the brier shall come up the myrtle tree: and it shall be to Yahweh for a name, for an everlasting sign that shall not be cut off."

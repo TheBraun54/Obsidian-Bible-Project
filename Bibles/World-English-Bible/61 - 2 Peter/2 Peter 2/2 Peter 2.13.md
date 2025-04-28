@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-suffering wrong as the hire of wrong-doing; [men] that count it pleasure to revel in the day-time, spots and blemishes, revelling in their deceivings while they feast with you;
+receiving the wages of unrighteousness; people who count it pleasure to revel in the daytime, spots and blemishes, reveling in their deceit while they feast with you;

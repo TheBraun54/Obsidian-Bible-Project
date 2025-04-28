@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Riches profit not in the day of wrath; But righteousness delivereth from death.
+Riches don't profit in the day of wrath, but righteousness delivers from death.

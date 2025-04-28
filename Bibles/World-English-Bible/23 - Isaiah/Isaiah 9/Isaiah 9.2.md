@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The people that walked in darkness have seen a great light: they that dwelt in the land of the shadow of death, upon them hath the light shined.
+The people who walked in darkness have seen a great light. Those who lived in the land of the shadow of death, on them the light has shined.

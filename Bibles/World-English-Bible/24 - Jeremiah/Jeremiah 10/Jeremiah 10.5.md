@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are like a palm-tree, of turned work, and speak not: they must needs be borne, because they cannot go. Be not afraid of them; for they cannot do evil, neither is it in them to do good.
+They are like a palm tree, of turned work, and don't speak: they must be carried, because they can't go. Don't be afraid of them; for they can't do evil, neither is it in them to do good."

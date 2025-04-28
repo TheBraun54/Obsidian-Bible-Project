@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore again groaning in himself cometh to the tomb. Now it was a cave, and a stone lay against it.
+Jesus therefore, again groaning in himself, came to the tomb. Now it was a cave, and a stone lay against it.

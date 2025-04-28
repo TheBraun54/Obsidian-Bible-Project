@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The word that Jeremiah the prophet spake unto Baruch the son of Neriah, when he wrote these word in a book at the mouth of Jeremiah, in the fourth year of Jehoiakim the son of Josiah, king of Judah, saying,
+The message that Jeremiah the prophet spoke to Baruch the son of Neriah, when he wrote these words in a book at the mouth of Jeremiah, in the fourth year of Jehoiakim the son of Josiah, king of Judah, saying,

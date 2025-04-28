@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou sayest, Lo, thou hast smitten Edom; and thy heart lifteth thee up to boast: abide now at home; why shouldest thou meddle to [thy] hurt, that thou shouldest fall, even thou, and Judah with thee?
+You say to yourself that you have struck Edom; and your heart lifts you up to boast. Now stay at home. Why should you meddle with trouble, that you should fall, even you, and Judah with you?'"

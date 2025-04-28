@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Epaphras, my fellow-prisoner in Christ Jesus, saluteth thee;
+Epaphras, my fellow prisoner in Christ Jesus, greets you,

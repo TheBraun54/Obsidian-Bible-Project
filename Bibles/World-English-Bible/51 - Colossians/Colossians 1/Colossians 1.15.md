@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who is the image of the invisible God, the firstborn of all creation;
+who is the image of the invisible God, the firstborn of all creation.

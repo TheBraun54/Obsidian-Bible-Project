@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, Some [say] John the Baptist; some, Elijah; and others, Jeremiah, or one of the prophets.
+They said, "Some say John the Baptizer, some, Elijah, and others, Jeremiah, or one of the prophets."

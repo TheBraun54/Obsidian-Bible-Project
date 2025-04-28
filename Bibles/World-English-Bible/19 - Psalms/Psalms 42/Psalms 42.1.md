@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. Maschil of the sons of Korah]. As the hart panteth after the water brooks, So panteth my soul after thee, O God.
+As the deer pants for the water brooks, so my soul pants after you, God.

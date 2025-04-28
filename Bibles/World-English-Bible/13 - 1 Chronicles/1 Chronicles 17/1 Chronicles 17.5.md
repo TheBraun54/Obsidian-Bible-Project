@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for I have not dwelt in a house since the day that I brought up Israel, unto this day, but have gone from tent to tent, and from [one] tabernacle [to another] .
+for I have not lived in a house since the day that I brought up Israel, to this day, but have gone from tent to tent, and from one tent to another.

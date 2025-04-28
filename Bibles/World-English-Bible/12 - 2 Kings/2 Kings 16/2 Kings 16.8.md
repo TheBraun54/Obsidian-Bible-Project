@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ahaz took the silver and gold that was found in the house of Jehovah, and in the treasures of the king's house, and sent it for a present to the king of Assyria.
+Ahaz took the silver and gold that was found in the house of Yahweh, and in the treasures of the king's house, and sent it for a present to the king of Assyria.

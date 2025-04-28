@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw an angel standing in the sun; and he cried with a loud voice, saying to all the birds that fly in mid heaven, Come [and] be gathered together unto the great supper of God;
+I saw an angel standing in the sun. He cried with a loud voice, saying to all the birds that fly in the sky, "Come! Be gathered together to the great supper of God,

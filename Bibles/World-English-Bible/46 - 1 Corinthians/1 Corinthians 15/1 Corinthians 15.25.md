@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he must reign, till he hath put all his enemies under his feet.
+For he must reign until he has put all his enemies under his feet.

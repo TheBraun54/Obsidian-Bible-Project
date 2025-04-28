@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest of Jupiter whose [temple] was before the city, brought oxen and garlands unto the gates, and would have done sacrifice with the multitudes.
+The priest of Jupiter, whose temple was in front of their city, brought oxen and garlands to the gates, and would have made a sacrifice along with the multitudes.

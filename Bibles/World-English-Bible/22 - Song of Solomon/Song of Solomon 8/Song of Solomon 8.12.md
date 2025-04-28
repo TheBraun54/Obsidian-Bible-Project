@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My vineyard, which is mine, is before me: Thou, O Solomon, shalt have the thousand, And those that keep the fruit thereof two hundred.
+My own vineyard is before me. The thousand are for you, Solomon; two hundred for those who tend its fruit. Lover

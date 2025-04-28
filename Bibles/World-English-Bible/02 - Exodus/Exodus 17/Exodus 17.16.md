@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he said, Jehovah hath sworn: Jehovah will have war with Amalek from generation to generation.
+He said, "Yah has sworn: 'Yahweh will have war with Amalek from generation to generation.'"

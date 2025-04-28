@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But of that day or that hour knoweth no one, not even the angels in heaven, neither the Son, but the Father.
+But of that day or that hour no one knows, not even the angels in heaven, nor the Son, but only the Father.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-as children of obedience, not fashioning yourselves according to your former lusts in [the time of] your ignorance:
+as children of obedience, not conforming yourselves according to your former lusts as in your ignorance,

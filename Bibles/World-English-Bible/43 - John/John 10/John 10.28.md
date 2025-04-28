@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I give unto them eternal life; and they shall never perish, and no one shall snatch them out of my hand.
+I give eternal life to them. They will never perish, and no one will snatch them out of my hand.

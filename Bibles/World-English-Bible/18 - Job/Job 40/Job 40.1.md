@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover Jehovah answered Job, and said,
+Moreover Yahweh answered Job,

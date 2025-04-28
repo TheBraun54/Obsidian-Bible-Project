@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Why, what evil hath he done? But they cried out exceedingly, saying, Let him be crucified.
+But the governor said, "Why? What evil has he done?" But they cried out exceedingly, saying, "Let him be crucified!"

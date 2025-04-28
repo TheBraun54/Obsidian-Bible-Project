@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Put forth thy hand, and take it by the tail (and he put forth his hand, and laid hold of it, and it became a rod in his hand);
+Yahweh said to Moses, "Put forth your hand, and take it by the tail." He put forth his hand, and laid hold of it, and it became a rod in his hand.

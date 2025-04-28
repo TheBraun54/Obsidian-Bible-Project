@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore will I take back my grain in the time thereof, and my new wine in the season thereof, and will pluck away my wool and my flax which should have covered her nakedness.
+Therefore I will take back my grain in its time, and my new wine in its season, and will pluck away my wool and my flax which should have covered her nakedness.

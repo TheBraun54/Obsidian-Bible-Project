@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-wherefore also I came without gainsaying, when I was sent for. I ask therefore with what intent ye sent for me.
+Therefore also I came without complaint when I was sent for. I ask therefore, why did you send for me?"

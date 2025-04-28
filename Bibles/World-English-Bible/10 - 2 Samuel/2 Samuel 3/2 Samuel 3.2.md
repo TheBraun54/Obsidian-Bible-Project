@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto David were sons born in Hebron: and his first-born was Amnon, of Ahinoam the Jezreelitess;
+To David were sons born in Hebron: and his firstborn was Amnon, of Ahinoam the Jezreelitess;

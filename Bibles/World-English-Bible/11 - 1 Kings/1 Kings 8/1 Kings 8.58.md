@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that he may incline our hearts unto him, to walk in all his ways, and to keep his commandments, and his statutes, and his ordinances, which he commanded our fathers.
+that he may incline our hearts to him, to walk in all his ways, and to keep his commandments, and his statutes, and his ordinances, which he commanded our fathers.

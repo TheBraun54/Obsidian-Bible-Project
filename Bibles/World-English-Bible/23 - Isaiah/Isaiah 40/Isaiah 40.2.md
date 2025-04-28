@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak ye comfortably to Jerusalem; and cry unto her, that her warfare is accomplished, that her iniquity is pardoned, that she hath received of Jehovah's hand double for all her sins.
+"Speak comfortably to Jerusalem; and call out to her that her warfare is accomplished, that her iniquity is pardoned, that she has received of Yahweh's hand double for all her sins."

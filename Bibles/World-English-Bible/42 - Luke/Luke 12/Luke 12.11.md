@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they bring you before the synagogues, and the rulers, and the authorities, be not anxious how or what ye shall answer, or what ye shall say:
+When they bring you before the synagogues, the rulers, and the authorities, don't be anxious how or what you will answer, or what you will say;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and she brought it before Saul, and before his servants; and they did eat. Then they rose up, and went away that night.
+She brought it before Saul, and before his servants; and they ate. Then they rose up, and went away that night.

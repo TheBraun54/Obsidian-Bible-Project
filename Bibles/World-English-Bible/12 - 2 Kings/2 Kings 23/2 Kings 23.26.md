@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Notwithstanding, Jehovah turned not from the fierceness of his great wrath, wherewith his anger was kindled against Judah, because of all the provocations wherewith Manasseh had provoked him.
+Notwithstanding, Yahweh didn't turn from the fierceness of his great wrath, with which his anger was kindled against Judah, because of all the provocation with which Manasseh had provoked him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Laban said, This heap is witness between me and thee this day. Therefore was the name of it called Galeed:
+Laban said, "This heap is witness between me and you this day." Therefore it was named Galeed

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He made them also to be pitied Of all those that carried them captive.
+He made them also to be pitied by all those who carried them captive.

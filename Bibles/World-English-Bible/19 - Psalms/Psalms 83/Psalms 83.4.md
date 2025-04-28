@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have said, Come, and let us cut them off from being a nation; That the name of Israel may be no more in remembrance.
+"Come," they say, "and let's destroy them as a nation, that the name of Israel may be remembered no more."

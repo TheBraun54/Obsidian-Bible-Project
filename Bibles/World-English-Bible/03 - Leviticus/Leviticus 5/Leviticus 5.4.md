@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or if any one swear rashly with his lips to do evil, or to do good, whatsoever it be that a man shall utter rashly with an oath, and it be hid from him; when he knoweth of it, then he shall be guilty in one of these [things] .
+"'Or if anyone swears rashly with his lips to do evil, or to do good, whatever it is that a man might utter rashly with an oath, and it is hidden from him; when he knows of it, then he shall be guilty of one of these.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I will stir up the Medes against them, who shall not regard silver, and as for gold, they shall not delight in it.
+Behold, I will stir up the Medes against them, who will not value silver, and as for gold, they will not delight in it.

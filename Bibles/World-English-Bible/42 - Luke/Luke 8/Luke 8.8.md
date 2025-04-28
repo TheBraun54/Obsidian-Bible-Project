@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And other fell into the good ground, and grew, and brought forth fruit a hundredfold. As he said these things, he cried, He that hath ears to hear, let him hear.
+Other fell into the good ground, and grew, and brought forth fruit one hundred times." As he said these things, he called out, "He who has ears to hear, let him hear!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But this he said, signifying by what manner of death he should die.
+But he said this, signifying by what kind of death he should die.

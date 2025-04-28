@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but if thou wilt not send him, we will not go down; for the man said unto us, Ye shall not see my face, except your brother be with you.
+but if you'll not send him, we'll not go down, for the man said to us, 'You shall not see my face, unless your brother is with you.'"

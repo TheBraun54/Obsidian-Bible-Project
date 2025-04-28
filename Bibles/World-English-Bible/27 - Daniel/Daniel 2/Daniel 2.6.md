@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if ye show the dream and the interpretation thereof, ye shall receive of me gifts and rewards and great honor: therefore show me the dream and the interpretation thereof.
+But if you show the dream and its interpretation, you shall receive of me gifts and rewards and great honor: therefore show me the dream and its interpretation.

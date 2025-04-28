@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every day he was teaching in the temple; and every night he went out, and lodged in the mount that is called Olivet.
+Every day Jesus was teaching in the temple, and every night he would go out and spend the night on the mountain that is called Olivet.

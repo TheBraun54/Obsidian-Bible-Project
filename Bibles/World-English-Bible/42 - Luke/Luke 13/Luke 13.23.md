@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one said unto him, Lord, are they few that are saved? And he said unto them,
+One said to him, "Lord, are they few who are saved?" He said to them,

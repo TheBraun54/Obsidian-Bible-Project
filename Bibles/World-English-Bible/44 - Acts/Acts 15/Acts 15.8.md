@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God, who knoweth the heart, bare them witness, giving them the Holy Spirit, even as he did unto us;
+God, who knows the heart, testified about them, giving them the Holy Spirit, just like he did to us.

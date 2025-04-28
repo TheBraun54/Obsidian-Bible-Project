@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, that instead of sweet spices there shall be rottenness; and instead of a girdle, a rope; and instead of well set hair, baldness; and instead of a robe, a girding of sackcloth; branding instead of beauty.
+It shall happen that instead of sweet spices, there shall be rottenness; instead of a belt, a rope; instead of well set hair, baldness; instead of a robe, a wearing of sackcloth; and branding instead of beauty.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We know that whosoever is begotten of God sinneth not; but he that was begotten of God keepeth himself, and the evil one toucheth him not.
+We know that whoever is born of God doesn't sin, but he who was born of God keeps himself, and the evil one doesn't touch him.

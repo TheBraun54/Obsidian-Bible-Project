@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Festus, desiring to gain favor with the Jews, answered Paul and said, Wilt thou go up to Jerusalem, and there be judged of these things before me?
+But Festus, desiring to gain favor with the Jews, answered Paul and said, "Are you willing to go up to Jerusalem, and be judged by me there concerning these things?"

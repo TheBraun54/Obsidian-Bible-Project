@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts: Behold, I will save my people from the east country, and from the west country;
+Thus says Yahweh of Armies: "Behold, I will save my people from the east country, and from the west country;

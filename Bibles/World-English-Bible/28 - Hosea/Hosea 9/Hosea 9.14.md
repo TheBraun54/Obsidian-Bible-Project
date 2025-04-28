@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Give them, O Jehovah--what wilt thou give? give them a miscarrying womb and dry breasts.
+Give them--Yahweh what will you give? Give them a miscarrying womb and dry breasts.

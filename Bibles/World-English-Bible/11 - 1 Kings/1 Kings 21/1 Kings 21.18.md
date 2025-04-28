@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise, go down to meet Ahab king of Israel, who dwelleth in Samaria: behold, he is in the vineyard of Naboth, whither he is gone down to take possession of it.
+"Arise, go down to meet Ahab king of Israel, who dwells in Samaria. Behold, he is in the vineyard of Naboth, where he has gone down to take possession of it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, I will send the lad, [saying], Go, find the arrows. If I say unto the lad, Behold, the arrows are on this side of thee; take them, and come; for there is peace to thee and [ no hurt, as Jehovah liveth.
+Behold, I will send the boy, saying, 'Go, find the arrows!' If I tell the boy, 'Behold, the arrows are on this side of you. Take them;' then come; for there is peace to you and no hurt, as Yahweh lives.

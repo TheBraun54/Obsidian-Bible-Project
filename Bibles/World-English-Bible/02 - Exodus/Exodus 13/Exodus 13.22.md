@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the pillar of cloud by day, and the pillar of fire by night, departed not from before the people.
+the pillar of cloud by day, and the pillar of fire by night, didn't depart from before the people.

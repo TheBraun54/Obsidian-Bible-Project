@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have set their mouth in the heavens, And their tongue walketh through the earth.
+They have set their mouth in the heavens. Their tongue walks through the earth.

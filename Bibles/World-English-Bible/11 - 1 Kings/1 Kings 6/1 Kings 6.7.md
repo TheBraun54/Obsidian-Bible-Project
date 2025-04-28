@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the house, when it was in building, was built of stone made ready at the quarry; and there was neither hammer nor axe nor any tool of iron heard in the house, while it was in building.
+The house, when it was in building, was built of stone prepared at the quarry; and there was neither hammer nor axe nor any tool of iron heard in the house, while it was in building.

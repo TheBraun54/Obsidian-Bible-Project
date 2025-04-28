@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto me, The remnant that are left of the captivity there in the province are in great affliction and reproach: the wall of Jerusalem also is broken down, and the gates thereof are burned with fire.
+They said to me, "The remnant who are left of the captivity there in the province are in great affliction and reproach. The wall of Jerusalem also is broken down, and its gates are burned with fire."

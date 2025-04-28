@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that feared the word of Jehovah among the servants of Pharaoh made his servants and his cattle flee into the houses:
+Those who feared the word of Yahweh among the servants of Pharaoh made their servants and their livestock flee into the houses.

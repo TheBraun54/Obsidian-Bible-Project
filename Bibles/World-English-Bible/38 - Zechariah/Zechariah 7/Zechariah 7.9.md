@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus hath Jehovah of hosts spoken, saying, Execute true judgment, and show kindness and compassion every man to his brother;
+"Thus has Yahweh of Armies spoken, saying, 'Execute true judgment, and show kindness and compassion every man to his brother.

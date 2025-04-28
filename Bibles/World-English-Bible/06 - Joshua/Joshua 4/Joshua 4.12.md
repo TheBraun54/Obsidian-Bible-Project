@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Reuben, and the children of Gad, and the half-tribe of Manasseh, passed over armed before the children of Israel, as Moses spake unto them:
+The children of Reuben, and the children of Gad, and the half-tribe of Manasseh, passed over armed before the children of Israel, as Moses spoke to them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From the wicked that oppress me, My deadly enemies, that compass me about.
+from the wicked who oppress me, my deadly enemies, who surround me.

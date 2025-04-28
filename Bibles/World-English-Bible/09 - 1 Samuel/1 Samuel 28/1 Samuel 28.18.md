@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because thou obeyedst not the voice of Jehovah, and didst not execute his fierce wrath upon Amalek, therefore hath Jehovah done this thing unto thee this day.
+Because you didn't obey the voice of Yahweh, and didn't execute his fierce wrath on Amalek, therefore Yahweh has done this thing to you this day.

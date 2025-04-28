@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they besought him, saying, Send us into the swine, that we may enter into them.
+All the demons begged him, saying, "Send us into the pigs, that we may enter into them."

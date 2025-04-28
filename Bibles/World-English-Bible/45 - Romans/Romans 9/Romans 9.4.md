@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who are Israelites; whose is the adoption, and the glory, and the covenants, and the giving of the law, and the service [of God], and the promises;
+who are Israelites; whose is the adoption, the glory, the covenants, the giving of the law, the service, and the promises;

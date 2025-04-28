@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Preacher sought to find out acceptable words, and that which was written uprightly, [even] words of truth.
+The Preacher sought to find out acceptable words, and that which was written blamelessly, words of truth.

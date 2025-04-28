@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when ye offer your gifts, when ye make your sons to pass through the fire, do ye pollute yourselves with all your idols unto this day? and shall I be inquired of by you, O house of Israel? As I live, saith the Lord Jehovah, I will not be inquired of by you;
+and when you offer your gifts, when you make your sons to pass through the fire, do you pollute yourselves with all your idols to this day? and shall I be inquired of by you, house of Israel? As I live, says the Lord Yahweh, I will not be inquired of by you;

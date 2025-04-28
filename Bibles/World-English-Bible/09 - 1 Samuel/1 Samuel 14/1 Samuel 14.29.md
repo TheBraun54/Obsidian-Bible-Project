@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Jonathan, My father hath troubled the land: see, I pray you, how mine eyes have been enlightened, because I tasted a little of this honey.
+Then Jonathan said, "My father has troubled the land. Please look how my eyes have been enlightened, because I tasted a little of this honey.

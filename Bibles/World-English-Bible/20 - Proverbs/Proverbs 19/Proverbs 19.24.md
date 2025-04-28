@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sluggard burieth his hand in the dish, And will not so much as bring it to his mouth again.
+The sluggard buries his hand in the dish; he will not so much as bring it to his mouth again.

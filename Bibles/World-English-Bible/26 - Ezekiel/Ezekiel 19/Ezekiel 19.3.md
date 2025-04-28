@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she brought up one of her whelps: he became a young lion, and he learned to catch the prey; he devoured men.
+She brought up one of her cubs: he became a young lion, and he learned to catch the prey; he devoured men.

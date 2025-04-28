@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king and Jehoiada gave it to such as did the work of the service of the house of Jehovah; and they hired masons and carpenters to restore the house of Jehovah, and also such as wrought iron and brass to repair the house of Jehovah.
+The king and Jehoiada gave it to such as did the work of the service of the house of Yahweh; and they hired masons and carpenters to restore the house of Yahweh, and also such as worked iron and brass to repair the house of Yahweh.

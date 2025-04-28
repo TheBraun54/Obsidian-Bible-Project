@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph was brought down to Egypt; and Potiphar, an officer of Pharaoh's, the captain of the guard, an Egyptian, bought him of the hand of the Ishmaelites, that had brought him down thither.
+Joseph was brought down to Egypt. Potiphar, an officer of Pharaoh's, the captain of the guard, an Egyptian, bought him from the hand of the Ishmaelites that had brought him down there.

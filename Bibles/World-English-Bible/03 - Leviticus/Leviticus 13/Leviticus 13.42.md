@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if there be in the bald head, or the bald forehead, a reddish-white plague; it is leprosy breaking out in his bald head, or his bald forehead.
+But if there is in the bald head, or the bald forehead, a reddish-white plague; it is leprosy breaking out in his bald head, or his bald forehead.

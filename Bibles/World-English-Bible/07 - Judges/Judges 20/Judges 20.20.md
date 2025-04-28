@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men of Israel went out to battle against Benjamin; and the men of Israel set the battle in array against them at Gibeah.
+The men of Israel went out to battle against Benjamin; and the men of Israel set the battle in array against them at Gibeah.

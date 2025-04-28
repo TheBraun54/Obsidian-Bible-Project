@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The second Woe is past: behold, the third Woe cometh quickly.
+The second woe is past. Behold, the third woe comes quickly.

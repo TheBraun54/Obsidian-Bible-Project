@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And no one was able to answer him a word, neither durst any man from that day forth ask him any more questions.
+No one was able to answer him a word, neither did any man dare ask him any more questions from that day forth.

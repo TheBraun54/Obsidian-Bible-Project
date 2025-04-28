@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou art this day to pass over Ar, the border of Moab:
+"You are this day to pass over Ar, the border of Moab:

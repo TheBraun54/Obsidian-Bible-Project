@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I receive not glory from men.
+I don't receive glory from men.

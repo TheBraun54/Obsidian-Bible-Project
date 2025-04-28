@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the flax and the barley were smitten: for the barley was in the ear, and the flax was in bloom.
+The flax and the barley were struck, for the barley was in the ear, and the flax was in bloom.

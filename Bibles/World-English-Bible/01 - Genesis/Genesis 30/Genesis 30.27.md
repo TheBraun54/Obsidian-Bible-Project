@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Laban said unto him, If now I have found favor in thine eyes, [tarry] : [for] I have divined that Jehovah hath blessed me for thy sake.
+Laban said to him, "If now I have found favor in your eyes, stay here, for I have divined that Yahweh has blessed me for your sake."

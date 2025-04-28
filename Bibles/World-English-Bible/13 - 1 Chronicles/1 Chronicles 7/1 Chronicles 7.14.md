@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sons of Manasseh: Asriel, whom his concubine the Aramitess bare: she bare Machir the father of Gilead:
+The sons of Manasseh: Asriel, whom his concubine the Aramitess bore: she bore Machir the father of Gilead:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Saying above, Sacrifices and offerings and whole burnt offerings and [sacrifices] for sin thou wouldest not, neither hadst pleasure therein (the which are offered according to the law),
+Previously saying, "Sacrifices and offerings and whole burnt offerings and sacrifices for sin you didn't desire, neither had pleasure in them" (those which are offered according to the law),

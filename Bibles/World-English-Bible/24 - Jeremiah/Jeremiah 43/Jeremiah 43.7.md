@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they came into the land of Egypt; for they obeyed not the voice of Jehovah: and they came unto Tahpanhes.
+and they came into the land of Egypt; for they didn't obey the voice of Yahweh: and they came to Tahpanhes.

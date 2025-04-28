@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and if we have not [rather] out of carefulness done this, [and] of purpose, saying, In time to come your children might speak unto our children, saying, What have ye to do with Jehovah, the God of Israel?
+"If we have not out of concern done this, and for a reason, saying, 'In time to come your children might speak to our children, saying, "What have you to do with Yahweh, the God of Israel?

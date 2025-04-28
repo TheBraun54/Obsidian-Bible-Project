@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because that which is known of God is manifest in them; for God manifested it unto them.
+because that which is known of God is revealed in them, for God revealed it to them.

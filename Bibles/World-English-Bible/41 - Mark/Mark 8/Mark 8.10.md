@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And straightway he entered into the boat with his disciples, and came into the parts of Dalmanutha.
+Immediately he entered into the boat with his disciples, and came into the region of Dalmanutha.

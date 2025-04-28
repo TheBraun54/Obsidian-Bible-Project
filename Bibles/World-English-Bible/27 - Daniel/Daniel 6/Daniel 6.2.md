@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and over them three presidents, of whom Daniel was one; that these satraps might give account unto them, and that the king should have no damage.
+and over them three presidents, of whom Daniel was one; that these satraps might give account to them, and that the king should have no damage.

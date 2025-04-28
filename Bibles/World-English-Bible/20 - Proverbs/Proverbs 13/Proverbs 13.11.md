@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wealth gotten by vanity shall be diminished; But he that gathereth by labor shall have increase.
+Wealth gained dishonestly dwindles away, but he who gathers by hand makes it grow.

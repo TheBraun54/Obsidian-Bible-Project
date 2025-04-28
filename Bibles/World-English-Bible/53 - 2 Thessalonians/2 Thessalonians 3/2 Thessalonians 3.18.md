@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The grace of our Lord Jesus Christ be with you all.
+The grace of our Lord Jesus Christ be with you all. Amen.

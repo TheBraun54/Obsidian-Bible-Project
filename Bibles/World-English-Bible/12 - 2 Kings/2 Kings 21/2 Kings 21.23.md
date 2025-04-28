@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the servants of Amon conspired against him, and put the king to death in his own house.
+The servants of Amon conspired against him, and put the king to death in his own house.

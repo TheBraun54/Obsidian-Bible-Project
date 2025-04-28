@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore kick ye at my sacrifice and at mine offering, which I have commanded in [my] habitation, and honorest thy sons above me, to make yourselves fat with the chiefest of all the offerings of Israel my people?
+Why do you kick at my sacrifice and at my offering, which I have commanded in [my] habitation, and honor your sons above me, to make yourselves fat with the best of all the offerings of Israel my people?'

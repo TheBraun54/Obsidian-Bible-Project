@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I say the truth in Christ, I lie not, my conscience bearing witness with me in the Holy Spirit,
+I tell the truth in Christ. I am not lying, my conscience testifying with me in the Holy Spirit,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let their habitation be desolate; Let none dwell in their tents.
+Let their habitation be desolate. Let no one dwell in their tents.

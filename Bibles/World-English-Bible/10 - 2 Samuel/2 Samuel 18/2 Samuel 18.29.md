@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said, Is it well with the young man Absalom? And Ahimaaz answered, When Joab sent the king's servant, even me thy servant, I saw a great tumult, but I knew not what it was.
+The king said, "Is it well with the young man Absalom?" Ahimaaz answered, "When Joab sent the king's servant, even me your servant, I saw a great tumult, but I don't know what it was."

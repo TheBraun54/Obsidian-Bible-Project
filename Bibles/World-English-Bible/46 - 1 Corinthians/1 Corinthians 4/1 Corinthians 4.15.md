@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For though ye have ten thousand tutors in Christ, yet [have ye] not many fathers; for in Christ Jesus I begat you through the gospel.
+For though you have ten thousand tutors in Christ, yet not many fathers. For in Christ Jesus, I became your father through the Good News.

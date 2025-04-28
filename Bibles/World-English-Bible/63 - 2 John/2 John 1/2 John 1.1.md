@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The elder unto the elect lady and her children, whom I love in truth; and not I only, but also all they that know the truth;
+The elder, to the chosen lady and her children, whom I love in truth; and not I only, but also all those who know the truth;

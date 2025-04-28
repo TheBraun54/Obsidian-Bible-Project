@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Balak said unto Balaam, Neither curse them at all, nor bless them at all.
+Balak said to Balaam, "Neither curse them at all, nor bless them at all."

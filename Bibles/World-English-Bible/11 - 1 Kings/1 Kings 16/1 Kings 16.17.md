@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Omri went up from Gibbethon, and all Israel with him, and they besieged Tirzah.
+Omri went up from Gibbethon, and all Israel with him, and they besieged Tirzah.

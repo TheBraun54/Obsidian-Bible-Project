@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And let them make me a sanctuary, that I may dwell among them.
+Let them make me a sanctuary, that I may dwell among them.

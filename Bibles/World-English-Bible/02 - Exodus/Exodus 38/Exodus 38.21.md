@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the sum of [the things for] the tabernacle, even the tabernacle of the testimony, as they were counted, according to the commandment of Moses, for the service of the Levites, by the hand of Ithamar, the son of Aaron the priest.
+This is the amount of material used for the tabernacle, even the Tabernacle of the Testimony, as they were counted, according to the commandment of Moses, for the service of the Levites, by the hand of Ithamar, the son of Aaron the priest.

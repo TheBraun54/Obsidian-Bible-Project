@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am become a stranger unto my brethren, And an alien unto my mother's children.
+I have become a stranger to my brothers, an alien to my mother's children.

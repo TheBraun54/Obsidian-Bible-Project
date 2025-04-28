@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Saul, yet breathing threatening and slaughter against the disciples of the Lord, went unto the high priest,
+But Saul, still breathing threats and slaughter against the disciples of the Lord, went to the high priest,

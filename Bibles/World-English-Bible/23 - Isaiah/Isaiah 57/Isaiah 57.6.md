@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Among the smooth [stones] of the valley is thy portion; they, they are thy lot; even to them hast thou poured a drink-offering, thou hast offered an oblation. Shall I be appeased for these things?
+Among the smooth [stones] of the valley is your portion; they, they are your lot; you have even poured a drink offering to them. You have offered an offering. Shall I be appeased for these things?

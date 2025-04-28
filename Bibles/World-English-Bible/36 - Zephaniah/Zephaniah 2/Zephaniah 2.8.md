@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have heard the reproach of Moab, and the revilings of the children of Ammon, wherewith they have reproached my people, and magnified themselves against their border.
+I have heard the reproach of Moab, and the insults of the children of Ammon, with which they have reproached my people, and magnified themselves against their border.

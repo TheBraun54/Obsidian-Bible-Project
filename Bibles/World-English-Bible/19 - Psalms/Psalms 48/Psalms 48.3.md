@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God hath made himself known in her palaces for a refuge.
+God has shown himself in her citadels as a refuge.

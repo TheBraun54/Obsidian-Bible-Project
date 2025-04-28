@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and let it come to pass, that the damsel to whom I shall say, Let down thy pitcher, I pray thee, that I may drink; and she shall say, Drink, and I will give thy camels drink also: let the same be she that thou hast appointed for thy servant Isaac; and thereby shall I know that thou hast showed kindness unto my master.
+Let it happen, that the young lady to whom I will say, 'Please let down your pitcher, that I may drink,' and she will say, 'Drink, and I will also give your camels a drink,'--let her be the one you have appointed for your servant Isaac. By this I will know that you have shown kindness to my master."

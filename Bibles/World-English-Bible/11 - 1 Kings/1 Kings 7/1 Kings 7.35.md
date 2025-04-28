@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the top of the base was there a round compass half a cubit high; and on the top of the base the stays thereof and the panels thereof were of the same.
+In the top of the base was there a round compass half a cubit high; and on the top of the base its stays and its panels were of the same.

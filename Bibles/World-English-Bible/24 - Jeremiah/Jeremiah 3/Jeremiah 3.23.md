@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Truly in vain is [the help that is looked for] from the hills, the tumult on the mountains: truly in Jehovah our God is the salvation of Israel.
+Truly in vain is [the help that is looked for] from the hills, the tumult on the mountains. Truly the salvation of Israel is in Yahweh our God.

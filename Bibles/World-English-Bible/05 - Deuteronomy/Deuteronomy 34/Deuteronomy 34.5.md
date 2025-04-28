@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Moses the servant of Jehovah died there in the land of Moab, according to the word of Jehovah.
+So Moses the servant of Yahweh died there in the land of Moab, according to the word of Yahweh.

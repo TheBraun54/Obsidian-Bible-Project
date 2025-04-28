@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said unto him, Hearest thou what these are saying? And Jesus saith unto them, Yea: did ye never read, Out of the mouth of babes and sucklings thou has perfected praise?
+and said to him, "Do you hear what these are saying?" Jesus said to them, "Yes. Did you never read, 'Out of the mouth of babes and nursing babies you have perfected praise?'"

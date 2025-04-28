@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Enosh lived ninety years, and begat Kenan:
+Enosh lived ninety years, and became the father of Kenan.

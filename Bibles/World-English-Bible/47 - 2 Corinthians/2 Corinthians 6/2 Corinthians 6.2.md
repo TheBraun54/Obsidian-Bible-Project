@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(for he saith, At an acceptable time I hearkened unto thee, And in a day of salvation did I succor thee: behold, now is the acceptable time; behold, now is the day of salvation):
+for he says, "At an acceptable time I listened to you, in a day of salvation I helped you." Behold, now is the acceptable time. Behold, now is the day of salvation.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For a dream cometh with a multitude of business, and a fool's voice with a multitude of words.
+For as a dream comes with a multitude of cares, so a fool's speech with a multitude of words.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nebuchadrezzar the king of Babylon hath devoured me, he hath crushed me, he hath made me an empty vessel, he hath, like a monster, swallowed [ me up, he hath filled his maw with my delicacies; he hath cast me out.
+Nebuchadnezzar the king of Babylon has devoured me, he has crushed me, he has made me an empty vessel, he has, like a monster, swallowed me up, he has filled his maw with my delicacies; he has cast me out.

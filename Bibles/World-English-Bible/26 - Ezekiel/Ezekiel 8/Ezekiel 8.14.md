@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he brought me to the door of the gate of Jehovah's house which was toward the north; and behold, there sat the women weeping for Tammuz.
+Then he brought me to the door of the gate of Yahweh's house which was toward the north; and see, there sat the women weeping for Tammuz.

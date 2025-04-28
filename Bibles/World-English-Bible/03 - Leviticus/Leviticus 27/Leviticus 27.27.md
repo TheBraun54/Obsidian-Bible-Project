@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if it be of an unclean beast, then he shall ransom it according to thine estimation, and shall add unto it the fifth part thereof: or if it be not redeemed, then it shall be sold according to thy estimation.
+If it is an unclean animal, then he shall buy it back according to your valuation, and shall add to it the fifth part of it: or if it isn't redeemed, then it shall be sold according to your valuation.

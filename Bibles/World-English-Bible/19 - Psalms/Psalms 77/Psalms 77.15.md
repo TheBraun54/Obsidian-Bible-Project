@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast with thine arm redeemed thy people, The sons of Jacob and Joseph. {{Selah
+You have redeemed your people with your arm, the sons of Jacob and Joseph. Selah.

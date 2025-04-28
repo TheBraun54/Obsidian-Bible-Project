@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For before that certain came from James, he ate with the Gentiles; but when they came, he drew back and separated himself, fearing them that were of the circumcision.
+For before some people came from James, he ate with the Gentiles. But when they came, he drew back and separated himself, fearing those who were of the circumcision.

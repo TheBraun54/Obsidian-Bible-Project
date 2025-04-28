@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is better to dwell in the corner of the housetop, Than with a contentious woman in a wide house.
+It is better to dwell in the corner of the housetop, than to share a house with a contentious woman.

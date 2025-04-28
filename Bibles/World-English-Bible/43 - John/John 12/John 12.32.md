@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I, if I be lifted up from the earth, will draw all men unto myself.
+And I, if I am lifted up from the earth, will draw all people to myself."

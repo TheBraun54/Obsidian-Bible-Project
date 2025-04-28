@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that Joshua called for all Israel, for their elders and for their heads, and for their judges and for their officers, and said unto them, I am old and well stricken in years:
+that Joshua called for all Israel, for their elders and for their heads, and for their judges and for their officers, and said to them, "I am old and well advanced in years.

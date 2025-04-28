@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on that day, when even was come, he saith unto them, Let us go over unto the other side.
+On that day, when evening had come, he said to them, "Let's go over to the other side."

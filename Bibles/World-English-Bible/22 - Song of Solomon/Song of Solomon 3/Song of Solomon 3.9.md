@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-King Solomon made himself a palanquin Of the wood of Lebanon.
+King Solomon made himself a carriage of the wood of Lebanon.

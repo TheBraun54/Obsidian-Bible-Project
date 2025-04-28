@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the sons of Zerah: Jeuel, and their brethren, six hundred and ninety.
+Of the sons of Zerah: Jeuel, and their brothers, six hundred ninety.

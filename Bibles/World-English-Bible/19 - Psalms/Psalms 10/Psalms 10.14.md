@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast seen [it] ; for thou beholdest mischief and spite, to requite it with thy hand: The helpless committeth [himself] unto thee; Thou hast been the helper of the fatherless.
+But you do see trouble and grief. You consider it to take it into your hand. You help the victim and the fatherless.

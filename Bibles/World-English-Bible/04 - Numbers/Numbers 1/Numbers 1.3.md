@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-from twenty years old and upward, all that are able to go forth to war in Israel, thou and Aaron shall number them by their hosts.
+from twenty years old and upward, all who are able to go out to war in Israel. You and Aaron shall number them by their divisions.

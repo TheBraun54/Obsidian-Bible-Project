@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now know I that Jehovah saveth his anointed; He will answer him from his holy heaven With the saving strength of his right hand.
+Now I know that Yahweh saves his anointed. He will answer him from his holy heaven, with the saving strength of his right hand.

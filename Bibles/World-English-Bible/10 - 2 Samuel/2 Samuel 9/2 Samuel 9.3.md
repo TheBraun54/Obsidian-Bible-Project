@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said, Is there not yet any of the house of Saul, that I may show the kindness of God unto him? And Ziba said unto the king, Jonathan hath yet a son, who is lame of his feet.
+The king said, "Is there not yet any of the house of Saul, that I may show the kindness of God to him?" Ziba said to the king, "Jonathan has yet a son, who is lame of his feet."

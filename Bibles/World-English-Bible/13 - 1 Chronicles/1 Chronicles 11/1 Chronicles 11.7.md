@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David dwelt in the stronghold; therefore they called it the city of David.
+David lived in the stronghold; therefore they called it the city of David.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will smite them through, so that they shall not be able to rise: They shall fall under my feet.
+I will strike them through, so that they will not be able to rise. They shall fall under my feet.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then were the chiefs of Edom dismayed; The mighty men of Moab, trembling taketh hold upon them: All the inhabitants of Canaan are melted away.
+Then the chiefs of Edom were dismayed. Trembling takes hold of the mighty men of Moab. All the inhabitants of Canaan are melted away.

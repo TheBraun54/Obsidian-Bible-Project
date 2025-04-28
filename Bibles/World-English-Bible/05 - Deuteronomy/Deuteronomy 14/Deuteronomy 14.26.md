@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt bestow the money for whatsoever thy soul desireth, for oxen, or for sheep, or for wine, or for strong drink, or for whatsoever thy soul asketh of thee; and thou shalt eat there before Jehovah thy God, and thou shalt rejoice, thou and thy household.
+and you shall bestow the money for whatever your soul desires, for cattle, or for sheep, or for wine, or for strong drink, or for whatever your soul asks of you; and you shall eat there before Yahweh your God, and you shall rejoice, you and your household.

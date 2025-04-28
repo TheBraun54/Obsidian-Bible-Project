@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He bowed the heavens also, and came down; And thick darkness was under his feet.
+He bowed the heavens also, and came down. Thick darkness was under his feet.

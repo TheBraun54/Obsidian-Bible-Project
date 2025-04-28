@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I came to set a man at variance against his father, and the daughter against her mother, and the daughter in law against her mother in law:
+For I came to set a man at odds against his father, and a daughter against her mother, and a daughter-in-law against her mother-in-law.

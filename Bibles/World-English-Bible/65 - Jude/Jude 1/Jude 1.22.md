@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on some have mercy, who are in doubt;
+On some have compassion, making a distinction,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But love your enemies, and do [them] good, and lend, never despairing; and your reward shall be great, and ye shall be sons of the Most High: for he is kind toward the unthankful and evil.
+But love your enemies, and do good, and lend, expecting nothing back; and your reward will be great, and you will be children of the Most High; for he is kind toward the unthankful and evil.

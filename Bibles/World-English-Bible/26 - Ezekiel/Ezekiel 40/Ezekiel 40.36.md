@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the lodges thereof, the posts thereof, and the arches thereof: and there were windows therein round about; the length was fifty cubits, and the breadth five and twenty cubits.
+its lodges, its posts, and its arches: and there were windows therein all around; the length was fifty cubits, and the breadth twenty-five cubits.

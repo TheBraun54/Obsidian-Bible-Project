@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou also hast delivered me from the strivings of my people; Thou hast kept me to be the head of the nations: A people whom I have not known shall serve me.
+You also have delivered me from the strivings of my people. You have kept me to be the head of the nations. A people whom I have not known will serve me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, ye trust in lying words, that cannot profit.
+Behold, you trust in lying words, that can't profit.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salt therefore is good: but if even the salt have lost its savor, wherewith shall it be seasoned?
+Salt is good, but if the salt becomes flat and tasteless, with what do you season it?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I said unto them, Ye are holy unto Jehovah, and the vessels are holy; and the silver and the gold are a freewill-offering unto Jehovah, the God of your fathers.
+I said to them, "You are holy to Yahweh, and the vessels are holy; and the silver and the gold are a freewill offering to Yahweh, the God of your fathers.

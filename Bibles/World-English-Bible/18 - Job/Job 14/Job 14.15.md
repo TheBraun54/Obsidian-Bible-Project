@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou wouldest call, and I would answer thee: Thou wouldest have a desire to the work of thy hands.
+You would call, and I would answer you. You would have a desire to the work of your hands.

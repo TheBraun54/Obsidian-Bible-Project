@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the daughter of Pharaoh came down to bathe at the river; and her maidens walked along by the river-side; and she saw the ark among the flags, and sent her handmaid to fetch it.
+Pharaoh's daughter came down to bathe at the river. Her maidens walked along by the riverside. She saw the basket among the reeds, and sent her handmaid to get it.

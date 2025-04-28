@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they led Jesus away to the high priest: and there come together with him all the chief priests and the elders and the scribes.
+They led Jesus away to the high priest. All the chief priests, the elders, and the scribes came together with him.

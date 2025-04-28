@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, when ye draw nigh unto the battle, that the priest shall approach and speak unto the people,
+It shall be, when you draw near to the battle, that the priest shall approach and speak to the people,

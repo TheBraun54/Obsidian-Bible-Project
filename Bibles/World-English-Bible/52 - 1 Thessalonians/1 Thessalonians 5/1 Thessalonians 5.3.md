@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When they are saying, Peace and safety, then sudden destruction cometh upon them, as travail upon a woman with child; and they shall in no wise escape.
+For when they are saying, "Peace and safety," then sudden destruction will come on them, like birth pains on a pregnant woman; and they will in no way escape.

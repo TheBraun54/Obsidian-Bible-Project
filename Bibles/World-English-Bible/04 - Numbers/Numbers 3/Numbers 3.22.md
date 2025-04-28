@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Those that were numbered of them, according to the number of all the males, from a month old and upward, even those that were numbered of them were seven thousand and five hundred.
+Those who were numbered of them, according to the number of all the males, from a month old and upward, even those who were numbered of them were seven thousand five hundred.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the cities which the Philistines had taken from Israel were restored to Israel, from Ekron even unto Gath; and the border thereof did Israel deliver out of the hand of the Philistines. And there was peace between Israel and the Amorites.
+The cities which the Philistines had taken from Israel were restored to Israel, from Ekron even to Gath; and its border did Israel deliver out of the hand of the Philistines. There was peace between Israel and the Amorites.

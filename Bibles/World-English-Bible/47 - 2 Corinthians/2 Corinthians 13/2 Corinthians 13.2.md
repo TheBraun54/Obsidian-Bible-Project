@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have said beforehand, and I do say beforehand, as when I was present the second time, so now, being absent, to them that have sinned heretofore, and to all the rest, that, if I come again, I will not spare;
+I have said beforehand, and I do say beforehand, as when I was present the second time, so now, being absent, I write to those who have sinned before now, and to all the rest, that, if I come again, I will not spare;

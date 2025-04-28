@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith Jehovah of hosts, Behold, I will melt them, and try them; for how [else] should I do, because of the daughter of my people?
+Therefore thus says Yahweh of Armies, Behold, I will melt them, and try them; for how [else] should I do, because of the daughter of my people?

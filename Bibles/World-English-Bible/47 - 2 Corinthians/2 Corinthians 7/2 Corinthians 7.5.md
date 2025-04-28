@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For even when we were come into Macedonia our flesh had no relief, but [we were] afflicted on every side; without [were] fightings, within [were] fears.
+For even when we had come into Macedonia, our flesh had no relief, but we were afflicted on every side. Fightings were outside. Fear was inside.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-See therefore, and take knowledge of all the lurking-places where he hideth himself, and come ye again to me of a certainty, and I will go with you: and it shall come to pass, if he be in the land, that I will search him out among all the thousands of Judah.
+See therefore, and take knowledge of all the lurking places where he hides himself, and come again to me with certainty, and I will go with you: and it shall happen, if he is in the land, that I will search him out among all the thousands of Judah."

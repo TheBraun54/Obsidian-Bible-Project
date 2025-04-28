@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-is it a small thing that thou hast brought us up out of a land flowing with milk and honey, to kill us in the wilderness, but thou must needs make thyself also a prince over us?
+is it a small thing that you have brought us up out of a land flowing with milk and honey, to kill us in the wilderness, but you must also make yourself a prince over us?

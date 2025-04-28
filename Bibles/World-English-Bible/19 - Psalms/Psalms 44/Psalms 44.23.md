@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Awake, why sleepest thou, O Lord? Arise, cast [us] not off for ever.
+Wake up! Why do you sleep, Lord? Arise! Don't reject us forever.

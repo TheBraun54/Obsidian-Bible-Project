@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who was foreknown indeed before the foundation of the world, but was manifested at the end of times for your sake,
+who was foreknown indeed before the foundation of the world, but was revealed at the end of times for your sake,

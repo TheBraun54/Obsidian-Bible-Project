@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All that were numbered of the camp of Ephraim were a hundred thousand and eight thousand and a hundred, according to their hosts. And they shall set forth third.
+"All who were numbered of the camp of Ephraim were one hundred eight thousand one hundred, according to their divisions. They shall set out third.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Hushai was come to Absalom, Absalom spake unto him, saying, Ahithophel hath spoken after this manner: shall we do [after] his saying? if not, speak thou.
+When Hushai was come to Absalom, Absalom spoke to him, saying, "Ahithophel has spoken like this. Shall we do what he says? If not, speak up."

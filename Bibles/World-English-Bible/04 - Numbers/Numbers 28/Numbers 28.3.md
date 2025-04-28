@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt say unto them, This is the offering made by fire which ye shall offer unto Jehovah: he-lambs a year old without blemish, two day by day, for a continual burnt-offering.
+You shall tell them, 'This is the offering made by fire which you shall offer to Yahweh: male lambs a year old without blemish, two day by day, for a continual burnt offering.

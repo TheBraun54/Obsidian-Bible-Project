@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And let our [people] also learn to maintain good works for necessary uses, that they be not unfruitful.
+Let our people also learn to maintain good works for necessary uses, that they may not be unfruitful.

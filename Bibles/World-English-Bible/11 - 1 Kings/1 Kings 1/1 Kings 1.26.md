@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But me, even me thy servant, and Zadok the priest, and Benaiah the son of Jehoiada, and thy servant Solomon, hath he not called.
+But he hasn't called me, even me your servant, and Zadok the priest, and Benaiah the son of Jehoiada, and your servant Solomon.

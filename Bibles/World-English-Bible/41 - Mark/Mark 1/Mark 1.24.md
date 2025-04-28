@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, What have we to do with thee, Jesus thou Nazarene? art thou come to destroy us? I know thee who thou art, the Holy One of God.
+saying, "Ha! What do we have to do with you, Jesus, you Nazarene? Have you come to destroy us? I know you who you are: the Holy One of God!"

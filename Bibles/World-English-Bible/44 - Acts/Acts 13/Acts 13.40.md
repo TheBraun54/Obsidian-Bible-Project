@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beware therefore, lest that come upon [you] which is spoken in the prophets:
+Beware therefore, lest that come on you which is spoken in the prophets:

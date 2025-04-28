@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the strong [man] fully armed guardeth his own court, his goods are in peace:
+"When the strong man, fully armed, guards his own dwelling, his goods are safe.

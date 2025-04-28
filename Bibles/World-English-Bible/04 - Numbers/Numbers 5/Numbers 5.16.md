@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall bring her near, and set her before Jehovah:
+The priest shall bring her near, and set her before Yahweh;

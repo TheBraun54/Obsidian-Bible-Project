@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then will they call upon me, but I will not answer; They will seek me diligently, but they shall not find me:
+Then will they call on me, but I will not answer. They will seek me diligently, but they will not find me;

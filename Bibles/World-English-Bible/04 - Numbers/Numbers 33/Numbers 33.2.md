@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses wrote their goings out according to their journeys by the commandment of Jehovah: and these are their journeys according to their goings out.
+Moses wrote their goings out according to their journeys by the commandment of Yahweh: and these are their journeys according to their goings out.

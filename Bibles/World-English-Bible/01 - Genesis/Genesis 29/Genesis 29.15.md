@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Laban said unto Jacob, Because thou art my brother, shouldest thou therefore serve me for nought? tell me, what shall thy wages be?
+Laban said to Jacob, "Because you are my brother, should you therefore serve me for nothing? Tell me, what will your wages be?"

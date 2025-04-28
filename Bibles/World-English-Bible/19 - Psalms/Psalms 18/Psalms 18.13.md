@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah also thundered in the heavens, And the Most High uttered his voice, Hailstones and coals of fire.
+Yahweh also thundered in the sky. The Most High uttered his voice: hailstones and coals of fire.

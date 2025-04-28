@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am Jehovah, your Holy One, the Creator of Israel, your King.
+I am Yahweh, your Holy One, the Creator of Israel, your King."

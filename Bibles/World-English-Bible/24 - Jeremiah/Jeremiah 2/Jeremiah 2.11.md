@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hath a nation changed [its] gods, which yet are no gods? but my people have changed their glory for that which doth not profit.
+Has a nation changed [its] gods, which really are no gods? But my people have changed their glory for that which does not profit.

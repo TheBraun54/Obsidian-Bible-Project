@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brought the tabernacle unto Moses, the Tent, and all its furniture, its clasps, its boards, it bars, and its pillars, and it sockets;
+They brought the tabernacle to Moses, the tent, with all its furniture, its clasps, its boards, its bars, its pillars, its sockets,

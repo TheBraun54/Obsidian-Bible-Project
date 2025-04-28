@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if thy heart turn away, and thou wilt not hear, but shalt be drawn away, and worship other gods, and serve them;
+But if your heart turns away, and you will not hear, but shall be drawn away, and worship other gods, and serve them;

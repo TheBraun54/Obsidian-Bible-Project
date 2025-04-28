@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I will leave in the midst of thee an afflicted and poor people, and they shall take refuge in the name of Jehovah.
+But I will leave in the midst of you an afflicted and poor people, and they will take refuge in the name of Yahweh.

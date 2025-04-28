@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Uzziah prepared for them, even for all the host, shields, and spears, and helmets, and coats of mail, and bows, and stones for slinging.
+Uzziah prepared for them, even for all the army, shields, and spears, and helmets, and coats of mail, and bows, and stones for slinging.

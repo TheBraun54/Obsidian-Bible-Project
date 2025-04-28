@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Eliphaz the Temanite and Bildad the Shuhite and Zophar the Naamathite went, and did according as Jehovah commanded them: and Jehovah accepted Job.
+So Eliphaz the Temanite and Bildad the Shuhite and Zophar the Naamathite went, and did what Yahweh commanded them, and Yahweh accepted Job.

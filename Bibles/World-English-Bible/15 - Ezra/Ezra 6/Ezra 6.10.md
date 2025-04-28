@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that they may offer sacrifices of sweet savor unto the God of heaven, and pray for the life of the king, and of his sons.
+that they may offer sacrifices of pleasant aroma to the God of heaven, and pray for the life of the king, and of his sons.

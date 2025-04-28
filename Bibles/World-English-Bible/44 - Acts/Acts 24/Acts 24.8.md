@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-from whom thou wilt be able, by examining him thyself, to take knowledge of all these things whereof we accuse him.
+By examining him yourself you may ascertain all these things of which we accuse him."

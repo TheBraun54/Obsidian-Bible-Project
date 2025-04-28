@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-above all things being fervent in your love among yourselves; for love covereth a multitude of sins:
+And above all things be earnest in your love among yourselves, for love covers a multitude of sins.

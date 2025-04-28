@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The plans of the heart belong to man; But the answer of the tongue is from Jehovah.
+The plans of the heart belong to man, but the answer of the tongue is from Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For my name's sake will I defer mine anger, and for my praise will I refrain for thee, that I cut thee not off.
+For my name's sake will I defer my anger, and for my praise will I refrain for you, that I not cut you off.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this cause we also, since the day we heard [it], do not cease to pray and make request for you, that ye may be filled with the knowledge of his will in all spiritual wisdom and understanding,
+For this cause, we also, since the day we heard this, don't cease praying and making requests for you, that you may be filled with the knowledge of his will in all spiritual wisdom and understanding,

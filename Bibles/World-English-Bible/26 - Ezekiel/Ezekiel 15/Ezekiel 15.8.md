@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will make the land desolate, because they have committed a trespass, saith the Lord Jehovah.
+I will make the land desolate, because they have committed a trespass, says the Lord Yahweh.

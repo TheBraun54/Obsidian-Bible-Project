@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My beloved is unto me [as] a cluster of henna-flowers In the vineyards of En-gedi.
+My beloved is to me a cluster of henna blossoms from the vineyards of En Gedi. Lover

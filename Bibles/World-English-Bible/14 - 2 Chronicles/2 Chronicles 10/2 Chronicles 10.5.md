@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Come again unto me after three days. And the people departed.
+He said to them, "Come again to me after three days." The people departed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Israel sent to the place which the man of God told him and warned him of; and he saved himself there, not once nor twice.
+The king of Israel sent to the place which the man of God told him and warned him of; and he saved himself there, not once nor twice.

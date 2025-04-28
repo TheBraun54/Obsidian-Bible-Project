@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jezebel his wife said unto him, Dost thou now govern the kingdom of Israel? arise, and eat bread, and let thy heart be merry: I will give thee the vineyard of Naboth the Jezreelite.
+Jezebel his wife said to him, "Do you now govern the kingdom of Israel? Arise, and eat bread, and let your heart be merry. I will give you the vineyard of Naboth the Jezreelite."

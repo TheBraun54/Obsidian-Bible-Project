@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then took I the cup at Jehovah's hand, and made all the nations to drink, unto whom Jehovah had sent me:
+Then took I the cup at Yahweh's hand, and made all the nations to drink, to whom Yahweh had sent me:

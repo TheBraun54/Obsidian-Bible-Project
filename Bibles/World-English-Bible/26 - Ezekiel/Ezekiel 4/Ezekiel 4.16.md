@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover he said unto me, Son of man, behold, I will break the staff of bread in Jerusalem: and they shall eat bread by weight, and with fearfulness; and they shall drink water by measure, and in dismay:
+Moreover he said to me, Son of man, behold, I will break the staff of bread in Jerusalem: and they shall eat bread by weight, and with fearfulness; and they shall drink water by measure, and in dismay:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came the messengers to Gibeah of Saul, and spake these words in the ears of the people: and all the people lifted up their voice, and wept.
+Then the messengers came to Gibeah of Saul, and spoke these words in the ears of the people: and all the people lifted up their voice, and wept.

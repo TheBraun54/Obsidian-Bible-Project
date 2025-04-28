@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, All these things have I observed from my youth up.
+He said, "I have observed all these things from my youth up."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and she shall put the raiment of her captivity from off her, and shall remain in thy house, and bewail her father and her mother a full month: and after that thou shalt go in unto her, and be her husband, and she shall be thy wife.
+and she shall put the clothing of her captivity from off her, and shall remain in your house, and bewail her father and her mother a full month: and after that you shall go in to her, and be her husband, and she shall be your wife.

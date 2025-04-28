@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Who hath ears to hear, let him hear.
+He said, "Whoever has ears to hear, let him hear."

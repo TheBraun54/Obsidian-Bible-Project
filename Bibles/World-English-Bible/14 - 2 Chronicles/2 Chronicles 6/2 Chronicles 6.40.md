@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now, O my God, let, I beseech thee, thine eyes be open, and let thine ears be attent, unto the prayer that is made in this place.
+"Now, my God, let, I beg you, your eyes be open, and let your ears be attentive, to the prayer that is made in this place.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou shalt be broken in the midst of the uncircumcised, and shalt lie with them that are slain by the sword.
+But you shall be broken in the midst of the uncircumcised, and shall lie with those who are slain by the sword.

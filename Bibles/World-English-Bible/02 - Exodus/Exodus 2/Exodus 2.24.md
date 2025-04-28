@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God heard their groaning, and God remembered his covenant with Abraham, with Isaac, and with Jacob.
+God heard their groaning, and God remembered his covenant with Abraham, with Isaac, and with Jacob.

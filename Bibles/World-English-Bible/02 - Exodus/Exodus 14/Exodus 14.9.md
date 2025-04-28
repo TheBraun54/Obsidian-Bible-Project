@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Egyptians pursued after them, all the horses [and] chariots of Pharaoh, and his horsemen, and his army, and overtook them encamping by the sea, beside Pi-hahiroth, before Baal-zephon.
+The Egyptians pursued after them: all the horses and chariots of Pharaoh, his horsemen, and his army; and overtook them encamping by the sea, beside Pihahiroth, before Baal Zephon.

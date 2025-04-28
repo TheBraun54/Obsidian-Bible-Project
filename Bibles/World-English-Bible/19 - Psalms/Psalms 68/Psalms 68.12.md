@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Kings of armies flee, they flee; And she that tarrieth at home divideth the spoil.
+"Kings of armies flee! They flee!" She who waits at home divides the spoil,

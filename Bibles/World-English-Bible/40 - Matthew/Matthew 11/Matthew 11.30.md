@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For my yoke is easy, and my burden is light.
+For my yoke is easy, and my burden is light."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The first of the first-fruits of thy ground thou shalt bring unto the house of Jehovah thy God. Thou shalt not boil a kid in its mother's milk.
+"You shall bring the first of the first fruits of your ground to the house of Yahweh your God. "You shall not boil a young goat in its mother's milk."

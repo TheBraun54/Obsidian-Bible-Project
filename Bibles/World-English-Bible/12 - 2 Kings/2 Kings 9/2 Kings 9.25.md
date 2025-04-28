@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said [Jehu] to Bidkar his captain, Take up, and cast him in the portion of the field of Naboth the Jezreelite; for remember how that, when I and thou rode together after Ahab his father, Jehovah laid this burden upon him:
+Then Jehu said to Bidkar his captain, "Pick him up, and throw him in the plot of the field of Naboth the Jezreelite; for remember how, when you and I rode together after Ahab his father, Yahweh laid this burden on him:

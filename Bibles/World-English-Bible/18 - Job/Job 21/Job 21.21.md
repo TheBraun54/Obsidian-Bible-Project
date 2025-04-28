@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For what careth he for his house after him, When the number of his months is cut off?
+For what does he care for his house after him, when the number of his months is cut off?

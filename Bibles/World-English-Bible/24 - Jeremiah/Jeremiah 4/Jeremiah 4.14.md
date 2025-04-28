@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jerusalem, wash thy heart from wickedness, that thou mayest be saved. How long shall thine evil thoughts lodge within thee?
+Jerusalem, wash your heart from wickedness, that you may be saved. How long shall your evil thoughts lodge within you?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto the Levites that taught all Israel, that were holy unto Jehovah, Put the holy ark in the house which Solomon the son of David king of Israel did build; there shall no more be a burden upon your shoulders: now serve Jehovah your God, and his people Israel.
+He said to the Levites who taught all Israel, who were holy to Yahweh, "Put the holy ark in the house which Solomon the son of David king of Israel built. There shall no more be a burden on your shoulders. Now serve Yahweh your God, and his people Israel.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said, Whose daughter art thou? tell me, I pray thee. Is there room in thy father's house for us to lodge in?
+and said, "Whose daughter are you? Please tell me. Is there room in your father's house for us to lodge in?"

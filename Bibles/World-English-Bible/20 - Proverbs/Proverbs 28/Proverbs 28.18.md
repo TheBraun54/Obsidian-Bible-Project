@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso walketh uprightly shall be delivered; But he that is perverse in [his] ways shall fall at once.
+Whoever walks blamelessly is kept safe; but one with perverse ways will fall suddenly.

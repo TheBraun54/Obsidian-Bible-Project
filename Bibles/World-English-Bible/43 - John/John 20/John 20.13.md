@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they say unto her, Woman, why weepest thou? She saith unto them, Because they have taken away my Lord, and I know not where they have laid him.
+They told her, "Woman, why are you weeping?" She said to them, "Because they have taken away my Lord, and I don't know where they have laid him."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who, existing in the form of God, counted not the being on an equality with God a thing to be grasped,
+who, existing in the form of God, didn't consider equality with God a thing to be grasped,

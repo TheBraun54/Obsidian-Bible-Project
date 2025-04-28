@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ebed-melech the Ethiopian said unto Jeremiah, Put now these rags and worn-out garments under thine armholes under the cords. And Jeremiah did so.
+Ebedmelech the Ethiopian said to Jeremiah, Put now these rags and worn-out garments under your armpits under the cords. Jeremiah did so.

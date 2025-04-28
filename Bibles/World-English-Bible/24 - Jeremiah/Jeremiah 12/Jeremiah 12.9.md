@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is my heritage unto me as a speckled bird of prey? are the birds of prey against her round about? go ye, assemble all the beasts of the field, bring them to devour.
+Is my heritage to me as a speckled bird of prey? are the birds of prey against her all around? Go, assemble all the animals of the field, bring them to devour.

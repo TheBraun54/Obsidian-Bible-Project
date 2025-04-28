@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For three things the earth doth tremble, And for four, [which] it cannot bear:
+"For three things the earth tremble, and under four, it can't bear up:

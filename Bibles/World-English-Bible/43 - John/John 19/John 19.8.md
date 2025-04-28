@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Pilate therefore heard this saying, he was the more afraid;
+When therefore Pilate heard this saying, he was more afraid.

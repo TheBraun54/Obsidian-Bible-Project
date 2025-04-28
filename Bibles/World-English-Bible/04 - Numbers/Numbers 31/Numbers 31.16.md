@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, these caused the children of Israel, through the counsel of Balaam, to commit trespass against Jehovah in the matter of Peor, and so the plague was among the congregation of Jehovah.
+Behold, these caused the children of Israel, through the counsel of Balaam, to commit trespass against Yahweh in the matter of Peor, and so the plague was among the congregation of Yahweh.

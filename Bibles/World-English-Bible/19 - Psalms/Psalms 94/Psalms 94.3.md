@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah, how long shall the wicked, How long shall the wicked triumph?
+Yahweh, how long will the wicked, how long will the wicked triumph?

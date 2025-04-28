@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the house which king Solomon built for Jehovah, the length thereof was threescore cubits, and the breadth thereof twenty [cubits], and the height thereof thirty cubits.
+The house which king Solomon built for Yahweh, its length was sixty cubits, and its breadth twenty [cubits], and its height thirty cubits.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My son, keep my words, And lay up my commandments with thee.
+My son, keep my words. Lay up my commandments within you.

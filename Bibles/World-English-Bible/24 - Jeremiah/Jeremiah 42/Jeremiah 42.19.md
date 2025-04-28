@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath spoken concerning you, O remnant of Judah, Go ye not into Egypt: know certainly that I have testified unto you this day.
+Yahweh has spoken concerning you, remnant of Judah, Don't you go into Egypt: know certainly that I have testified to you this day.

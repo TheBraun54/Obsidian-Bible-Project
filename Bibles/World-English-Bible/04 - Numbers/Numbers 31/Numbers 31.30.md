@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the children of Israel's half, thou shalt take one drawn out of every fifty, of the persons, of the oxen, of the asses, and of the flocks, [even] of all the cattle, and give them unto the Levites, that keep the charge of the tabernacle of Jehovah.
+Of the children of Israel's half, you shall take one drawn out of every fifty, of the persons, of the cattle, of the donkeys, and of the flocks, [even] of all the livestock, and give them to the Levites, who perform the duty of the tabernacle of Yahweh."

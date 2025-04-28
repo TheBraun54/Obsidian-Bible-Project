@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the Sabeans fell [upon them], and took them away: yea, they have slain the servants with the edge of the sword; and I only am escaped alone to tell thee.
+and the Sabeans attacked, and took them away. Yes, they have killed the servants with the edge of the sword, and I alone have escaped to tell you."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of clean beasts, and of beasts that are not clean, and of birds, and of everything that creepeth upon the ground,
+Clean animals, animals that are not clean, birds, and everything that creeps on the ground

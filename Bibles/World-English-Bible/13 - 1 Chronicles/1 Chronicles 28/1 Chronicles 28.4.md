@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit Jehovah, the God of Israel, chose me out of all the house of my father to be king over Israel for ever: for he hath chosen Judah to be prince; and in the house of Judah, the house of my father; and among the sons of my father he took pleasure in me to make me king over all Israel;
+However Yahweh, the God of Israel, chose me out of all the house of my father to be king over Israel forever. For he has chosen Judah to be prince; and in the house of Judah, the house of my father; and among the sons of my father he took pleasure in me to make me king over all Israel.

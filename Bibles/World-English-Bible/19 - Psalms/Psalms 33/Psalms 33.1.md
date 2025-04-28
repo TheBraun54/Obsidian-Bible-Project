@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rejoice in Jehovah, O ye righteous: Praise is comely for the upright.
+Rejoice in Yahweh, you righteous! Praise is fitting for the upright.

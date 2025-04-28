@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on the morrow, that the first-born said unto the younger, Behold, I lay yesternight with my father: let us make him drink wine this night also; and go thou in, and lie with him, that we may preserve seed of our father.
+It came to pass on the next day, that the firstborn said to the younger, "Behold, I lay last night with my father. Let us make him drink wine again, tonight. You go in, and lie with him, that we may preserve our father's seed."

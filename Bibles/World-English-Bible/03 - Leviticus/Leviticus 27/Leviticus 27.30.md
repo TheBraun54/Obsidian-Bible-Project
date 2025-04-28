@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the tithe of the land, whether of the seed of the land, or of the fruit of the tree, is Jehovah's: it is holy unto Jehovah.
+"'All the tithe of the land, whether of the seed of the land or of the fruit of the trees, is Yahweh's. It is holy to Yahweh.

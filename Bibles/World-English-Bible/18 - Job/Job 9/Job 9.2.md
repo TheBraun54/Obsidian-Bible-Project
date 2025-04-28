@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of a truth I know that it is so: But how can man be just with God?
+"Truly I know that it is so, but how can man be just with God?

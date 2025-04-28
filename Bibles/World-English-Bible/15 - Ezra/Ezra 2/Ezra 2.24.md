@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Azmaveth, forty and two.
+The children of Azmaveth, forty-two.

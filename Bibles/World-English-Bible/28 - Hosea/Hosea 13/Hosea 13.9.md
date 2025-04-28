@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is thy destruction, O Israel, that [thou art] against me, against thy help.
+You are destroyed, Israel, because you are against me, against your help.

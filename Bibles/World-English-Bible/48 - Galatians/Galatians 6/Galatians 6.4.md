@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But let each man prove his own work, and then shall he have his glorying in regard of himself alone, and not of his neighbor.
+But let each man test his own work, and then he will take pride in himself and not in his neighbor.

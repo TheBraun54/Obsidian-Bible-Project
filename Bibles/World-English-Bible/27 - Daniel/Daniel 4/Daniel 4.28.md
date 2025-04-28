@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All this came upon the king Nebuchadnezzar.
+All this came on the king Nebuchadnezzar.

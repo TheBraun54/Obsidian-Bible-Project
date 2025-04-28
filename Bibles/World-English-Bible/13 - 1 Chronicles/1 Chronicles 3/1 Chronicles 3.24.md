@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Elioenai: Hodaviah, and Eliashib, and Pelaiah, and Akkub, and Johanan, and Delaiah, and Anani, seven.
+The sons of Elioenai: Hodaviah, and Eliashib, and Pelaiah, and Akkub, and Johanan, and Delaiah, and Anani, seven.

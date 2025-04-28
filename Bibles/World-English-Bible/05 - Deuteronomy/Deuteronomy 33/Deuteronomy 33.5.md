@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he was king in Jeshurun, When the heads of the people were gathered, All the tribes of Israel together.
+He was king in Jeshurun, When the heads of the people were gathered, All the tribes of Israel together.

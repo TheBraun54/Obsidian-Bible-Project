@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto them, Can ye make the sons of the bride-chamber fast, while the bridegroom is with them?
+He said to them, "Can you make the friends of the bridegroom fast, while the bridegroom is with them?

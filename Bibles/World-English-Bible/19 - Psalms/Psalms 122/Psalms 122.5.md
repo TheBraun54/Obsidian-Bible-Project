@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there are set thrones for judgment, The thrones of the house of David.
+For there are set thrones for judgment, the thrones of David's house.

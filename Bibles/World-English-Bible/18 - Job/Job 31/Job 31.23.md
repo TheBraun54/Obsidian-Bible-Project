@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For calamity from God is a terror to me, And by reason of his majesty I can do nothing.
+For calamity from God is a terror to me. Because his majesty, I can do nothing.

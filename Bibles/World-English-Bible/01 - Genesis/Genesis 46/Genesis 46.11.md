@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Levi: Gershon, Kohath, and Merari.
+The sons of Levi: Gershon, Kohath, and Merari.

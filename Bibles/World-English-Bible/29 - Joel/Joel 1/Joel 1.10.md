@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The field is laid waste, the land mourneth; for the grain is destroyed, the new wine is dried up, the oil languisheth.
+The field is laid waste. The land mourns, for the grain is destroyed, The new wine has dried up, and the oil languishes.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then sang Moses and the children of Israel this song unto Jehovah, and spake, saying, I will sing unto Jehovah, for he hath triumphed gloriously: The horse and his rider hath he thrown into the sea.
+Then Moses and the children of Israel sang this song to Yahweh, and said, "I will sing to Yahweh, for he has triumphed gloriously. The horse and his rider he has thrown into the sea.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore comfort one another with these words.
+Therefore comfort one another with these words.

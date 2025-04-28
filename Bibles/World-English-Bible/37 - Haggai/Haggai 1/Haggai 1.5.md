@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore thus saith Jehovah of hosts: Consider your ways.
+Now therefore this is what Yahweh of Armies says: Consider your ways.

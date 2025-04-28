@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye serpents, ye offspring of vipers, how shall ye escape the judgment of hell?
+You serpents, you offspring of vipers, how will you escape the judgment of Gehenna?

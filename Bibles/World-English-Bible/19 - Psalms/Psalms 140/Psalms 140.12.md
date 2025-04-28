@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I know that Jehovah will maintain the cause of the afflicted, And justice for the needy.
+I know that Yahweh will maintain the cause of the afflicted, and justice for the needy.

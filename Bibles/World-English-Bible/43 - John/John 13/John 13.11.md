@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he knew him that should betray him; therefore said he, Ye are not all clean.
+For he knew him who would betray him, therefore he said, "You are not all clean."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they said, This is blood; the kings are surely destroyed, and they have smitten each man his fellow: now therefore, Moab, to the spoil.
+They said, "This is blood. The kings are surely destroyed, and they have struck each other. Now therefore, Moab, to the spoil!"

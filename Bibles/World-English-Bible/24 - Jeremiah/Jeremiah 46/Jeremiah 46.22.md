@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sound thereof shall go like the serpent; for they shall march with an army, and come against her with axes, as hewers of wood.
+The sound of it shall go like the serpent; for they shall march with an army, and come against her with axes, as wood cutters.

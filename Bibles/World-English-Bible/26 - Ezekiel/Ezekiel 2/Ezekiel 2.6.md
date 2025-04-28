@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou, son of man, be not afraid of them, neither be afraid of their words, though briers and thorns are with thee, and thou dost dwell among scorpions: be not afraid of their words, nor be dismayed at their looks, though they are a rebellious house.
+You, son of man, don't be afraid of them, neither be afraid of their words, though briers and thorns are with you, and you do dwell among scorpions: don't be afraid of their words, nor be dismayed at their looks, though they are a rebellious house.

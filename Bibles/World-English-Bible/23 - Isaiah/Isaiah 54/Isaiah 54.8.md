@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In overflowing wrath I hid my face from thee for a moment; but with everlasting lovingkindness will I have mercy on thee, saith Jehovah thy Redeemer.
+In overflowing wrath I hid my face from you for a moment; but with everlasting loving kindness will I have mercy on you," says Yahweh your Redeemer.

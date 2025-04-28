@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah of hosts, the God of Israel: Houses and fields and vineyards shall yet again be bought in this land.
+For thus says Yahweh of Armies, the God of Israel: Houses and fields and vineyards shall yet again be bought in this land.

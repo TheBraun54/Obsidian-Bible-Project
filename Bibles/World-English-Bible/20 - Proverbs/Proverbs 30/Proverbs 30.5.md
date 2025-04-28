@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every word of God is tried: He is a shield unto them that take refuge in him.
+"Every word of God is flawless. He is a shield to those who take refuge in him.

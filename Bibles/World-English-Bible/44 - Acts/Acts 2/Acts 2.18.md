@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea and on my servants and on my handmaidens in those days Will I pour forth of my Spirit; and they shall prophesy.
+Yes, and on my servants and on my handmaidens in those days, I will pour out my Spirit, and they will prophesy.

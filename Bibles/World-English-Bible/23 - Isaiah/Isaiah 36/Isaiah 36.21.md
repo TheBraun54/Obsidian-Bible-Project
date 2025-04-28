@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they held their peace, and answered him not a word; for the king's commandment was, saying, Answer him not.
+But they remained silent, and said nothing in reply, for the king's commandment was, "Don't answer him."

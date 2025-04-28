@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-or any thing about which he hath sworn falsely; he shall even restore it in full, and shall add the fifth part more thereto: unto him to whom it appertaineth shall he give it, in the day of his being found guilty.
+or any thing about which he has sworn falsely; he shall restore it even in full, and shall add a fifth part more to it. To him to whom it belongs he shall give it, in the day of his being found guilty.

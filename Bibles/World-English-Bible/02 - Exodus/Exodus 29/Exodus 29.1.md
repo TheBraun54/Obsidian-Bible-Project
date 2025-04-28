@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is the thing that thou shalt do unto them to hallow them, to minister unto me in the priest's office: take one young bullock and two rams without blemish,
+"This is the thing that you shall do to them to make them holy, to minister to me in the priest's office: take one young bull and two rams without blemish,

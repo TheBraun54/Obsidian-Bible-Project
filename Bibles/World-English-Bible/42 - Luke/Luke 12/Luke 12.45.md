@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if that servant shall say in his heart, My lord delayeth his coming; and shall begin to beat the menservants and the maidservants, and to eat and drink, and to be drunken;
+But if that servant says in his heart, 'My lord delays his coming,' and begins to beat the menservants and the maidservants, and to eat and drink, and to be drunken,

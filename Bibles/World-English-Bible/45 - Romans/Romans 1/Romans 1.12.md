@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that is, that I with you may be comforted in you, each of us by the other's faith, both yours and mine.
+that is, that I with you may be encouraged in you, each of us by the other's faith, both yours and mine.

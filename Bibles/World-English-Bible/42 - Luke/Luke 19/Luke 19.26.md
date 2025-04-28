@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I say unto you, that unto every one that hath shall be given; but from him that hath not, even that which he hath shall be taken away from him.
+'For I tell you that to everyone who has, will more be given; but from him who doesn't have, even that which he has will be taken away from him.

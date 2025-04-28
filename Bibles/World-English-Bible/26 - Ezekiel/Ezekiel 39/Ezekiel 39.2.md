@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will turn thee about, and will lead thee on, and will cause thee to come up from the uttermost parts of the north; and I will bring thee upon the mountains of Israel;
+and I will turn you around, and will lead you on, and will cause you to come up from the uttermost parts of the north; and I will bring you on the mountains of Israel;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and had seen that some of his disciples ate their bread with defiled, that is, unwashen, hands.
+Now when they saw some of his disciples eating bread with defiled, that is, unwashed, hands, they found fault.

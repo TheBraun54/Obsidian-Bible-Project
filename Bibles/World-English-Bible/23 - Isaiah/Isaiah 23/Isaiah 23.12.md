@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Thou shalt no more rejoice, O thou oppressed virgin daughter of Sidon: arise, pass over to Kittim; even there shalt thou have no rest.
+He said, "You shall rejoice no more, you oppressed virgin daughter of Sidon. Arise, pass over to Kittim. Even there you will have no rest."

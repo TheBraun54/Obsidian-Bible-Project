@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A man that hath set at nought Moses law dieth without compassion on [the word of] two or three witnesses:
+A man who disregards Moses' law dies without compassion on the word of two or three witnesses.

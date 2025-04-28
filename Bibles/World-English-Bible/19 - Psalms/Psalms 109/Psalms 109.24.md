@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My knees are weak through fasting; And my flesh faileth of fatness.
+My knees are weak through fasting. My body is thin and lacks fat.

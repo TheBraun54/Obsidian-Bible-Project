@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I Paul say unto you, that, if ye receive circumcision, Christ will profit you nothing.
+Behold, I, Paul, tell you that if you receive circumcision, Christ will profit you nothing.

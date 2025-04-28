@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the man is not of the woman; but the woman of the man:
+For man is not from woman, but woman from man;

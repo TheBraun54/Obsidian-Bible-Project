@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brake down the altars, and beat the Asherim and the graven images into powder, and hewed down all the sun-images throughout all the land of Israel, and returned to Jerusalem.
+He broke down the altars, and beat the Asherim and the engraved images into powder, and cut down all the incense altars throughout all the land of Israel, and returned to Jerusalem.

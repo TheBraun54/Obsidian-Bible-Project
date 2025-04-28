@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When my soul fainted within me, I remembered Jehovah; And my prayer came in unto thee, into thy holy temple.
+"When my soul fainted within me, I remembered Yahweh. My prayer came in to you, into your holy temple.

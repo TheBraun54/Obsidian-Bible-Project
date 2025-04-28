@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For dogs have compassed me: A company of evil-doers have inclosed me; They pierced my hands and my feet.
+For dogs have surrounded me. A company of evildoers have enclosed me. They have pierced my hands and feet.

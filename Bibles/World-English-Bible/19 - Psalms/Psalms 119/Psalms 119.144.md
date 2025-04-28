@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy testimonies are righteous for ever: Give me understanding, and I shall live.
+Your testimonies are righteous forever. Give me understanding, that I may live. KUF

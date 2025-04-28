@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah of hosts hath sworn, saying, Surely, as I have thought, so shall it come to pass; and as I have purposed, so shall it stand:
+Yahweh of Armies has sworn, saying, "Surely, as I have thought, so shall it happen; and as I have purposed, so shall it stand:

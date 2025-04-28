@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the overwhelming forces shall be overwhelmed from before him, and shall be broken; yea, also the prince of the covenant.
+The overwhelming forces shall be overwhelmed from before him, and shall be broken; yes, also the prince of the covenant.

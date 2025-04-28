@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they vexed and oppressed the children of Israel that year: eighteen years [oppressed they] all the children of Israel that were beyond the Jordan in the land of the Amorites, which is in Gilead.
+They troubled and oppressed the children of Israel that year: eighteen years [oppressed they] all the children of Israel that were beyond the Jordan in the land of the Amorites, which is in Gilead.

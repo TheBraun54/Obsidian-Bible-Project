@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Paul and Barnabas spake out boldly, and said, It was necessary that the word of God should first be spoken to you. Seeing ye thrust it from you, and judge yourselves unworthy of eternal life, lo, we turn to the Gentiles.
+Paul and Barnabas spoke out boldly, and said, "It was necessary that God's word should be spoken to you first. Since indeed you thrust it from you, and judge yourselves unworthy of eternal life, behold, we turn to the Gentiles.

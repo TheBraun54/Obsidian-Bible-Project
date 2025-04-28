@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then was king Belshazzar greatly troubled, and his countenance was changed in him, and his lords were perplexed.
+Then was king Belshazzar greatly troubled, and his face was changed in him, and his lords were perplexed.

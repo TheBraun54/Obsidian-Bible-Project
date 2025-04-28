@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but unto Cain and to his offering he had not respect. And Cain was very wroth, and his countenance fell.
+but he didn't respect Cain and his offering. Cain was very angry, and the expression on his face fell.

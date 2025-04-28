@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus the Lord Jehovah showed me: and, behold, a basket of summer fruit.
+Thus the Lord Yahweh showed me: behold, a basket of summer fruit.

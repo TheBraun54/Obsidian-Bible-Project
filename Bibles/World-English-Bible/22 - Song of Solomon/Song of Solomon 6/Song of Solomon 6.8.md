@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There are threescore queens, and fourscore concubines, And virgins without number.
+There are sixty queens, eighty concubines, and virgins without number.

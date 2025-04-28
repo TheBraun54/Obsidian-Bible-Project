@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon slept with his fathers, and he was buried in the city of David his father: and Rehoboam his son reigned in his stead.
+Solomon slept with his fathers, and he was buried in the city of David his father: and Rehoboam his son reigned in his place.

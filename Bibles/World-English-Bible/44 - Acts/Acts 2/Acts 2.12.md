@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were all amazed, and were perplexed, saying one to another, What meaneth this?
+They were all amazed, and were perplexed, saying one to another, "What does this mean?"

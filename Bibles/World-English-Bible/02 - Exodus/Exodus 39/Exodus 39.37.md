@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the pure candlestick, the lamps thereof, even the lamps to be set in order, and all the vessels thereof, and the oil for the light;
+the pure lampstand, its lamps, even the lamps to be set in order, all its vessels, the oil for the light,

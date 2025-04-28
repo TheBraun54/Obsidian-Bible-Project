@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their faces and their wings were separate above; two [wings] of every one were joined one to another, and two covered their bodies.
+Such were their faces. Their wings were spread out above. Two wings of each one touched another, and two covered their bodies.

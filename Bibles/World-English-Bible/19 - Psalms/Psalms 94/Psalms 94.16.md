@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who will rise up for me against the evil-doers? Who will stand up for me against the workers of iniquity?
+Who will rise up for me against the wicked? Who will stand up for me against the evildoers?

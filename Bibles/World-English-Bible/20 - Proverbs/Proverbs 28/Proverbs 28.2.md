@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the transgression of a land many are the princes thereof; But by men of understanding [and] knowledge the state [thereof] shall be prolonged.
+In rebellion, a land has many rulers, but order is maintained by a man of understanding and knowledge.

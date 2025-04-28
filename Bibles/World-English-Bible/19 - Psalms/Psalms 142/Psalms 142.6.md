@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Attend unto my cry; For I am brought very low: Deliver me from my persecutors; For they are stronger than I.
+Listen to my cry, for I am in desperate need. deliver me from my persecutors, For they are stronger than me.

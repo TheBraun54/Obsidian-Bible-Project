@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sluggard saith, There is a lion in the way; A lion is in the streets.
+The sluggard says, "There is a lion in the road! A fierce lion roams the streets!"

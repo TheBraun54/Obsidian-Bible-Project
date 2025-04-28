@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit what saith the scripture? Cast out the handmaid and her son: for the son of the handmaid shall not inherit with the son of the freewoman.
+However what does the Scripture say? "Throw out the handmaid and her son, for the son of the handmaid will not inherit with the son of the free woman."

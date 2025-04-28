@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But we going before to the ship set sail for Assos, there intending to take in Paul: for so had he appointed, intending himself to go by land.
+But we who went ahead to the ship set sail for Assos, intending to take Paul aboard there, for he had so arranged, intending himself to go by land.

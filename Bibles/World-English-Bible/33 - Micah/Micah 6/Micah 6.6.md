@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherewith shall I come before Jehovah, and bow myself before the high God? shall I come before him with burnt-offerings, with calves a year old?
+How shall I come before Yahweh, and bow myself before the exalted God? Shall I come before him with burnt offerings, with calves a year old?

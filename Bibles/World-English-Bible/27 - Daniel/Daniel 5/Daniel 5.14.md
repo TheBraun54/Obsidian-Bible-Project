@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have heard of thee, that the spirit of the gods is in thee, and that light and understanding and excellent wisdom are found in thee.
+I have heard of you, that the spirit of the gods is in you, and that light and understanding and excellent wisdom are found in you.

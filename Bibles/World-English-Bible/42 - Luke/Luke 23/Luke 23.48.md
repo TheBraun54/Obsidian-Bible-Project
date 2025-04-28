@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the multitudes that came together to this sight, when they beheld the things that were done, returned smiting their breasts.
+All the multitudes that came together to see this, when they saw the things that were done, returned home beating their breasts.

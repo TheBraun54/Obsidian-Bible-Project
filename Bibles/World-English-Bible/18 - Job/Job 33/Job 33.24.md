@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then [God] is gracious unto him, and saith, Deliver him from going down to the pit, I have found a ransom.
+then God is gracious to him, and says, 'Deliver him from going down to the pit, I have found a ransom.'

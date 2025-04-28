@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God said moreover unto Moses, Thus shalt thou say unto the children of Israel, Jehovah, the God of your fathers, the God of Abraham, the God of Isaac, and the God of Jacob, hath sent me unto you: this is my name for ever, and this is my memorial unto all generations.
+God said moreover to Moses, "You shall tell the children of Israel this, 'Yahweh, the God of your fathers, the God of Abraham, the God of Isaac, and the God of Jacob, has sent me to you.' This is my name forever, and this is my memorial to all generations.

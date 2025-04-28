@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Zedekiah the son of Chenaanah made him horns of iron, and said, Thus saith Jehovah, With these shalt thou push the Syrians, until they be consumed.
+Zedekiah the son of Chenaanah made him horns of iron, and said, "Thus says Yahweh, 'With these you shall push the Syrians, until they are consumed.'"

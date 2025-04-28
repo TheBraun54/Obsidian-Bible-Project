@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the demons besought him, saying, If thou cast us out, send us away into the herd of swine.
+The demons begged him, saying, "If you cast us out, permit us to go away into the herd of pigs."

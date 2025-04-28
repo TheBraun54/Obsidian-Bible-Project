@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the woman made haste, and ran, and told her husband, and said unto him, Behold, the man hath appeared unto me, that came unto me the [other] day.
+The woman made haste, and ran, and told her husband, and said to him, "Behold, the man has appeared to me, who came to me the [other] day."

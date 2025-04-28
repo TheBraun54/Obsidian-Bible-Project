@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if any man lie with her, and her impurity be upon him, he shall be unclean seven days; and every bed whereon he lieth shall be unclean.
+"'If any man lies with her, and her monthly flow is on him, he shall be unclean seven days; and every bed whereon he lies shall be unclean.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the children of Israel did put away the Baalim and the Ashtaroth, and served Jehovah only.
+Then the children of Israel did put away the Baals and the Ashtaroth, and served Yahweh only.

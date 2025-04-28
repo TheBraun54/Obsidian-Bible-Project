@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let thy father and thy mother be glad, And let her that bare thee rejoice.
+Let your father and your mother be glad! Let her who bore you rejoice!

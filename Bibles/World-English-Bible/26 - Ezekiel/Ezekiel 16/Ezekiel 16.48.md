@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As I live, saith the Lord Jehovah, Sodom thy sister hath not done, she nor her daughters, as thou hast done, thou and thy daughters.
+As I live, says the Lord Yahweh, Sodom your sister has not done, she nor her daughters, as you have done, you and your daughters.

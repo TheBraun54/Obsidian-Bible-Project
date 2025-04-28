@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With God is my salvation and my glory: The rock of my strength, and my refuge, is in God.
+With God is my salvation and my honor. The rock of my strength, and my refuge, is in God.

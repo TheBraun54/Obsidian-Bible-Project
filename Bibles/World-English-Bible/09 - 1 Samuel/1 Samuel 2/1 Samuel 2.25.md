@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If one man sin against another, God shall judge him; but if a man sin against Jehovah, who shall entreat for him? Notwithstanding, they hearkened not unto the voice of their father, because Jehovah was minded to slay them.
+If one man sin against another, God shall judge him; but if a man sin against Yahweh, who shall entreat for him?" Notwithstanding, they didn't listen to the voice of their father, because Yahweh was minded to kill them.

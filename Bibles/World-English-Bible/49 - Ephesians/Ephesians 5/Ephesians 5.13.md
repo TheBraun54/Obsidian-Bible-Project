@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But all things when they are reproved are made manifest by the light: for everything that is made manifest is light.
+But all things, when they are reproved, are revealed by the light, for everything that reveals is light.

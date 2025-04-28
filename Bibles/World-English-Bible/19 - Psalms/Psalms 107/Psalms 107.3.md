@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And gathered out of the lands, From the east and from the west, From the north and from the south.
+And gathered out of the lands, from the east and from the west, from the north and from the south.

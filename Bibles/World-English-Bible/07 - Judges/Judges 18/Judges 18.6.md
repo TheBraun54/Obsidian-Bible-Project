@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest said unto them, Go in peace: before Jehovah is your way wherein ye go.
+The priest said to them, "Go in peace. Your way in which you go is before Yahweh."

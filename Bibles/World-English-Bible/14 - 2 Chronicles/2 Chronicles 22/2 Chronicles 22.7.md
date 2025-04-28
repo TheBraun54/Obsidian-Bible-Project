@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the destruction of Ahaziah was of God, in that he went unto Joram: for when he was come, he went out with Jehoram against Jehu the son of Nimshi, whom Jehovah had anointed to cut off the house of Ahab.
+Now the destruction of Ahaziah was of God, in that he went to Joram: for when he was come, he went out with Jehoram against Jehu the son of Nimshi, whom Yahweh had anointed to cut off the house of Ahab.

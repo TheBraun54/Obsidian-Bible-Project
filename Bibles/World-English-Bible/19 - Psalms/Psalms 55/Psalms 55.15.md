@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let death come suddenly upon them, Let them go down alive into Sheol; For wickedness is in their dwelling, in the midst of them.
+Let death come suddenly on them. Let them go down alive into Sheol. For wickedness is in their dwelling, in the midst of them.

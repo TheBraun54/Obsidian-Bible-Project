@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He turneth rivers into a wilderness, And watersprings into a thirsty ground;
+He turns rivers into a desert, water springs into a thirsty ground,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he came and preached peace to you that were far off, and peace to them that were nigh:
+He came and preached peace to you who were far off and to those who were near.

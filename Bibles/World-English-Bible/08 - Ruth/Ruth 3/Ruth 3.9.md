@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Who art thou? And she answered, I am Ruth thy handmaid: spread therefore thy skirt over thy handmaid; for thou art a near kinsman.
+He said, "Who are you?" She answered, "I am Ruth your handmaid. Therefore spread your skirt over your handmaid; for you are a near kinsman."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pilate answered, What I have written I have written.
+Pilate answered, "What I have written, I have written."

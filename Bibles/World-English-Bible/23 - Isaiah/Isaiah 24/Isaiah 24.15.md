@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore glorify ye Jehovah in the east, even the name of Jehovah, the God of Israel, in the isles of the sea.
+Therefore glorify Yahweh in the east, even the name of Yahweh, the God of Israel, in the islands of the sea!

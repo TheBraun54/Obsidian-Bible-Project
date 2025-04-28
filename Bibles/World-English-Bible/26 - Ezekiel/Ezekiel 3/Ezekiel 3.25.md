@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou, son of man, behold, they shall lay bands upon thee, and shall bind thee with them, and thou shalt not go out among them:
+But you, son of man, behold, they shall lay bands on you, and shall bind you with them, and you shall not go out among them:

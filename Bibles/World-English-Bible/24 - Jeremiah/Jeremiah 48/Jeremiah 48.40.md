@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah: Behold, he shall fly as an eagle, and shall spread out his wings against Moab.
+For thus says Yahweh: Behold, he shall fly as an eagle, and shall spread out his wings against Moab.

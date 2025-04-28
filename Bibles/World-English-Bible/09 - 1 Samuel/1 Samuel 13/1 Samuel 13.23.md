@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the garrison of the Philistines went out unto the pass of Michmash.
+The garrison of the Philistines went out to the pass of Michmash.

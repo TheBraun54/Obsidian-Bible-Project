@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have mercy upon us, O Jehovah, have mercy upon us; For we are exceedingly filled with contempt.
+Have mercy on us, Yahweh, have mercy on us, for we have endured much contempt.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the multitude of thy foes shall be like small dust, and the multitude of the terrible ones as chaff that passeth away: yea, it shall be in an instant suddenly.
+But the multitude of your foes will be like fine dust, and the multitude of the ruthless ones like chaff that blows away. Yes, it will be in an instant, suddenly.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lay not wait, O wicked man, against the habitation of the righteous; Destroy not his resting-place:
+Don't lay in wait, wicked man, against the habitation of the righteous. Don't destroy his resting place:

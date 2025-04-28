@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Six days thou shalt do thy work, and on the seventh day thou shalt rest; that thine ox and thine ass may have rest, and the son of thy handmaid, and the sojourner, may be refreshed.
+"Six days you shall do your work, and on the seventh day you shall rest, that your ox and your donkey may have rest, and the son of your handmaid, and the alien may be refreshed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and heal the sick that are therein, and say unto them, The kingdom of God is come nigh unto you.
+Heal the sick who are therein, and tell them, 'The Kingdom of God has come near to you.'

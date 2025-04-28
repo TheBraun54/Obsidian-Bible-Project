@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Brethren, children of the stock of Abraham, and those among you that fear God, to us is the word of this salvation sent forth.
+Brothers, children of the stock of Abraham, and those among you who fear God, the word of this salvation is sent out to you.

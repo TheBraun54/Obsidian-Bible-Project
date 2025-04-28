@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-one he-goat, to make atonement for you.
+one male goat, to make atonement for you.

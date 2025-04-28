@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses charged the people the same day, saying,
+Moses commanded the people the same day, saying,

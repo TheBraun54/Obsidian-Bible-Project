@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if ye shall say, What shall we eat the seventh year? Behold, we shall not sow, nor gather in our increase;
+If you said, "What shall we eat the seventh year? Behold, we shall not sow, nor gather in our increase;"

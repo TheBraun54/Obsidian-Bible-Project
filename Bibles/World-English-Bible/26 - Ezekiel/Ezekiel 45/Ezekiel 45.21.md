@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the first [month], in the fourteenth day of the month, ye shall have the passover, a feast of seven days; unleavened bread shall be eaten.
+In the first [month], in the fourteenth day of the month, you shall have the Passover, a feast of seven days; unleavened bread shall be eaten.

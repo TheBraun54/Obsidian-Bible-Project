@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a vision appeared to Paul in the night: There was a man of Macedonia standing, beseeching him, and saying, Come over into Macedonia, and help us.
+A vision appeared to Paul in the night. There was a man of Macedonia standing, begging him, and saying, "Come over into Macedonia and help us."

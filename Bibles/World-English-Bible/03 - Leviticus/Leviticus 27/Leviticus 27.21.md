@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but the field, when it goeth out in the jubilee, shall be holy unto Jehovah, as a field devoted; the possession thereof shall be the priest's.
+but the field, when it goes out in the Jubilee, shall be holy to Yahweh, as a field devoted; it shall be owned by the priests.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I have led you forty years in the wilderness: your clothes are not waxed old upon you, and thy shoe is not waxed old upon thy foot.
+I have led you forty years in the wilderness: your clothes have not grown old on you, and your shoes have not grown old on your feet.

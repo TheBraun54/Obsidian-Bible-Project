@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Bezai, three hundred twenty and three.
+The children of Bezai, three hundred twenty-three.

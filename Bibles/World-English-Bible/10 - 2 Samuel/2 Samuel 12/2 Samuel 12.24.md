@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David comforted Bath-sheba his wife, and went in unto her, and lay with her: and she bare a son, and he called his name Solomon. And Jehovah loved him;
+David comforted Bathsheba his wife, and went in to her, and lay with her. She bore a son, and he called his name Solomon. Yahweh loved him;

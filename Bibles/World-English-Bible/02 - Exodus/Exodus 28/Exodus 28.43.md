@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they shall be upon Aaron, and upon his sons, when they go in unto the tent of meeting, or when they come near unto the altar to minister in the holy place; that they bear not iniquity, and die: it shall be a statute for ever unto him and unto his seed after him.
+They shall be on Aaron, and on his sons, when they go in to the Tent of Meeting, or when they come near to the altar to minister in the holy place; that they don't bear iniquity, and die: it shall be a statute forever to him and to his descendants after him.

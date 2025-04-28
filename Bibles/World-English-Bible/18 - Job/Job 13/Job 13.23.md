@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How many are mine iniquities and sins? Make me to know my transgression and my sin.
+How many are my iniquities and sins? Make me know my disobedience and my sin.

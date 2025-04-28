@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who hath heard such a thing? who hath seen such things? Shall a land be born in one day? shall a nation be brought forth at once? for as soon as Zion travailed, she brought forth her children. [
+Who has heard such a thing? who has seen such things? Shall a land be born in one day? shall a nation be brought forth at once? for as soon as Zion travailed, she brought forth her children.

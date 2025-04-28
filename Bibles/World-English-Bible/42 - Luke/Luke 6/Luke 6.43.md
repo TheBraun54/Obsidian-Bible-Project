@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there is no good tree that bringeth forth corrupt fruit; nor again a corrupt tree that bringeth forth good fruit.
+For there is no good tree that brings forth rotten fruit; nor again a rotten tree that brings forth good fruit.

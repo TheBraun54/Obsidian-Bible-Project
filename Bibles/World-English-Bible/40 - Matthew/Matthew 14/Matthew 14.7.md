@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whereupon he promised with an oath to give her whatsoever she should ask.
+Whereupon he promised with an oath to give her whatever she should ask.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The fruit of thy ground, and all thy labors, shall a nation which thou knowest not eat up; and thou shalt be only oppressed and crushed alway;
+The fruit of your ground, and all your labors, shall a nation which you don't know eat up; and you shall be only oppressed and crushed always;

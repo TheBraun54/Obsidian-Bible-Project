@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the winepress was trodden without the city, and there came out blood from the winepress, even unto the bridles of the horses, as far as a thousand and six hundred furlongs.
+The winepress was trodden outside of the city, and blood came out from the winepress, even to the bridles of the horses, as far as one thousand six hundred stadia.

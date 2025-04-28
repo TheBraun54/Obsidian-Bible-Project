@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now men see not the light which is bright in the skies; But the wind passeth, and cleareth them.
+Now men don't see the light which is bright in the skies, but the wind passes, and clears them.

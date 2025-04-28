@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all were weeping, and bewailing her: but he said, Weep not; for she is not dead, but sleepeth.
+All were weeping and mourning her, but he said, "Don't weep. She isn't dead, but sleeping."

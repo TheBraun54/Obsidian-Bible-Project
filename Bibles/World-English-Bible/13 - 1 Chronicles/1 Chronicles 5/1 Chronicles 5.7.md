@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his brethren by their families, when the genealogy of their generations was reckoned: the chief, Jeiel, and Zechariah,
+His brothers by their families, when the genealogy of their generations was reckoned: the chief, Jeiel, and Zechariah,

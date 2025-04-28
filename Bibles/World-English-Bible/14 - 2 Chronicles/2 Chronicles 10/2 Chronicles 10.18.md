@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then king Rehoboam sent Hadoram, who was over the men subject to taskwork; and the children of Israel stoned him to death with stones. And king Rehoboam made speed to get him up to his chariot, to flee to Jerusalem.
+Then king Rehoboam sent Hadoram, who was over the men subject to forced labor; and the children of Israel stoned him to death with stones. King Rehoboam made speed to get himself up to his chariot, to flee to Jerusalem.

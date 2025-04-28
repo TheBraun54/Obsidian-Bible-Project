@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that strive with Jehovah shall be broken to pieces; Against them will he thunder in heaven: Jehovah will judge the ends of the earth; And he will give strength unto his king, And exalt the horn of his anointed.
+Those who strive with Yahweh shall be broken to pieces. He will thunder against them in the sky. "Yahweh will judge the ends of the earth. He will give strength to his king, and exalt the horn of his anointed."

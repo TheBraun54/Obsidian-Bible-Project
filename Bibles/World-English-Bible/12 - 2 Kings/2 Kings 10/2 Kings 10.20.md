@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehu said, Sanctify a solemn assembly for Baal. And they proclaimed it.
+Jehu said, "Sanctify a solemn assembly for Baal!" They proclaimed it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And within the oracle was [a space of] twenty cubits in length, and twenty cubits in breadth, and twenty cubits in the height thereof; and he overlaid it with pure gold: and he covered the altar with cedar.
+Within the oracle was [a space of] twenty cubits in length, and twenty cubits in breadth, and twenty cubits in its height; and he overlaid it with pure gold: and he covered the altar with cedar.

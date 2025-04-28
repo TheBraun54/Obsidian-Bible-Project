@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham bowed himself down before the people of the land.
+Abraham bowed himself down before the people of the land.

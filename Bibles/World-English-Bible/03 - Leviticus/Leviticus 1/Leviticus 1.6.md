@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall flay the burnt-offering, and cut it into its pieces.
+He shall flay the burnt offering, and cut it into pieces.

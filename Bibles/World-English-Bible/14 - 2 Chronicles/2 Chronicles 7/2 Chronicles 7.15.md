@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now mine eyes shall be open, and mine ears attent, unto the prayer that is made in this place.
+Now my eyes shall be open, and my ears attentive, to the prayer that is made in this place.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this she did for many days. But Paul, being sore troubled, turned and said to the spirit, I charge thee in the name of Jesus Christ to come out of her. And it came out that very hour.
+She was doing this for many days. But Paul, becoming greatly annoyed, turned and said to the spirit, "I command you in the name of Jesus Christ to come out of her!" It came out that very hour.

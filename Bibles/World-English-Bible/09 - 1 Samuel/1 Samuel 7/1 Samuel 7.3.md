@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel spake unto all the house of Israel, saying, If ye do return unto Jehovah with all your heart, then put away the foreign gods and the Ashtaroth from among you, and direct your hearts unto Jehovah, and serve him only; and he will deliver you out of the hand of the Philistines.
+Samuel spoke to all the house of Israel, saying, "If you do return to Yahweh with all your heart, then put away the foreign gods and the Ashtaroth from among you, and direct your hearts to Yahweh, and serve him only; and he will deliver you out of the hand of the Philistines."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These twenty years have I been in thy house; I served thee fourteen years for thy two daughters, and six years for thy flock: and thou hast changed my wages ten times.
+These twenty years I have been in your house. I served you fourteen years for your two daughters, and six years for your flock, and you have changed my wages ten times.

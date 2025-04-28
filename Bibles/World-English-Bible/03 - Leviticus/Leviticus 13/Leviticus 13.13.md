@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then the priest shall look; and, behold, if the leprosy have covered all his flesh, he shall pronounce [him] clean [that hath] the plague: it is all turned white: he is clean.
+then the priest shall examine him; and, behold, if the leprosy has covered all his flesh, he shall pronounce him clean of the plague. It has all turned white: he is clean.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will speak, that I may be refreshed; I will open my lips and answer.
+I will speak, that I may be refreshed. I will open my lips and answer.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus answered and said unto them, Go and tell John the things which ye hear and see:
+Jesus answered them, "Go and tell John the things which you hear and see:

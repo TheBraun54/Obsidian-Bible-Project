@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who hath directed the Spirit of Jehovah, or being his counsellor hath taught him?
+Who has directed the Spirit of Yahweh, or has taught him as his counselor?

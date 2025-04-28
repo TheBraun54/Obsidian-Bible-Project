@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, What hast thou done? the voice of thy brother's blood crieth unto me from the ground.
+Yahweh said, "What have you done? The voice of your brother's blood cries to me from the ground.

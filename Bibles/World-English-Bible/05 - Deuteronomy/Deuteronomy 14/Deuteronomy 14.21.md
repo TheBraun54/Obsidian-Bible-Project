@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall not eat of anything that dieth of itself: thou mayest give it unto the sojourner that is within thy gates, that he may eat it; or thou mayest sell it unto a foreigner: for thou art a holy people unto Jehovah thy God. Thou shalt not boil a kid in its mother's milk.
+You shall not eat of anything that dies of itself: you may give it to the foreigner living among you who is within your gates, that he may eat it; or you may sell it to a foreigner: for you are a holy people to Yahweh your God. You shall not boil a young goat in its mother's milk.

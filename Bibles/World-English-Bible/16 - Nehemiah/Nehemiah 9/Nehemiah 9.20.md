@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou gavest also thy good Spirit to instruct them, and withheldest not thy manna from their mouth, and gavest them water for their thirst.
+You gave also your good Spirit to instruct them, and didn't withhold your manna from their mouth, and gave them water for their thirst.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Saul to his servant, But, behold, if we go, what shall we bring the man? for the bread is spent in our vessels, and there is not a present to bring to the man of God: what have we?
+Then Saul said to his servant, "But, behold, if we go, what shall we bring the man? For the bread is spent in our vessels, and there is not a present to bring to the man of God. What do we have?"

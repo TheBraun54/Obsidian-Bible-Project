@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even as they delivered them unto us, who from the beginning were eyewitnesses and ministers of the word,
+even as those who from the beginning were eyewitnesses and servants of the word delivered them to us,

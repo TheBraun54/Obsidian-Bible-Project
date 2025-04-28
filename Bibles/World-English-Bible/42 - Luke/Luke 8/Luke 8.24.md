@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came to him, and awoke him, saying, Master, master, we perish. And he awoke, and rebuked the wind and the raging of the water: and they ceased, and there was a calm.
+They came to him, and awoke him, saying, "Master, master, we are dying!" He awoke, and rebuked the wind and the raging of the water, and they ceased, and it was calm.

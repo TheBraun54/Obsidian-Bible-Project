@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the generations of Jacob. Joseph, being seventeen years old, was feeding the flock with his brethren; and he was a lad with the sons of Bilhah, and with the sons of Zilpah, his father's wives: and Joseph brought the evil report of them unto their father.
+This is the history of the generations of Jacob. Joseph, being seventeen years old, was feeding the flock with his brothers. He was a boy with the sons of Bilhah and Zilpah, his father's wives. Joseph brought an evil report of them to their father.

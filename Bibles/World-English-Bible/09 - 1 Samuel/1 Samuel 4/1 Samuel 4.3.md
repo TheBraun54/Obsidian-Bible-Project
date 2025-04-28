@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the people were come into the camp, the elders of Israel said, Wherefore hath Jehovah smitten us to-day before the Philistines? Let us fetch the ark of the covenant of Jehovah out of Shiloh unto us, that it may come among us, and save us out of the hand of our enemies.
+When the people were come into the camp, the elders of Israel said, "Why has Yahweh struck us today before the Philistines? Let us get the ark of the covenant of Yahweh out of Shiloh to us, that it may come among us, and save us out of the hand of our enemies."

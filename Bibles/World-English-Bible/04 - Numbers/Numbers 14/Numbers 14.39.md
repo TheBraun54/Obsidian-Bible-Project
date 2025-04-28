@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses told these words unto all the children of Israel: and the people mourned greatly.
+Moses told these words to all the children of Israel: and the people mourned greatly.

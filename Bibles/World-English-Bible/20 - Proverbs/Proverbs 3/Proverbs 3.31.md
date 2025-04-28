@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Envy thou not the man of violence, And choose none of his ways.
+Don't envy the man of violence. Choose none of his ways.

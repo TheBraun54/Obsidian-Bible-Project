@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were all amazed, insomuch that they questioned among themselves, saying, What is this? a new teaching! with authority he commandeth even the unclean spirits, and they obey him.
+They were all amazed, so that they questioned among themselves, saying, "What is this? A new teaching? For with authority he commands even the unclean spirits, and they obey him!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the oblation that ye shall offer: the sixth part of an ephah from a homer of wheat; and ye shall give the sixth part of an ephah from a homer of barley;
+This is the offering that you shall offer: the sixth part of an ephah from a homer of wheat; and you shall give the sixth part of an ephah from a homer of barley;

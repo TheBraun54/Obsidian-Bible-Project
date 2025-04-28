@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear, O my people, and I will testify unto thee: O Israel, if thou wouldest hearken unto me!
+"Hear, my people, and I will testify to you, Israel, if you would listen to me!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Is it well with him? And they said, It is well: and, behold, Rachel his daughter cometh with the sheep.
+He said to them, "Is it well with him?" They said, "It is well. See, Rachel, his daughter, is coming with the sheep."

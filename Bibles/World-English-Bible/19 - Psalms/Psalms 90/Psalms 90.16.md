@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let thy work appear unto thy servants, And thy glory upon their children.
+Let your work appear to your servants; your glory to their children.

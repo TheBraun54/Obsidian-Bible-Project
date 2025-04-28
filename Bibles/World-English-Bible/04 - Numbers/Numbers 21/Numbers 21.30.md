@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We have shot at them; Heshbon is perished even unto Dibon, And we have laid waste even unto Nophah, Which [reacheth] unto Medeba.
+We have shot at them. Heshbon has perished even to Dibon. We have laid waste even to Nophah, Which reaches to Medeba."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-having a good conscience; that, wherein ye are spoken against, they may be put to shame who revile your good manner of life in Christ.
+having a good conscience; that, while you are spoken against as evildoers, they may be disappointed who curse your good way of life in Christ.

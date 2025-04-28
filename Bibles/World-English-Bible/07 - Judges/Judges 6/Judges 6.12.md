@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel of Jehovah appeared unto him, and said unto him, Jehovah is with thee, thou mighty man of valor.
+The angel of Yahweh appeared to him, and said to him, "Yahweh is with you, you mighty man of valor!"

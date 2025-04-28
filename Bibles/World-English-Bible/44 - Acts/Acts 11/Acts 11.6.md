@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-upon which when I had fastened mine eyes, I considered, and saw the fourfooted beasts of the earth and wild beasts and creeping things and birds of the heaven.
+When I had looked intently at it, I considered, and saw the four-footed animals of the earth, wild animals, creeping things, and birds of the sky.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Canaan begat Sidon his first-born, and Heth,
+Canaan became the father of Sidon his firstborn, and Heth,

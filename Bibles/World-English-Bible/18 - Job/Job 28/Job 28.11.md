@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He bindeth the streams that they trickle not; And the thing that is hid bringeth he forth to light.
+He binds the streams that they don't trickle. The thing that is hidden he brings forth to light.

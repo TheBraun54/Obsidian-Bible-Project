@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their blood have they shed like water round about Jerusalem; And there was none to bury them.
+Their blood they have shed like water around Jerusalem. There was no one to bury them.

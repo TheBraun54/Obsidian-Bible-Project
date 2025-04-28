@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they sat before him, the first-born according to his birthright, and the youngest according to his youth: and the men marvelled one with another.
+They sat before him, the firstborn according to his birthright, and the youngest according to his youth, and the men marveled one with another.

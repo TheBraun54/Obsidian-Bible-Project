@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every valley shall be exalted, and every mountain and hill shall be made low; and the uneven shall be made level, and the rough places a plain:
+Every valley shall be exalted, and every mountain and hill shall be made low. The uneven shall be made level, and the rough places a plain.

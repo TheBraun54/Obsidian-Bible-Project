@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For brass I will bring gold, and for iron I will bring silver, and for wood brass, and for stones iron. I will also make thy officers peace, and thine exactors righteousness.
+For brass I will bring gold, and for iron I will bring silver, and for wood brass, and for stones iron. I will also make your officers peace, and righteousness your ruler.

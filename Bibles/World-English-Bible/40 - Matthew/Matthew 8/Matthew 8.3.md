@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he stretched forth his hand, and touched him, saying, I will; be thou made clean. And straightway his leprosy was cleansed.
+Jesus stretched out his hand, and touched him, saying, "I want to. Be made clean." Immediately his leprosy was cleansed.

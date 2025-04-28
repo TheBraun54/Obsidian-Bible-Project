@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when they had withdrawn, they spake one to another, saying, This man doeth nothing worthy of death or of bonds.
+When they had withdrawn, they spoke one to another, saying, "This man does nothing worthy of death or of bonds."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses commanded them, saying, At the end of [every] seven years, in the set time of the year of release, in the feast of tabernacles,
+Moses commanded them, saying, "At the end of [every] seven years, in the set time of the year of release, in the feast of tents,

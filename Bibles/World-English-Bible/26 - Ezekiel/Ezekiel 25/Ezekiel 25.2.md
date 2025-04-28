@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, set thy face toward the children of Ammon, and prophesy against them:
+Son of man, set your face toward the children of Ammon, and prophesy against them:

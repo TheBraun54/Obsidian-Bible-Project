@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when it was day, the magistrates sent the serjeants, saying, Let those men go.
+But when it was day, the magistrates sent the sergeants, saying, "Let those men go."

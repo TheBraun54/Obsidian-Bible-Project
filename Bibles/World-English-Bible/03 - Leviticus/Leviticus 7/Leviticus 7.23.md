@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, saying, Ye shall eat no fat, of ox, or sheep, or goat.
+"Speak to the children of Israel, saying, 'You shall eat no fat, of bull, or sheep, or goat.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that getteth wisdom loveth his own soul: He that keepeth understanding shall find good.
+He who gets wisdom loves his own soul. He who keeps understanding shall find good.

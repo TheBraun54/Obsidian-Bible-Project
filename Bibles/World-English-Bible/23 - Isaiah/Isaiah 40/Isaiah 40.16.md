@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Lebanon is not sufficient to burn, nor the beasts thereof sufficient for a burnt-offering.
+Lebanon is not sufficient to burn, nor its animals sufficient for a burnt offering.

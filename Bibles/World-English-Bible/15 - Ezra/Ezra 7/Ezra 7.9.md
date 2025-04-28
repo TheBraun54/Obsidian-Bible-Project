@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For upon the first [day] of the first month began he to go up from Babylon; and on the first [day] of the fifth month came he to Jerusalem, according to the good hand of his God upon him.
+For on the first [day] of the first month began he to go up from Babylon; and on the first [day] of the fifth month came he to Jerusalem, according to the good hand of his God on him.

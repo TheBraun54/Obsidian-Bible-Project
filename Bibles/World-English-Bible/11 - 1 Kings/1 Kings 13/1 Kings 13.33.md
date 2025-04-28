@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After this thing Jeroboam returned not from his evil way, but made again from among all the people priests of the high places: whosoever would, he consecrated him, that there might be priests of the high places.
+After this thing Jeroboam didn't return from his evil way, but again made priests of the high places from among all the people. Whoever wanted to, he consecrated him, that there might be priests of the high places.

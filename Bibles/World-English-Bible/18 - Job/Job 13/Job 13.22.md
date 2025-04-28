@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then call thou, and I will answer; Or let me speak, and answer thou me.
+Then call, and I will answer; or let me speak, and you answer me.

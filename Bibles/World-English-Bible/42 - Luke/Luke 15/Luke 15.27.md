@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, Thy brother is come; and thy father hath killed the fatted calf, because he hath received him safe and sound.
+He said to him, 'Your brother has come, and your father has killed the fattened calf, because he has received him back safe and healthy.'

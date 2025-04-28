@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after this did Jehoshaphat king of Judah join himself with Ahaziah king of Israel; the same did very wickedly:
+After this did Jehoshaphat king of Judah join himself with Ahaziah king of Israel; the same did very wickedly:

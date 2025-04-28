@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These were the sons of Caleb, the son of Hur, the first-born of Ephrathah: Shobal the father of Kiriath-jearim,
+These were the sons of Caleb, the son of Hur, the firstborn of Ephrathah: Shobal the father of Kiriath Jearim,

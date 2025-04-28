@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hezekiah commanded to offer the burnt-offering upon the altar. And when the burnt-offering began, the song of Jehovah began also, and the trumpets, together with the instruments of David king of Israel.
+Hezekiah commanded to offer the burnt offering on the altar. When the burnt offering began, the song of Yahweh began also, and the trumpets, together with the instruments of David king of Israel.

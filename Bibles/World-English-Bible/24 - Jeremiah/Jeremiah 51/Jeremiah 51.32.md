@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the passages are seized, and the reeds they have burned with fire, and the men of war are affrighted.
+and the passages are seized, and the reeds they have burned with fire, and the men of war are frightened.

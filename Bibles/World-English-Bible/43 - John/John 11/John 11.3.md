@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sisters therefore sent unto him, saying, Lord, behold, he whom thou lovest is sick.
+The sisters therefore sent to him, saying, "Lord, behold, he for whom you have great affection is sick."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every man's hallowed things shall be his: whatsoever any man giveth the priest, it shall be his.
+Every man's holy things shall be his: whatever any man gives the priest, it shall be his.'"

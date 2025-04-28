@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sower went forth to sow his seed: and as he sowed, some fell by the way side; and it was trodden under foot, and the birds of the heaven devoured it.
+"The farmer went out to sow his seed. As he sowed, some fell along the road, and it was trampled under foot, and the birds of the sky devoured it.

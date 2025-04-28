@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So shall it be in the end of the world: the angels shall come forth, and sever the wicked from among the righteous,
+So will it be in the end of the world. The angels will come forth, and separate the wicked from among the righteous,

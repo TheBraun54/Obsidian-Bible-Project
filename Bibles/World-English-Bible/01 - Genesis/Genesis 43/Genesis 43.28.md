@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, Thy servant our father is well, he is yet alive. And they bowed the head, and made obeisance.
+They said, "Your servant, our father, is well. He is still alive." They bowed the head, and did homage.

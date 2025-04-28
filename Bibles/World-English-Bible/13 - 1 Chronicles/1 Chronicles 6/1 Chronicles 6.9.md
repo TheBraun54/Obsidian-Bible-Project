@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Ahimaaz begat Azariah, and Azariah begat Johanan,
+and Ahimaaz became the father of Azariah, and Azariah became the father of Johanan,

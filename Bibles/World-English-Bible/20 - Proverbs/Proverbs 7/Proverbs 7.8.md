@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Passing through the street near her corner; And he went the way to her house,
+passing through the street near her corner, he went the way to her house,

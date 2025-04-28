@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the ass saw the angel of Jehovah, and she thrust herself unto the wall, and crushed Balaam's foot against the wall: and he smote her again.
+The donkey saw the angel of Yahweh, and she thrust herself to the wall, and crushed Balaam's foot against the wall: and he struck her again.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And fifty men of the sons of the prophets went, and stood over against them afar off: and they two stood by the Jordan.
+Fifty men of the sons of the prophets went, and stood opposite them at a distance; and they both stood by the Jordan.

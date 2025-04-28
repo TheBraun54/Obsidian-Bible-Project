@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let it be unto him as the raiment wherewith he covereth himself, And for the girdle wherewith he is girded continually.
+Let it be to him as the clothing with which he covers himself, for the belt that is always around him.

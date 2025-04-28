@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this day shall be unto you for a memorial, and ye shall keep it a feast to Jehovah: throughout your generations ye shall keep it a feast by an ordinance for ever.
+This day shall be to you for a memorial, and you shall keep it a feast to Yahweh: throughout your generations you shall keep it a feast by an ordinance forever.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the children of Ezer: Bilhan and Zaavan and Akan.
+These are the children of Ezer: Bilhan, Zaavan, and Akan.

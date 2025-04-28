@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Hushai the Archite, David's friend, was come unto Absalom, that Hushai said unto Absalom, [Long] live the king, [Long] live the king.
+It happened, when Hushai the Archite, David's friend, had come to Absalom, that Hushai said to Absalom, "Long live the king! Long live the king!"

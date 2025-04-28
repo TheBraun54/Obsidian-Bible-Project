@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And my spirit hath rejoiced in God my Saviour.
+My spirit has rejoiced in God my Savior,

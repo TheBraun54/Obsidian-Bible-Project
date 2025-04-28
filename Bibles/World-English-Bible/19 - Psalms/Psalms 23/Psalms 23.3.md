@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He restoreth my soul: He guideth me in the paths of righteousness for his name's sake.
+He restores my soul. He guides me in the paths of righteousness for his name's sake.

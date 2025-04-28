@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And from that time he sought opportunity to deliver him [unto them] .
+From that time he sought opportunity to betray him.

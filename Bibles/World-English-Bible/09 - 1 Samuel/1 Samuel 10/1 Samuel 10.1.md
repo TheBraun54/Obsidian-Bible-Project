@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Samuel took the vial of oil, and poured it upon his head, and kissed him, and said, Is it not that Jehovah hath anointed thee to be prince over his inheritance?
+Then Samuel took the vial of oil, and poured it on his head, and kissed him, and said, "Isn't it that Yahweh has anointed you to be prince over his inheritance?

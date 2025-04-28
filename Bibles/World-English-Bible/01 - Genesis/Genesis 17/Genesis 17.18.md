@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham said unto God, Oh that Ishmael might live before thee!
+Abraham said to God, "Oh that Ishmael might live before you!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day, saith Jehovah of hosts, shall the nail that was fastened in a sure place give way; and it shall be hewn down, and fall; and the burden that was upon it shall be cut off; for Jehovah hath spoken it.
+"In that day," says Yahweh of Armies, "the nail that was fastened in a sure place will give way. It will be cut down, and fall. The burden that was on it will be cut off, for Yahweh has spoken it."

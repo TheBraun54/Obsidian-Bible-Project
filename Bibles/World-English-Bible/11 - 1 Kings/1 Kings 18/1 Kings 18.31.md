@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elijah took twelve stones, according to the number of the tribes of the sons of Jacob, unto whom the word of Jehovah came, saying, Israel shall be thy name.
+Elijah took twelve stones, according to the number of the tribes of the sons of Jacob, to whom the word of Yahweh came, saying, "Israel shall be your name."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Naphtali drove not out the inhabitants of Beth-shemesh, nor the inhabitants of Beth-anath; but he dwelt among the Canaanites, the inhabitants of the land: nevertheless the inhabitants of Beth-shemesh and of Beth-anath became subject to taskwork.
+Naphtali didn't drive out the inhabitants of Beth Shemesh, nor the inhabitants of Beth Anath; but he lived among the Canaanites, the inhabitants of the land: nevertheless the inhabitants of Beth Shemesh and of Beth Anath became subject to forced labor.

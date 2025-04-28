@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For therein is revealed a righteousness of God from faith unto faith: as it is written, But the righteous shall live by faith.
+For in it is revealed God's righteousness from faith to faith. As it is written, "But the righteous shall live by faith."

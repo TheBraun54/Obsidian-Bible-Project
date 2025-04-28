@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the third to Zaccur, his sons and his brethren, twelve:
+the third to Zaccur, his sons and his brothers, twelve:

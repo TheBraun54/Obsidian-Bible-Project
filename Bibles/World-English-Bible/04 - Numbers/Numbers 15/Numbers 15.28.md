@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall make atonement for the soul that erreth, when he sinneth unwittingly, before Jehovah, to make atonement for him; and he shall be forgiven.
+The priest shall make atonement for the soul who errs, when he sins unwittingly, before Yahweh, to make atonement for him; and he shall be forgiven.

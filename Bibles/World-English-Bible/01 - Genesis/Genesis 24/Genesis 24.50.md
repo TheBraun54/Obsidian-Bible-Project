@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Laban and Bethuel answered and said, The thing proceedeth from Jehovah: we cannot speak unto thee bad or good.
+Then Laban and Bethuel answered, "The thing proceeds from Yahweh. We can't speak to you bad or good.

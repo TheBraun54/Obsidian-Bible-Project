@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah God said, It is not good that the man should be alone; I will make him a help meet for him.
+Yahweh God said, "It is not good that the man should be alone; I will make him a helper suitable for him."

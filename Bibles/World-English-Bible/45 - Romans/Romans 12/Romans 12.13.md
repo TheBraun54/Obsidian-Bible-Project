@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-communicating to the necessities of the saints; given to hospitality.
+contributing to the needs of the saints; given to hospitality.

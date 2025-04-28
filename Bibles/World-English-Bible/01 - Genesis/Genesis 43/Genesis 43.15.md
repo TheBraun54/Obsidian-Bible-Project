@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men took that present, and they took double money in their hand, and Benjamin; and rose up, and went down to Egypt, and stood before Joseph.
+The men took that present, and they took double money in their hand, and Benjamin; and got up, went down to Egypt, and stood before Joseph.

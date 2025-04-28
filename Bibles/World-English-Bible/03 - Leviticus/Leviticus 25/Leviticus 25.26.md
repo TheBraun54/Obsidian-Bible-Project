@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man have no one to redeem it, and he be waxed rich and find sufficient to redeem it;
+If a man has no one to redeem it, and he becomes prosperous and finds sufficient means to redeem it;

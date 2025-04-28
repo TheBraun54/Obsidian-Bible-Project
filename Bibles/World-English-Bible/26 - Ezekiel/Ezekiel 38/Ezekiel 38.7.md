@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be thou prepared, yea, prepare thyself, thou, and all thy companies that are assembled unto thee, and be thou a guard unto them.
+Be prepared, yes, prepare yourself, you, and all your companies who are assembled to you, and be a guard to them.

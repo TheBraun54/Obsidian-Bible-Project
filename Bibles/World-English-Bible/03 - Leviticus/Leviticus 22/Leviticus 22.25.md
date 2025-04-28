@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither from the hand of a foreigner shall ye offer the bread of your God of any of these; because their corruption is in them, there is a blemish in them: they shall not be accepted for you.
+Neither shall you offer the bread of your God from the hand of a foreigner of any of these; because their corruption is in them. There is a blemish in them. They shall not be accepted for you.'"

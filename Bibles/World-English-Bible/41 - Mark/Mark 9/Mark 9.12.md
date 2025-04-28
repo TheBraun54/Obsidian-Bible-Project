@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Elijah indeed cometh first, and restoreth all things: and how is it written of the Son of man, that he should suffer many things and be set at nought?
+He said to them, "Elijah indeed comes first, and restores all things. How is it written about the Son of Man, that he should suffer many things and be despised?

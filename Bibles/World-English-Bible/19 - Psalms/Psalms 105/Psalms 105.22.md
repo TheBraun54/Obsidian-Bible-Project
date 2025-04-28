@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To bind his princes at his pleasure, And teach his elders wisdom.
+to discipline his princes at his pleasure, and to teach his elders wisdom.

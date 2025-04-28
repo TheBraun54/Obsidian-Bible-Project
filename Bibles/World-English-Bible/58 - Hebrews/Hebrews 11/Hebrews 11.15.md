@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if indeed they had been mindful of that [country] from which they went out, they would have had opportunity to return.
+If indeed they had been thinking of that country from which they went out, they would have had enough time to return.

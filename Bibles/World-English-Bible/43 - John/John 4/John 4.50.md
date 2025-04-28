@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus saith unto him, Go thy way; thy son liveth. The man believed the word that Jesus spake unto him, and he went his way.
+Jesus said to him, "Go your way. Your son lives." The man believed the word that Jesus spoke to him, and he went his way.

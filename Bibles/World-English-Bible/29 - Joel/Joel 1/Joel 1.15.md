@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Alas for the day! for the day of Jehovah is at hand, and as destruction from the Almighty shall it come.
+Alas for the day! For the day of Yahweh is at hand, and it will come as destruction from the Almighty.

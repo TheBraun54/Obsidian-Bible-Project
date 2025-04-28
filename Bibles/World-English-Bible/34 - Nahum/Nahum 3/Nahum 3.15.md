@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There shall the fire devour thee; the sword shall cut thee off; it shall devour thee like the canker-worm: make thyself many as the canker-worm; make thyself many as the locust.
+There the fire will devour you. The sword will cut you off. It will devour you like the grasshopper. Multiply like grasshoppers. Multiply like the locust.

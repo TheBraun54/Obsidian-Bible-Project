@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they put forward two, Joseph called Barsabbas, who was surnamed Justus, and Matthias.
+They put forward two, Joseph called Barsabbas, who was surnamed Justus, and Matthias.

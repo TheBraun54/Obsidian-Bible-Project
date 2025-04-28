@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, that Jehovah will hiss for the fly that is in the uttermost part of the rivers of Egypt, and for the bee that is in the land of Assyria.
+It will happen in that day that Yahweh will whistle for the fly that is in the uttermost part of the rivers of Egypt, and for the bee that is in the land of Assyria.

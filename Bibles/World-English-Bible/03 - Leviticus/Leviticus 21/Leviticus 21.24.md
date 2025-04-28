@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Moses spake unto Aaron, and to his sons, and unto all the children of Israel.
+So Moses spoke to Aaron, and to his sons, and to all the children of Israel.

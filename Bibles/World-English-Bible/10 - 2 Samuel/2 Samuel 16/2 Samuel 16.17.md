@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Absalom said to Hushai, Is this thy kindness to thy friend? why wentest thou not with thy friend?
+Absalom said to Hushai, "Is this your kindness to your friend? Why didn't you go with your friend?"

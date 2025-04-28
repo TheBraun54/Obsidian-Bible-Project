@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they shall look unto the earth, and behold, distress and darkness, the gloom of anguish; and into thick darkness [they shall be] driven away.
+and look to the earth, and see distress, darkness, and the gloom of anguish. They will be driven into thick darkness.

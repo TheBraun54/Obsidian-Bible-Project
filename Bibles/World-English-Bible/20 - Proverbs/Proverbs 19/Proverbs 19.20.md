@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear counsel, and receive instruction, That thou mayest be wise in thy latter end.
+Listen to counsel and receive instruction, that you may be wise in your latter end.

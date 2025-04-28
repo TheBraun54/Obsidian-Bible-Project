@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mine eyes are ever toward Jehovah; For he will pluck my feet out of the net.
+My eyes are ever on Yahweh, for he will pluck my feet out of the net.

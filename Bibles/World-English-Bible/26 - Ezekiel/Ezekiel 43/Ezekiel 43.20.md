@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt take of the blood thereof, and put it on the four horns of it, and on the four corners of the ledge, and upon the border round about: thus shalt thou cleanse it and make atonement for it.
+You shall take of its blood, and put it on the four horns of it, and on the four corners of the ledge, and on the border all around: thus you shall cleanse it and make atonement for it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the king's servants, that were in the king's gate, said unto Mordecai, Why transgressest thou the king's commandment?
+Then the king's servants, who were in the king's gate, said to Mordecai, "Why do you disobey the king's commandment?"

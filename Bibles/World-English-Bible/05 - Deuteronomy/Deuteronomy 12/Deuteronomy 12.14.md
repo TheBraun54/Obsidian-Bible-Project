@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but in the place which Jehovah shall choose in one of thy tribes, there thou shalt offer thy burnt-offerings, and there thou shalt do all that I command thee.
+but in the place which Yahweh shall choose in one of your tribes, there you shall offer your burnt offerings, and there you shall do all that I command you.

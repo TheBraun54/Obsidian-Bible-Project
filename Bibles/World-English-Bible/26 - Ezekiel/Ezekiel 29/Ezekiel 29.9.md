@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the land of Egypt shall be a desolation and a waste; and they shall know that I am Jehovah. Because he hath said, The river is mine, and I have made it;
+The land of Egypt shall be a desolation and a waste; and they shall know that I am Yahweh. Because he has said, 'The river is mine, and I have made it;'

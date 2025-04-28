@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but now that ye have come to know God, or rather to be known by God, how turn ye back again to the weak and beggarly rudiments, whereunto ye desire to be in bondage over again?
+But now that you have come to know God, or rather to be known by God, why do you turn back again to the weak and miserable elemental principles, to which you desire to be in bondage all over again?

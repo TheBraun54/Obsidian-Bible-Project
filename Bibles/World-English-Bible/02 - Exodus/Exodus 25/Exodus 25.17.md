@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make a mercy-seat of pure gold: two cubits and a half [shall be] the length thereof, and a cubit and a half the breadth thereof.
+You shall make a mercy seat of pure gold. Two and a half cubits shall be its length, and a cubit and a half its breadth.

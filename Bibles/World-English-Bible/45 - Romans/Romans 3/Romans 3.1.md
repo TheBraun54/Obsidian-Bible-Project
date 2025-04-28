@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What advantage then hath the Jew? or what is the profit of circumcision?
+Then what advantage does the Jew have? Or what is the profit of circumcision?

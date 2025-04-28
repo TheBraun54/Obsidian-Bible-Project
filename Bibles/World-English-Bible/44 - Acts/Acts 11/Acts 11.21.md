@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the hand of the Lord was with them: and a great number that believed turned unto the Lord.
+The hand of the Lord was with them, and a great number believed and turned to the Lord.

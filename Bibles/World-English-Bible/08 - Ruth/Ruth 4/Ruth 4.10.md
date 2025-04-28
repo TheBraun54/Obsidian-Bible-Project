@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover Ruth the Moabitess, the wife of Mahlon, have I purchased to be my wife, to raise up the name of the dead upon his inheritance, that the name of the dead be not cut off from among his brethren, and from the gate of his place: ye are witnesses this day.
+Moreover Ruth the Moabitess, the wife of Mahlon, I have purchased to be my wife, to raise up the name of the dead on his inheritance, that the name of the dead not be cut off from among his brothers, and from the gate of his place. You are witnesses this day."

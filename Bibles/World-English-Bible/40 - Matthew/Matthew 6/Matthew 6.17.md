@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou, when thou fastest, anoint thy head, and wash thy face;
+But you, when you fast, anoint your head, and wash your face;

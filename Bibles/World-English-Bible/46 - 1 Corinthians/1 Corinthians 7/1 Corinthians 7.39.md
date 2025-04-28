@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A wife is bound for so long time as her husband liveth; but if the husband be dead, she is free to be married to whom she will; only in the Lord.
+A wife is bound by law for as long as her husband lives; but if the husband is dead, she is free to be married to whoever she desires, only in the Lord.

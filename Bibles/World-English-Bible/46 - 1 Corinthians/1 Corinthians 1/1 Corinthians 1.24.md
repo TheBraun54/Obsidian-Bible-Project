@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but unto them that are called, both Jews and Greeks, Christ the power of God, and the wisdom of God.
+but to those who are called, both Jews and Greeks, Christ is the power of God and the wisdom of God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There shall not any man be able to stand before thee all the days of thy life: as I was with Moses, so I will be with thee; I will not fail thee, nor forsake thee.
+No man will be able to stand before you all the days of your life. As I was with Moses, so I will be with you. I will not fail you nor forsake you.

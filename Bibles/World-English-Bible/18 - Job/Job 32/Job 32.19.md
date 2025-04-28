@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, my breast is as wine which hath no vent; Like new wine-skins it is ready to burst.
+Behold, my breast is as wine which has no vent; like new wineskins it is ready to burst.

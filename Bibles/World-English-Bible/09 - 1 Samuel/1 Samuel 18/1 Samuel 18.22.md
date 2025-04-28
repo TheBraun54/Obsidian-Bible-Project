@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul commanded his servants, [saying], Commune with David secretly, and say, Behold, the king hath delight in thee, and all his servants love thee: now therefore be the king's son-in-law.
+Saul commanded his servants, "Talk with David secretly, and say, 'Behold, the king has delight in you, and all his servants love you: now therefore be the king's son-in-law.'"

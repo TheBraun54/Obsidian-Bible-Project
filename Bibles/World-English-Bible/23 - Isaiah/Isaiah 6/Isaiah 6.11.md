@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said I, Lord, how long? And he answered, Until cities be waste without inhabitant, and houses without man, and the land become utterly waste,
+Then I said, "Lord, how long?" He answered, "Until cities are waste without inhabitant, and houses without man, and the land becomes utterly waste,

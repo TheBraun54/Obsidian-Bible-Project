@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have inclined my heart to perform thy statutes For ever, even unto the end.
+I have set my heart to perform your statutes forever, even to the end. SAMEKH

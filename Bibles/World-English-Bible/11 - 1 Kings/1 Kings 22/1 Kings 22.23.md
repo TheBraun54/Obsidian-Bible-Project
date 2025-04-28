@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, behold, Jehovah hath put a lying spirit in the mouth of all these thy prophets; and Jehovah hath spoken evil concerning thee.
+Now therefore, behold, Yahweh has put a lying spirit in the mouth of all these your prophets; and Yahweh has spoken evil concerning you."

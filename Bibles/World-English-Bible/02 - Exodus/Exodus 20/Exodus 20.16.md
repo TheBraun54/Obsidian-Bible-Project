@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not bear false witness against thy neighbor.
+"You shall not give false testimony against your neighbor.

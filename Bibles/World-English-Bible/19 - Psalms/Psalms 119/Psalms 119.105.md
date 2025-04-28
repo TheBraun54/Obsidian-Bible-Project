@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-NUN. Thy word is a lamp unto my feet, And light unto my path.
+Your word is a lamp to my feet, and a light for my path.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Terah lived seventy years, and begat Abram, Nahor, and Haran.
+Terah lived seventy years, and became the father of Abram, Nahor, and Haran.

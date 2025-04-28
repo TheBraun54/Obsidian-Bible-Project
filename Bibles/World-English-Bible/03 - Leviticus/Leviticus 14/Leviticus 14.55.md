@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and for the leprosy of a garment, and for a house,
+and for the destructive mildew of a garment, and for a house,

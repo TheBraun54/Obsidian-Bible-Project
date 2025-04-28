@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Hezron begat Ram, and Ram begat Amminadab,
+and Hezron became the father of Ram, and Ram became the father of Amminadab,

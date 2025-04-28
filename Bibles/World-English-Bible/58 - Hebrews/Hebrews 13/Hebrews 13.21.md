@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-make you perfect in every good thing to do his will, working in us that which is well-pleasing in his sight, through Jesus Christ; to whom [be] the glory for ever and ever. Amen.
+make you complete in every good work to do his will, working in you that which is well pleasing in his sight, through Jesus Christ, to whom be the glory forever and ever. Amen.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Where then are thy wise men? and let them tell thee now; and let them know what Jehovah of hosts hath purposed concerning Egypt.
+Where then are your wise men? Let them tell you now; and let them know what Yahweh of Armies has purposed concerning Egypt.

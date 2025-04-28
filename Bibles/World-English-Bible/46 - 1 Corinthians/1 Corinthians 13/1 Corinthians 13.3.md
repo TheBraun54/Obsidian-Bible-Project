@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if I bestow all my goods to feed [the poor], and if I give my body to be burned, but have not love, it profiteth me nothing.
+If I dole out all my goods to feed the poor, and if I give my body to be burned, but don't have love, it profits me nothing.

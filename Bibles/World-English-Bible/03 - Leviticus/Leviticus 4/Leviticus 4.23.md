@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if his sin, wherein he hath sinned, be made known to him, he shall bring for his oblation a goat, a male without blemish.
+if his sin, in which he has sinned, is made known to him, he shall bring as his offering a goat, a male without blemish.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall lend to thee, and thou shalt not lend to him: he shall be the head, and thou shalt be the tail.
+He shall lend to you, and you shall not lend to him: he shall be the head, and you shall be the tail.

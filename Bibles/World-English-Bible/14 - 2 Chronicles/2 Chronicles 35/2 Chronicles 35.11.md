@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they killed the passover, and the priests sprinkled [the blood which they received] of their hand, and the Levites flayed them.
+They killed the Passover, and the priests sprinkled [the blood which they received] of their hand, and the Levites flayed them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Aaron was a hundred and twenty and three years old when he died in mount Hor.
+Aaron was one hundred twenty-three years old when he died in Mount Hor.

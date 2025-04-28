@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He pursueth them, and passeth on safely, even by a way that he had not gone with his feet.
+He pursues them, and passes by safely, Even by a way that he had not gone with his feet.

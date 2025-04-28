@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt rejoice in all the good which Jehovah thy God hath given unto thee, and unto thy house, thou, and the Levite, and the sojourner that is in the midst of thee.
+You shall rejoice in all the good which Yahweh your God has given to you, and to your house, you, and the Levite, and the foreigner who is in the midst of you.

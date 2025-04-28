@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And be it indeed that I have erred, Mine error remaineth with myself.
+If it is true that I have erred, my error remains with myself.

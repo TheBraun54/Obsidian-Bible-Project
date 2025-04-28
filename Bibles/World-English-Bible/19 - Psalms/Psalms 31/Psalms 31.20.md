@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the covert of thy presence wilt thou hide them from the plottings of man: Thou wilt keep them secretly in a pavilion from the strife of tongues.
+In the shelter of your presence you will hide them from the plotting of man. You will keep them secretly in a dwelling away from the strife of tongues.

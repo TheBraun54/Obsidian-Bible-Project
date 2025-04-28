@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when even was come, the lord of the vineyard saith unto his steward, Call the laborers, and pay them their hire, beginning from the last unto the first.
+When evening had come, the lord of the vineyard said to his manager, 'Call the laborers and pay them their wages, beginning from the last to the first.'

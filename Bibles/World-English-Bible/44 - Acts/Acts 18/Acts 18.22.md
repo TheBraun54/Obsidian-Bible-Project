@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had landed at Caesarea, he went up and saluted the church, and went down to Antioch.
+When he had landed at Caesarea, he went up and greeted the assembly, and went down to Antioch.

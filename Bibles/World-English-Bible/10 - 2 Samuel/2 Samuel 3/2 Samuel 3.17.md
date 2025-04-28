@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abner had communication with the elders of Israel, saying, In times past ye sought for David to be king over you:
+Abner had communication with the elders of Israel, saying, "In times past, you sought for David to be king over you.

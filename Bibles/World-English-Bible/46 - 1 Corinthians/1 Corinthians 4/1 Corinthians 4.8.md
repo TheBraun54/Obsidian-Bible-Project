@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Already are ye filled, already ye are become rich, ye have come to reign without us: yea and I would that ye did reign, that we also might reign with you.
+You are already filled. You have already become rich. You have come to reign without us. Yes, and I wish that you did reign, that we also might reign with you.

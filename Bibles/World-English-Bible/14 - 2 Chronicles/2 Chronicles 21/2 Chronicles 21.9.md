@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Jehoram passed over with his captains, and all his chariots with him: and he rose up by night, and smote the Edomites that compassed him about, and the captains of the chariots.
+Then Jehoram passed over with his captains, and all his chariots with him: and he rose up by night, and struck the Edomites who surrounded him, along with the captains of the chariots.

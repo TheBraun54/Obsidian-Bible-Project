@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-his body shall not remain all night upon the tree, but thou shalt surely bury him the same day; for he that is hanged is accursed of God; that thou defile not thy land which Jehovah thy God giveth thee for an inheritance.
+his body shall not remain all night on the tree, but you shall surely bury him the same day; for he who is hanged is accursed of God; that you don't defile your land which Yahweh your God gives you for an inheritance.

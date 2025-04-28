@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cry yet again, saying, Thus saith Jehovah of hosts: My cities shall yet overflow with prosperity; and Jehovah shall yet comfort Zion, and shall yet choose Jerusalem.
+"Proclaim further, saying, 'Thus says Yahweh of Armies: "My cities will again overflow with prosperity, and Yahweh will again comfort Zion, and will again choose Jerusalem."'"

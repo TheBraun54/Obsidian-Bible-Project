@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whosoever goeth onward and abideth not in the teaching of Christ, hath not God: he that abideth in the teaching, the same hath both the Father and the Son.
+Whoever transgresses and doesn't remain in the teaching of Christ, doesn't have God. He who remains in the teaching, the same has both the Father and the Son.

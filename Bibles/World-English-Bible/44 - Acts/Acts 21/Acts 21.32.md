@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And forthwith he took soldiers and centurions, and ran down upon them: and they, when they saw the chief captain and the soldiers, left off beating Paul.
+Immediately he took soldiers and centurions, and ran down to them. They, when they saw the chief captain and the soldiers, stopped beating Paul.

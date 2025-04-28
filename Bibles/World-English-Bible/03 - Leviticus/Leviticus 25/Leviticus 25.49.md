@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-or his uncle, or his uncle's son, may redeem him, or any that is nigh of kin unto him of his family may redeem him; or if he be waxed rich, he may redeem himself.
+or his uncle, or his uncle's son, may redeem him, or any who is a close relative to him of his family may redeem him; or if he has grown rich, he may redeem himself.

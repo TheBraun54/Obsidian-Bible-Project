@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abimelech said unto Abraham, What mean these seven ewe lambs which thou hast set by themselves?
+Abimelech said to Abraham, "What do these seven ewe lambs which you have set by themselves mean?"

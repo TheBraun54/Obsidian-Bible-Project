@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Josiah kept a passover unto Jehovah in Jerusalem: and they killed the passover on the fourteenth [day] of the first month.
+Josiah kept a Passover to Yahweh in Jerusalem: and they killed the Passover on the fourteenth [day] of the first month.

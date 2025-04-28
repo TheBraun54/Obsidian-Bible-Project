@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt gather all the spoil of it into the midst of the street thereof, and shalt burn with fire the city, and all the spoil thereof every whit, unto Jehovah thy God: and it shall be a [ heap for ever; it shall not be built again.
+You shall gather all its spoil into the midst of its street, and shall burn with fire the city, and all its spoil every whit, to Yahweh your God: and it shall be a heap forever; it shall not be built again.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one Ananias, a devout man according to the law, well reported of by all the Jews that dwelt there,
+One Ananias, a devout man according to the law, well reported of by all the Jews who lived in Damascus,

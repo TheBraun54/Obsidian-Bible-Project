@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall take up therefrom his handful, of the fine flour of the meal-offering, and of the oil thereof, and all the frankincense which is upon the meal-offering, and shall burn it upon the altar for a sweet savor, as the memorial thereof, unto Jehovah.
+He shall take from there his handful of the fine flour of the meal offering, and of its oil, and all the frankincense which is on the meal offering, and shall burn it on the altar for a pleasant aroma, as its memorial, to Yahweh.

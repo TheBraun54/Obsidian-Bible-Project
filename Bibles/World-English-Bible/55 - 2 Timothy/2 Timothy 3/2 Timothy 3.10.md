@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou didst follow my teaching, conduct, purpose, faith, longsuffering, love, patience,
+But you did follow my teaching, conduct, purpose, faith, patience, love, steadfastness,

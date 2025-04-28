@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thy servant doth know that I have sinned: therefore, behold, I am come this day the first of all the house of Joseph to go down to meet my lord the king.
+For your servant knows that I have sinned. Therefore, behold, I have come this day the first of all the house of Joseph to go down to meet my lord the king."

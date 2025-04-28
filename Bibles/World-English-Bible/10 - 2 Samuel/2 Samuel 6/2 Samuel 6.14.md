@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David danced before Jehovah with all his might; and David was girded with a linen ephod.
+David danced before Yahweh with all his might; and David was clothed in a linen ephod.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because ye have said, We have made a covenant with death, and with Sheol are we at agreement; when the overflowing scourge shall pass through, it shall not come unto us; for we have made lies our refuge, and under falsehood have we hid ourselves:
+"Because you have said, 'We have made a covenant with death, and with Sheol are we in agreement. When the overflowing scourge passes through, it won't come to us; for we have made lies our refuge, and we have hidden ourselves under falsehood.'"

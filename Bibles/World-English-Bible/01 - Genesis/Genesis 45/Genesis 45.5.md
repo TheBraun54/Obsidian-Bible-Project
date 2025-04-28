@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now be not grieved, nor angry with yourselves, that ye sold me hither: for God did send me before you to preserve life.
+Now don't be grieved, nor angry with yourselves, that you sold me here, for God sent me before you to preserve life.

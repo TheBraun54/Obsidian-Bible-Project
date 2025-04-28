@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the Pharisee saw it, he marvelled that he had not first bathed himself before dinner.
+When the Pharisee saw it, he marveled that he had not first washed himself before dinner.

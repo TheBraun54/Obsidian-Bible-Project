@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the people held their peace, and answered him not a word; for the king's commandment was, saying, Answer him not.
+But the people held their peace, and answered him not a word; for the king's commandment was, "Don't answer him."

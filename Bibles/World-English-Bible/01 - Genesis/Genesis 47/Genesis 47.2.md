@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And from among his brethren he took five men, and presented them unto Pharaoh.
+From among his brothers he took five men, and presented them to Pharaoh.

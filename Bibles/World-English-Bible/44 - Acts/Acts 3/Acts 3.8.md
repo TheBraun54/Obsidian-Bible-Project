@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And leaping up, he stood, and began to walk; and he entered with them into the temple, walking, and leaping, and praising God.
+Leaping up, he stood, and began to walk. He entered with them into the temple, walking, leaping, and praising God.

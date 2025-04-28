@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If indeed ye will magnify yourselves against me, And plead against me my reproach;
+If indeed you will magnify yourselves against me, and plead against me my reproach;

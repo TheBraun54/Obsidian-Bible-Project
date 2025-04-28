@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this ointment might have been sold for above three hundred shillings, and given to the poor. And they murmured against her.
+For this might have been sold for more than three hundred denarii, and given to the poor." They grumbled against her.

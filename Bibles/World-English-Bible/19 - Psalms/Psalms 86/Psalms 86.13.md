@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For great is thy lovingkindness toward me; And thou hast delivered my soul from the lowest Sheol.
+For your loving kindness is great toward me. You have delivered my soul from the lowest Sheol.

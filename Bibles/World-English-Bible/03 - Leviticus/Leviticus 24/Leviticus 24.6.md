@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt set them in two rows, six on a row, upon the pure table before Jehovah.
+You shall set them in two rows, six on a row, on the pure gold table before Yahweh.

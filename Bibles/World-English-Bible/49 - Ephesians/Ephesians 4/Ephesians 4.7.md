@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But unto each one of us was the grace given according to the measure of the gift of Christ.
+But to each one of us was the grace given according to the measure of the gift of Christ.

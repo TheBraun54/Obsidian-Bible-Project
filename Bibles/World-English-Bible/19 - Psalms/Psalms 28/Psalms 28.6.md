@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed be Jehovah, Because he hath heard the voice of my supplications.
+Blessed be Yahweh, because he has heard the voice of my petitions.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now it is planted in the wilderness, in a dry and thirsty land.
+Now it is planted in the wilderness, in a dry and thirsty land.

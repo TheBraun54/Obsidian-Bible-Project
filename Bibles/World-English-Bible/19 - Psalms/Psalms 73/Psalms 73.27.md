@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, lo, they that are far from thee shall perish: Thou hast destroyed all them that play the harlot, [departing] from thee.
+For, behold, those who are far from you shall perish. You have destroyed all those who are unfaithful to you.

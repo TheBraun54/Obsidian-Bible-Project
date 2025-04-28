@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will give thee the treasures of darkness, and hidden riches of secret places, that thou mayest know that it is I, Jehovah, who call thee by thy name, even the God of Israel.
+I will give you the treasures of darkness, and hidden riches of secret places, that you may know that it is I, Yahweh, who call you by your name, even the God of Israel.

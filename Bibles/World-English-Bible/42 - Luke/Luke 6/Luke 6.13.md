@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when it was day, he called his disciples; and he chose from them twelve, whom also he named apostles:
+When it was day, he called his disciples, and from them he chose twelve, whom he also named apostles:

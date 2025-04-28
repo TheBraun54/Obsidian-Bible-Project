@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He maketh peace in thy borders; He filleth thee with the finest of the wheat.
+He makes peace in your borders. He fills you with the finest of the wheat.

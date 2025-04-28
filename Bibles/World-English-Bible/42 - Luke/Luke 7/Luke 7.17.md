@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this report went forth concerning him in the whole of Judaea, and all the region round about.
+This report went out concerning him in the whole of Judea, and in all the surrounding region.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt bring the bullock before the tent of meeting: and Aaron and his sons shall lay their hands upon the head of the bullock.
+"You shall bring the bull before the Tent of Meeting: and Aaron and his sons shall lay their hands on the head of the bull.

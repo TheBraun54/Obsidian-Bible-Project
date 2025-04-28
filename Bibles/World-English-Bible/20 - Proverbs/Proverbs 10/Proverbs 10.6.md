@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessings are upon the head of the righteous; But violence covereth the mouth of the wicked.
+Blessings are on the head of the righteous, but violence covers the mouth of the wicked.

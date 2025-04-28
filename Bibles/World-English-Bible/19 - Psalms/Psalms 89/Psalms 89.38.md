@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou hast cast off and rejected, Thou hast been wroth with thine anointed.
+But you have rejected and spurned. You have been angry with your anointed.

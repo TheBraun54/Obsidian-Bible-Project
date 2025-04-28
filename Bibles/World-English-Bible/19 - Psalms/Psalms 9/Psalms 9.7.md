@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jehovah sitteth [as king] for ever: He hath prepared his throne for judgment;
+But Yahweh reigns forever. He has prepared his throne for judgment.

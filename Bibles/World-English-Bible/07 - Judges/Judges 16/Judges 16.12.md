@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Delilah took new ropes, and bound him therewith, and said unto him, The Philistines are upon thee, Samson. And the liers-in-wait were abiding in the inner chamber. And he brake them off his arms like a thread.
+So Delilah took new ropes, and bound him therewith, and said to him, "The Philistines are on you, Samson!" The ambush was waiting in the inner room. He broke them off his arms like a thread.

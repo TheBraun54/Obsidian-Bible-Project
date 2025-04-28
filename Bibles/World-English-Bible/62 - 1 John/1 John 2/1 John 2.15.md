@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Love not the world, neither the things that are in the world. If any man love the world, the love of the Father is not in him.
+Don't love the world, neither the things that are in the world. If anyone loves the world, the Father's love isn't in him.

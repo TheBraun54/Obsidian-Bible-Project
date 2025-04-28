@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jehovah is in his holy temple: let all the earth keep silence before him.
+But Yahweh is in his holy temple. Let all the earth be silent before him!"

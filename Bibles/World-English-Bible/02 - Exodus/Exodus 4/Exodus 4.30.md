@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Aaron spake all the words which Jehovah had spoken unto Moses, and did the signs in the sight of the people.
+Aaron spoke all the words which Yahweh had spoken to Moses, and did the signs in the sight of the people.

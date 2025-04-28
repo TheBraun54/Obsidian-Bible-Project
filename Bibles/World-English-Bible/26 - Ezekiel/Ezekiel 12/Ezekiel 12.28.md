@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore say unto them, Thus saith the Lord Jehovah: There shall none of my words be deferred any more, but the word which I shall speak shall be performed, saith the Lord Jehovah.
+Therefore tell them, Thus says the Lord Yahweh: None of my words shall be deferred any more, but the word which I shall speak shall be performed, says the Lord Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even as David also pronounceth blessing upon the man, unto whom God reckoneth righteousness apart from works,
+Even as David also pronounces blessing on the man to whom God counts righteousness apart from works,

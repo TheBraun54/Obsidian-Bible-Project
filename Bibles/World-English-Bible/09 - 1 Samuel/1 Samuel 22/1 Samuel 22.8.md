@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that all of you have conspired against me, and there is none that discloseth to me when my son maketh a league with the son of Jesse, and there is none of you that is sorry for me, or discloseth unto me that my son hath stirred up my servant against me, to lie in wait, as at this day?
+that all of you have conspired against me, and there is none who discloses to me when my son makes a treaty with the son of Jesse, and there is none of you who is sorry for me, or discloses to me that my son has stirred up my servant against me, to lie in wait, as at this day?"

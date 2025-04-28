@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I gave Gilead unto Machir.
+I gave Gilead to Machir.

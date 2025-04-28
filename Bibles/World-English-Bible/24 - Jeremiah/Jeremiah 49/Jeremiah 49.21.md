@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The earth trembleth at the noise of their fall; there is a cry, the noise whereof is heard in the Red Sea.
+The earth trembles at the noise of their fall; there is a cry, the noise which is heard in the Red Sea.

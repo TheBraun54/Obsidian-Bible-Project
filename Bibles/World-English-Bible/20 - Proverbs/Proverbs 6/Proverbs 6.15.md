@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore shall his calamity come suddenly; On a sudden shall he be broken, and that without remedy.
+Therefore his calamity will come suddenly. He will be broken suddenly, and that without remedy.

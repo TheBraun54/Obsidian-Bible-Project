@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he bought a linen cloth, and taking him down, wound him in the linen cloth, and laid him in a tomb which had been hewn out of a rock; and he rolled a stone against the door of the tomb.
+He bought a linen cloth, and taking him down, wound him in the linen cloth, and laid him in a tomb which had been cut out of a rock. He rolled a stone against the door of the tomb.

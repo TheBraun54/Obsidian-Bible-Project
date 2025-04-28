@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah raised up judges, who saved them out of the hand of those that despoiled them.
+Yahweh raised up judges, who saved them out of the hand of those who despoiled them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus looked round about, and saith unto his disciples, How hardly shall they that have riches enter into the kingdom of God!
+Jesus looked around, and said to his disciples, "How difficult it is for those who have riches to enter into the Kingdom of God!"

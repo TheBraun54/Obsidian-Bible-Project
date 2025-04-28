@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye shall offer an offering made by fire unto Jehovah seven days: in the seventh day is a holy convocation; ye shall do no servile work.
+But you shall offer an offering made by fire to Yahweh seven days. In the seventh day is a holy convocation: you shall do no regular work.'"

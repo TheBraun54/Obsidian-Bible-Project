@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the maid saw him, and began again to say to them that stood by, This is [one] of them.
+The maid saw him, and began again to tell those who stood by, "This is one of them."

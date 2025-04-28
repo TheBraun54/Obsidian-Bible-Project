@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the two kidneys, and the fat that is upon them, which is by the loins, and the caul upon the liver, with the kidneys, shall he take away,
+and the two kidneys, and the fat that is on them, which is by the loins, and the cover on the liver, with the kidneys, he shall take away,

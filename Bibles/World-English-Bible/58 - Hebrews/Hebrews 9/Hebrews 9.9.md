@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-which [is] a figure for the time present; according to which are offered both gifts and sacrifices that cannot, as touching the conscience, make the worshipper perfect,
+which is a symbol of the present age, where gifts and sacrifices are offered that are incapable, concerning the conscience, of making the worshipper perfect;

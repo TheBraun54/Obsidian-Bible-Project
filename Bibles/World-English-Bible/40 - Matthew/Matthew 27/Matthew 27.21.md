@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the governor answered and said unto them, Which of the two will ye that I release unto you? And they said, Barabbas.
+But the governor answered them, "Which of the two do you want me to release to you?" They said, "Barabbas!"

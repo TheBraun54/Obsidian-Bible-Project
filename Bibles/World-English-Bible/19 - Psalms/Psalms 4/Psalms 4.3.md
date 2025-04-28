@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But know that Jehovah hath set apart for himself him that is godly: Jehovah will hear when I call unto him.
+But know that Yahweh has set apart for himself him who is godly: Yahweh will hear when I call to him.

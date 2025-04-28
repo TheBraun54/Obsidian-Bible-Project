@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will teach you concerning the hand of God; That which is with the Almighty will I not conceal.
+I will teach you about the hand of God. That which is with the Almighty will I not conceal.

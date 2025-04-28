@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who hath woe? who hath sorrow? who hath contentions? Who hath complaining? who hath wounds without cause? Who hath redness of eyes?
+Who has woe? Who has sorrow? Who has strife? Who has complaints? Who has needless bruises? Who has bloodshot eyes?

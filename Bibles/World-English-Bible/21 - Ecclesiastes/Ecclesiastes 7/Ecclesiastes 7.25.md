@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I turned about, and my heart [was set] to know and to search out, and to seek wisdom and the reason [of things], and to know that wickedness is folly, and that foolishness is madness.
+I turned around, and my heart sought to know and to search out, and to seek wisdom and the scheme of things, and to know that wickedness is stupidity, and that foolishness is madness.

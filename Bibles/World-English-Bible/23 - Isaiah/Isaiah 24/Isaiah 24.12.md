@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the city is left desolation, and the gate is smitten with destruction.
+The city is left in desolation, and the gate is struck with destruction.

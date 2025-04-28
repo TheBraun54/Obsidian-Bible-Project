@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Matthew and Thomas, and James [the son] of Alphaeus, and Simon who was called the Zealot,
+Matthew; Thomas; James, the son of Alphaeus; Simon, who was called the Zealot;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesse said unto David his son, Take now for thy brethren an ephah of this parched grain, and these ten loaves, and carry [them] quickly to the camp to thy brethren;
+Jesse said to David his son, "Now take for your brothers an ephah of this parched grain, and these ten loaves, and carry [them] quickly to the camp to your brothers;

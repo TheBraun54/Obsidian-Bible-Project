@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he spake exceedingly vehemently, If I must die with thee, I will not deny thee. And in like manner also said they all.
+But he spoke all the more, "If I must die with you, I will not deny you." They all said the same thing.

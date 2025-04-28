@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wilt thou keep the old way Which wicked men have trodden?
+Will you keep the old way, which wicked men have trodden,

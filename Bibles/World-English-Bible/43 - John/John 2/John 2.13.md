@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the passover of the Jews was at hand, and Jesus went up to Jerusalem.
+The Passover of the Jews was at hand, and Jesus went up to Jerusalem.

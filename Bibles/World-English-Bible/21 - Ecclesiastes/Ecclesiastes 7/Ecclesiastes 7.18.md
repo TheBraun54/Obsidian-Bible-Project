@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is good that thou shouldest take hold of this; yea, also from that withdraw not thy hand: for he that feareth God shall come forth from them all.
+It is good that you should take hold of this. Yes, also from that don't withdraw your hand; for he who fears God will come forth from them all.

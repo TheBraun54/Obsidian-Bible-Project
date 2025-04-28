@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I give you good doctrine; Forsake ye not my law.
+for I give you sound learning. Don't forsake my law.

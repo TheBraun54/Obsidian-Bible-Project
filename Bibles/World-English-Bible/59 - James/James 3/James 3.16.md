@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For where jealousy and faction are, there is confusion and every vile deed.
+For where jealousy and selfish ambition are, there is confusion and every evil deed.

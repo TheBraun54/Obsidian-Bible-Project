@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For ye died, and your life is hid with Christ in God.
+For you died, and your life is hidden with Christ in God.

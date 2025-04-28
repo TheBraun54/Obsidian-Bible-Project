@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whatsoever hath been, the name thereof was given long ago; and it is known what man is; neither can he contend with him that is mightier than he.
+Whatever has been, its name was given long ago; and it is known what man is; neither can he contend with him who is mightier than he.

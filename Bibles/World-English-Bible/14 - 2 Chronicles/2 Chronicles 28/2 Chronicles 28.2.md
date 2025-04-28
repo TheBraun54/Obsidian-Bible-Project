@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but he walked in the ways of the kings of Israel, and made also molten images for the Baalim.
+but he walked in the ways of the kings of Israel, and made also molten images for the Baals.

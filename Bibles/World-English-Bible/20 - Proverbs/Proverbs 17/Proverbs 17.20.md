@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that hath a wayward heart findeth no good; And he that hath a perverse tongue falleth into mischief.
+One who has a perverse heart doesn't find prosperity, and one who has a deceitful tongue falls into trouble.

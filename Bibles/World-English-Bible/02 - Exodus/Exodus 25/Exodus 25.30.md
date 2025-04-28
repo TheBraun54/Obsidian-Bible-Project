@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt set upon the table showbread before me alway.
+You shall set bread of the presence on the table before me always.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He asked life of thee, thou gavest it him, Even length of days for ever and ever.
+He asked life of you, you gave it to him, even length of days forever and ever.

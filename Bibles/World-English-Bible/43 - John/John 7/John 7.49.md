@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But this multitude that knoweth not the law are accursed.
+But this multitude that doesn't know the law is accursed."

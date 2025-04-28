@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, I will not go; but I will depart to mine own land, and to my kindred.
+He said to him, "I will not go; but I will depart to my own land, and to my relatives."

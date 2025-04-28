@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And during supper, the devil having already put into the heart of Judas Iscariot, Simon's [son], to betray him,
+During supper, the devil having already put into the heart of Judas Iscariot, Simon's son, to betray him,

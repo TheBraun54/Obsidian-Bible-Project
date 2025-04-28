@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he answered and said, Every plant which my heavenly Father planted not, shall be rooted up.
+But he answered, "Every plant which my heavenly Father didn't plant will be uprooted.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the tribe of the children of Ephraim a prince, Kemuel the son of Shiphtan.
+Of the tribe of the children of Ephraim a prince, Kemuel the son of Shiphtan.

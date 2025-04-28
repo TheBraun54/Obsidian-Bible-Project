@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that were full have hired out themselves for bread; And they that were hungry have ceased [to hunger] : Yea, the barren hath borne seven; And she that hath many children languisheth. [
+Those who were full have hired themselves out for bread. Those who were hungry have ceased [to hunger]. Yes, the barren has borne seven. She who has many children languishes.

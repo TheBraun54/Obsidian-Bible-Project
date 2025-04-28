@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall take the two goats, and set them before Jehovah at the door of the tent of meeting.
+He shall take the two goats, and set them before Yahweh at the door of the Tent of Meeting.

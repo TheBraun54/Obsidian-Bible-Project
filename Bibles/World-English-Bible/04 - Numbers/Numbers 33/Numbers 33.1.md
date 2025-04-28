@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the journeys of the children of Israel, when they went forth out of the land of Egypt by their hosts under the hand of Moses and Aaron.
+These are the journeys of the children of Israel, when they went forth out of the land of Egypt by their armies under the hand of Moses and Aaron.

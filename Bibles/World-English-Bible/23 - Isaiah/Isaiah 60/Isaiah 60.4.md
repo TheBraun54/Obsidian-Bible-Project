@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lift up thine eyes round about, and see: they all gather themselves together, they come to thee; thy sons shall come from far, and thy daughters shall be carried in the arms.
+"Lift up your eyes all around, and see: they all gather themselves together, they come to you; your sons shall come from far, and your daughters shall be carried in the arms.

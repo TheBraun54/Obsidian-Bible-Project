@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I say unto you, This man went down to his house justified rather than the other: for every one that exalteth himself shall be humbled; but he that humbleth himself shall be exalted.
+I tell you, this man went down to his house justified rather than the other; for everyone who exalts himself will be humbled, but he who humbles himself will be exalted."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When your fathers tempted me, Proved me, and saw my work.
+when your fathers tempted me, tested me, and saw my work.

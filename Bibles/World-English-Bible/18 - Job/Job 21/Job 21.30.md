@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That the evil man is reserved to the day of calamity? That they are led forth to the day of wrath?
+that the evil man is reserved to the day of calamity, That they are led forth to the day of wrath?

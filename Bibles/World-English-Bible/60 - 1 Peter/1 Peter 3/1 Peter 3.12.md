@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the eyes of the Lord are upon the righteous, And his ears unto their supplication: But the face of the Lord is upon them that do evil.
+For the eyes of the Lord are on the righteous, and his ears open to their prayer; but the face of the Lord is against those who do evil."

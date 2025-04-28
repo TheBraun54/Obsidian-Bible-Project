@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore shall they now go captive with the first that go captive; and the revelry of them that stretched themselves shall pass away.
+Therefore they will now go captive with the first who go captive; and the feasting and lounging will end.

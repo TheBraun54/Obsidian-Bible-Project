@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto us! who shall deliver us out of the hand of these mighty gods? these are the gods that smote the Egyptians with all manner of plagues in the wilderness.
+Woe to us! Who shall deliver us out of the hand of these mighty gods? These are the gods that struck the Egyptians with all kinds of plagues in the wilderness.

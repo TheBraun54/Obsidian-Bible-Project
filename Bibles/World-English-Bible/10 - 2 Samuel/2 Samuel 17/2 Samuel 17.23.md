@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Ahithophel saw that his counsel was not followed, he saddled his ass, and arose, and gat him home, unto his city, and set his house in order, and hanged himself; and he died, and was buried in the sepulchre of his father.
+When Ahithophel saw that his counsel was not followed, he saddled his donkey, and arose, and went home, to his city, and set his house in order, and hanged himself; and he died, and was buried in the tomb of his father.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now before the feast of the passover, Jesus knowing that his hour was come that he should depart out of this world unto his Father, having loved his own that were in the world, he loved them unto the end.
+Now before the feast of the Passover, Jesus, knowing that his time had come that he would depart from this world to the Father, having loved his own who were in the world, he loved them to the end.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abimelech was prince over Israel three years.
+Abimelech was prince over Israel three years.

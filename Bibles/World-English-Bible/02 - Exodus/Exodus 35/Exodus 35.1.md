@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses assembled all the congregation of the children of Israel, and said unto them, These are the words which Jehovah hath commanded, that ye should do them.
+Moses assembled all the congregation of the children of Israel, and said to them, "These are the words which Yahweh has commanded, that you should do them.

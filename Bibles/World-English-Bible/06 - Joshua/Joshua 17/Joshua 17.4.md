@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came near before Eleazar the priest, and before Joshua the son of Nun, and before the princes, saying, Jehovah commanded Moses to give us an inheritance among our brethren: therefore according to the commandment of Jehovah he gave them an inheritance among the brethren of their father.
+They came near before Eleazar the priest, and before Joshua the son of Nun, and before the princes, saying, "Yahweh commanded Moses to give us an inheritance among our brothers." Therefore according to the commandment of Yahweh he gave them an inheritance among the brothers of their father.

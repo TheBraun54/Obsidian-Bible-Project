@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Where wast thou when I laid the foundations of the earth? Declare, if thou hast understanding.
+"Where were you when I laid the foundations of the earth? Declare, if you have understanding.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither shall thy name any more be called Abram, but thy name shall be Abraham; for the father of a multitude of nations have I made thee.
+Neither will your name any more be called Abram, but your name will be Abraham; for I have made you the father of a multitude of nations.

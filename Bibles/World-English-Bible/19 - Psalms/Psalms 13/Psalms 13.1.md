@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. A Psalm of David]. How long, O Jehovah? wilt thou forget me for ever? How long wilt thou hide thy face from me?
+How long, Yahweh? Will you forget me forever? How long will you hide your face from me?

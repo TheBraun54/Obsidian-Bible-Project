@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-not rendering evil for evil, or reviling for reviling; but contrariwise blessing; for hereunto were ye called, that ye should inherit a blessing.
+not rendering evil for evil, or insult for insult; but instead blessing; knowing that to this were you called, that you may inherit a blessing.

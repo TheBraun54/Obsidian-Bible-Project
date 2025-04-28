@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye daughters of Israel, weep over Saul, Who clothed you in scarlet delicately, Who put ornaments of gold upon your apparel.
+You daughters of Israel, weep over Saul, who clothed you in scarlet delicately, who put ornaments of gold on your clothing.

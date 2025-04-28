@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the cherubim spread forth their wings over the place of the ark, and the cherubim covered the ark and the staves thereof above.
+For the cherubim spread forth their wings over the place of the ark, and the cherubim covered the ark and its poles above.

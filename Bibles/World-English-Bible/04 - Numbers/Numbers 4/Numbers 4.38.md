@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And those that were numbered of the sons of Gershon, their families, and by their fathers' houses,
+Those who were numbered of the sons of Gershon, their families, and by their fathers' houses,

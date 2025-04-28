@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And those by the way side are they that have heard; then cometh the devil, and taketh away the word from their heart, that they may not believe and be saved.
+Those along the road are those who hear, then the devil comes, and takes away the word from their heart, that they may not believe and be saved.

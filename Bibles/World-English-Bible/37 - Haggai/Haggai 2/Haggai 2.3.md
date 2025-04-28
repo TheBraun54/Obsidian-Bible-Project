@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is left among you that saw this house in its former glory? and how do ye see it now? is it not in your eyes as nothing?
+'Who is left among you who saw this house in its former glory? How do you see it now? Isn't it in your eyes as nothing?

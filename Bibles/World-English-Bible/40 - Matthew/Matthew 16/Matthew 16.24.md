@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Jesus unto his disciples, If any man would come after me, let him deny himself, and take up his cross, and follow me.
+Then Jesus said to his disciples, "If anyone desires to come after me, let him deny himself, and take up his cross, and follow me.

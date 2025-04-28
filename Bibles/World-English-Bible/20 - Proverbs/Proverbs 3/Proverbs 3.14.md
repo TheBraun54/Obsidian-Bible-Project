@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the gaining of it is better than the gaining of silver, And the profit thereof than fine gold.
+For her good profit is better than getting silver, and her return is better than fine gold.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is the writing that was inscribed: MENE, MENE, TEKEL, UPHARSIN.
+This is the writing that was inscribed: MENE, MENE, TEKEL, UPHARSIN.

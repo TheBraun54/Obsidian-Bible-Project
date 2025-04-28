@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Terrors overtake him like waters; A tempest stealeth him away in the night.
+Terrors overtake him like waters. A storm steals him away in the night.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And to the others he said in my hearing, Go ye through the city after him, and smite: let not your eye spare, neither have ye pity;
+To the others he said in my hearing, Go through the city after him, and strike: don't let your eye spare, neither have pity;

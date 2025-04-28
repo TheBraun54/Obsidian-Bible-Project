@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lo, he goeth by me, and I see him not: He passeth on also, but I perceive him not.
+Behold, he goes by me, and I don't see him. He passes on also, but I don't perceive him.

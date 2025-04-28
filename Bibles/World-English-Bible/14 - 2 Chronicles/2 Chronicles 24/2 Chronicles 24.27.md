@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now concerning his sons, and the greatness of the burdens [laid] upon him, and the rebuilding of the house of God, behold, they are written in the commentary of the book of the kings. And Amaziah his son reigned in his stead.
+Now concerning his sons, and the greatness of the burdens [laid] on him, and the rebuilding of the house of God, behold, they are written in the commentary of the book of the kings. Amaziah his son reigned in his place.

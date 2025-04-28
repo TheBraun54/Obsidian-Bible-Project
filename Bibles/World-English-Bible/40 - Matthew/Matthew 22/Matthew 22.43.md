@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He saith unto them, How then doth David in the Spirit call him Lord, saying,
+He said to them, "How then does David in the Spirit call him Lord, saying,

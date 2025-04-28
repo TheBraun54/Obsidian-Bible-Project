@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thanks be to God, that, whereas ye were servants of sin, ye became obedient from the heart to that form of teaching whereunto ye were delivered;
+But thanks be to God, that, whereas you were bondservants of sin, you became obedient from the heart to that form of teaching whereunto you were delivered.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to teach when it is unclean, and when it is clean: this is the law of leprosy.
+to teach when it is unclean, and when it is clean. This is the law of leprosy.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Turn back, and say to Hezekiah the prince of my people, Thus saith Jehovah, the God of David thy father, I have heard thy prayer, I have seen thy tears: behold, I will heal thee; on the third day thou shalt go up unto the house of Jehovah.
+"Turn back, and tell Hezekiah the prince of my people, 'Thus says Yahweh, the God of David your father, "I have heard your prayer. I have seen your tears. Behold, I will heal you. On the third day, you shall go up to the house of Yahweh.

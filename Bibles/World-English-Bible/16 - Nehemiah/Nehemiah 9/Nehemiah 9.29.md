@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and testifiedst against them, that thou mightest bring them again unto thy law. Yet they dealt proudly, and hearkened not unto thy commandments, but sinned against thine ordinances, (which if a man do, he shall live in them), and withdrew the shoulder, and hardened their neck, and would not hear.
+and testified against them, that you might bring them again to your law. Yet they dealt proudly, and didn't listen to your commandments, but sinned against your ordinances, (which if a man does, he shall live in them), turned their backs, stiffened their neck, and would not hear.

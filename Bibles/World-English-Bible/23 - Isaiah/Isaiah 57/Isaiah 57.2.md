@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He entereth into peace; they rest in their beds, each one that walketh in his uprightness.
+He enters into peace; they rest in their beds, each one who walks in his uprightness.

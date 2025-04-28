@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he cast for it four rings of gold, in the four feet thereof; even two rings on the one side of it, and two rings on the other side of it.
+He cast four rings of gold for it, in its four feet; even two rings on its one side, and two rings on its other side.

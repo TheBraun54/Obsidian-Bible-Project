@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If he sanctify his field from the year of jubilee, according to thy estimation it shall stand.
+If he dedicates his field from the Year of Jubilee, according to your valuation it shall stand.

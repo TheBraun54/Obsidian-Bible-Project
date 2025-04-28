@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be a statute for ever unto you: in the seventh month, on the tenth day of the month, ye shall afflict your souls, and shall do no manner of work, the home-born, or the stranger that sojourneth among you:
+"It shall be a statute to you forever: in the seventh month, on the tenth day of the month, you shall afflict your souls, and shall do no kind of work, the native-born, or the stranger who lives as a foreigner among you:

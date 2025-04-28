@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses and Aaron did all these wonders before Pharaoh: and Jehovah hardened Pharaoh's heart, and he did not let the children of Israel go out of his land.
+Moses and Aaron did all these wonders before Pharaoh, and Yahweh hardened Pharaoh's heart, and he didn't let the children of Israel go out of his land.

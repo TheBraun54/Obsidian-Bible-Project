@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed are yet that sow beside all waters, that send forth the feet of the ox and the ass.
+Blessed are you who sow beside all waters, who send out the feet of the ox and the donkey.

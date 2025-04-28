@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With aged men is wisdom, And in length of days understanding.
+With aged men is wisdom, in length of days understanding.

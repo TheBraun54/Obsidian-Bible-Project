@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But let him ask in faith, nothing doubting: for he that doubteth is like the surge of the sea driven by the wind and tossed.
+But let him ask in faith, without any doubting, for he who doubts is like a wave of the sea, driven by the wind and tossed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who causeth the vapors to ascend from the ends of the earth; Who maketh lightnings for the rain; Who bringeth forth the wind out of his treasuries;
+who causes the clouds to rise from the ends of the earth; who makes lightnings with the rain; who brings forth the wind out of his treasuries;

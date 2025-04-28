@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-lest there should be among you man, or woman, or family, or tribe, whose heart turneth away this day from Jehovah our God, to go to serve the gods of those nations; lest there should be among you a root that beareth [ gall and wormwood;
+lest there should be among you man, or woman, or family, or tribe, whose heart turns away this day from Yahweh our God, to go to serve the gods of those nations; lest there should be among you a root that bears gall and wormwood;

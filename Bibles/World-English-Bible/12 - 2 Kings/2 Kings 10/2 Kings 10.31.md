@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jehu took no heed to walk in the law of Jehovah, the God of Israel, with all his heart: he departed not from the sins of Jeroboam, wherewith he made Israel to sin.
+But Jehu took no heed to walk in the law of Yahweh, the God of Israel, with all his heart. He didn't depart from the sins of Jeroboam, with which he made Israel to sin.

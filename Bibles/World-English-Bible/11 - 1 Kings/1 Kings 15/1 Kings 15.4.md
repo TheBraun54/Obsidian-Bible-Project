@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless for David's sake did Jehovah his God give him a lamp in Jerusalem, to set up his son after him, and to establish Jerusalem;
+Nevertheless for David's sake did Yahweh his God give him a lamp in Jerusalem, to set up his son after him, and to establish Jerusalem;

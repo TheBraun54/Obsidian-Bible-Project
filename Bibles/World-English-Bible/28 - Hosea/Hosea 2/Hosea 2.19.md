@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will betroth thee unto me for ever; yea, I will betroth thee unto me in righteousness, and in justice, and in lovingkindness, and in mercies.
+I will betroth you to me forever. Yes, I will betroth you to me in righteousness, in justice, in loving kindness, and in compassion.

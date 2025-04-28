@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall sow the eighth year, and eat of the fruits, the old store; until the ninth year, until its fruits come in, ye shall eat the old store.
+You shall sow the eighth year, and eat of the fruits, the old store; until the ninth year, until its fruits come in, you shall eat the old store.

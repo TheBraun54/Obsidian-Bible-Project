@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now, O ye priests, this commandment is for you.
+"Now, you priests, this commandment is for you.

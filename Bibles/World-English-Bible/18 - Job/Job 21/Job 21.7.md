@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore do the wicked live, Become old, yea, wax mighty in power?
+"Why do the wicked live, become old, yes, and grow mighty in power?

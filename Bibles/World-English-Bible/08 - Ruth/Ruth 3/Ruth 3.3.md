@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wash thyself therefore, and anoint thee, and put thy raiment upon thee, and get thee down to the threshing-floor, but make not thyself known unto the man, until he shall have done eating and drinking.
+Therefore wash yourself, anoint yourself, get dressed, and go down to the threshing floor, but don't make yourself known to the man until he has finished eating and drinking.

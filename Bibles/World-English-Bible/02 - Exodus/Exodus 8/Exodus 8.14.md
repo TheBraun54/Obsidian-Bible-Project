@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they gathered them together in heaps; and the land stank.
+They gathered them together in heaps, and the land stank.

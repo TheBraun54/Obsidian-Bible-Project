@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These were thy traffickers in choice wares, in wrappings of blue and broidered work, and in chests of rich apparel, bound with cords and made of cedar, among thy merchandise.
+These were your traffickers in choice wares, in wrappings of blue and embroidered work, and in chests of rich clothing, bound with cords and made of cedar, among your merchandise.

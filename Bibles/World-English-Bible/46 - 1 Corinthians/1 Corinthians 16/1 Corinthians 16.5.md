@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I will come unto you, when I shall have passed through Macedonia; for I pass through Macedonia;
+But I will come to you when I have passed through Macedonia, for I am passing through Macedonia.

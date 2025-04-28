@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who is this that hideth counsel without knowledge? Therefore have I uttered that which I understood not, Things too wonderful for me, which I knew not.
+You asked, 'Who is this who hides counsel without knowledge?' therefore I have uttered that which I did not understand, things too wonderful for me, which I didn't know.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt kill the bullock before Jehovah, at the door of the tent of meeting.
+You shall kill the bull before Yahweh, at the door of the Tent of Meeting.

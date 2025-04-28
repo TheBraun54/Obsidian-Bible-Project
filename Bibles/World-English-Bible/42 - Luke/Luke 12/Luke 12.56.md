@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye hypocrites, ye know how to interpret the face of the earth and the heaven; but how is it that ye know not how to interpret this time?
+You hypocrites! You know how to interpret the appearance of the earth and the sky, but how is it that you don't interpret this time?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul sent to Jesse, saying, Let David, I pray thee, stand before me; for he hath found favor in my sight.
+Saul sent to Jesse, saying, "Please let David stand before me; for he has found favor in my sight."

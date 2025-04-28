@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were not afraid, nor rent their garments, neither the king, nor any of his servants that heard all these words.
+They were not afraid, nor tore their garments, neither the king, nor any of his servants who heard all these words.

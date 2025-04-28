@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every meal-offering, mingled with oil, or dry, shall all the sons of Aaron have, one as well as another.
+Every meal offering, mixed with oil or dry, belongs to all the sons of Aaron, one as well as another.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah sent an angel, who cut off all the mighty men of valor, and the leaders and captains, in the camp of the king of Assyria. So he returned with shame of face to his own land. And when he was come into the house of his god, they that came forth from his own bowels slew him there with the sword.
+Yahweh sent an angel, who cut off all the mighty men of valor, and the leaders and captains, in the camp of the king of Assyria. So he returned with shame of face to his own land. When he had come into the house of his god, those who came forth from his own bowels killed him there with the sword.

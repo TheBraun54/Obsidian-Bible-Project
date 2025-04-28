@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I charge thee in the sight of God, who giveth life to all things, and of Christ Jesus, who before Pontius Pilate witnessed the good confession;
+I command you before God, who gives life to all things, and before Christ Jesus, who before Pontius Pilate testified the good confession,

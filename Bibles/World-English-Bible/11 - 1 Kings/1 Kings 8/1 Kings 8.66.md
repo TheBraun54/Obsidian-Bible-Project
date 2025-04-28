@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On the eighth day he sent the people away; and they blessed the king, and went unto their tents joyful and glad of heart for all the goodness that Jehovah had showed unto David his servant, and to Israel his people.
+On the eighth day he sent the people away; and they blessed the king, and went to their tents joyful and glad of heart for all the goodness that Yahweh had shown to David his servant, and to Israel his people.

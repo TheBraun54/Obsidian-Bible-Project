@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they shall say unto you, Seek unto them that have familiar spirits and unto the wizards, that chirp and that mutter: should not a people seek unto their God? on behalf of the living [should they seek] unto the dead?
+When they tell you, "Consult with those who have familiar spirits and with the wizards, who chirp and who mutter:" shouldn't a people consult with their God? Should they consult the dead on behalf of the living?

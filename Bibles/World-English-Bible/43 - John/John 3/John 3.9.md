@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nicodemus answered and said unto him, How can these things be?
+Nicodemus answered him, "How can these things be?"

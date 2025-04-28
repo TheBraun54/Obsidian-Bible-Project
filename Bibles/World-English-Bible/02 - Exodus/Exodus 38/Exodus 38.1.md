@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the altar of burnt-offering of acacia wood: five cubits was the length thereof, and five cubits the breadth thereof, foursquare; and three cubits the height thereof.
+He made the altar of burnt offering of acacia wood. It was square. Its length was five cubits, its breadth was five cubits, and its height was three cubits.

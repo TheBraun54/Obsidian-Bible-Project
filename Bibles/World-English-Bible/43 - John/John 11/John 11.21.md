@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Martha therefore said unto Jesus, Lord, if thou hadst been here, my brother had not died.
+Therefore Martha said to Jesus, "Lord, if you would have been here, my brother wouldn't have died.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And upon the first day of the week, when we were gathered together to break bread, Paul discoursed with them, intending to depart on the morrow; and prolonged his speech until midnight.
+On the first day of the week, when the disciples were gathered together to break bread, Paul talked with them, intending to depart on the next day, and continued his speech until midnight.

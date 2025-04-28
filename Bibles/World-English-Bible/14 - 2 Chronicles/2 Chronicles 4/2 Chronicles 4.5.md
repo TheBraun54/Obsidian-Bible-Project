@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was a handbreadth thick; and the brim thereof was wrought like the brim of a cup, like the flower of a lily: it received and held three thousand baths.
+It was a handbreadth thick; and its brim was worked like the brim of a cup, like the flower of a lily: it received and held three thousand baths.

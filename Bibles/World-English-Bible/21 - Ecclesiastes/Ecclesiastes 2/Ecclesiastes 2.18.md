@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I hated all my labor wherein I labored under the sun, seeing that I must leave it unto the man that shall be after me.
+I hated all my labor in which I labored under the sun, because I must leave it to the man who comes after me.

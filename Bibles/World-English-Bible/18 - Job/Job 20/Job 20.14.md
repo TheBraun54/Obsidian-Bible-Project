@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet his food in his bowels is turned, It is the gall of asps within him.
+yet his food in his bowels is turned. It is cobra venom within him.

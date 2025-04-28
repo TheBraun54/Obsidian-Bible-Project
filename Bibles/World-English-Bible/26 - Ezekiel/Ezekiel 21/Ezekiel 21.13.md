@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there is a trial; and what if even the rod that contemneth shall be no more? saith the Lord Jehovah.
+For there is a trial; and what if even the rod that condemns shall be no more? says the Lord Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have gone astray like a lost sheep; Seek thy servant; For I do not forget thy commandments.
+I have gone astray like a lost sheep. Seek your servant, for I don't forget your commandments. A Song of Ascents.

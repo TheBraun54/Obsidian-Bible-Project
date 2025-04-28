@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the lovingkindness of Jehovah is from everlasting to everlasting upon them that fear him, And his righteousness unto children's children;
+But Yahweh's loving kindness is from everlasting to everlasting with those who fear him, his righteousness to children's children;

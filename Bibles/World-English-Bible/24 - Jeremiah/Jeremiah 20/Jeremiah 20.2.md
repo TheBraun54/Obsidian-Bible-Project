@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Pashhur smote Jeremiah the prophet, and put him in the stocks that were in the upper gate of Benjamin, which was in the house of Jehovah.
+Then Pashhur struck Jeremiah the prophet, and put him in the stocks that were in the upper gate of Benjamin, which was in the house of Yahweh.

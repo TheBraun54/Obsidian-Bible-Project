@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Haman said unto the king, For the man whom the king delighteth to honor,
+Haman said to the king, "For the man whom the king delights to honor,

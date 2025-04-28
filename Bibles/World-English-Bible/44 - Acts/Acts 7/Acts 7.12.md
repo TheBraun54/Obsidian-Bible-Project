@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when Jacob heard that there was grain in Egypt, he sent forth our fathers the first time.
+But when Jacob heard that there was grain in Egypt, he sent out our fathers the first time.

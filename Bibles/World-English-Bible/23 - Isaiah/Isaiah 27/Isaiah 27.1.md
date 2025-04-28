@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day Jehovah with his hard and great and strong sword will punish leviathan the swift serpent, and leviathan the crooked serpent; and he will slay the monster that is in the sea.
+In that day, Yahweh with his hard and great and strong sword will punish leviathan, the fleeing serpent, and leviathan the twisted serpent; and he will kill the dragon that is in the sea.

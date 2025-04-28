@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Foursquare it shall be [and] double; a span shall be the length thereof, and a span the breadth thereof.
+It shall be square and folded double; a span shall be its length of it, and a span its breadth.

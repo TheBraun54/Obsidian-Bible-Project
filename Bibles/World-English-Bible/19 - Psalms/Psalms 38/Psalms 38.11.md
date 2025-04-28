@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My lovers and my friends stand aloof from my plague; And my kinsmen stand afar off.
+My lovers and my friends stand aloof from my plague. My kinsmen stand far away.

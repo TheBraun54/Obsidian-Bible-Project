@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will set my face against you, and ye shall be smitten before your enemies: they that hate you shall rule over you; and ye shall flee when none pursueth you.
+I will set my face against you, and you will be struck before your enemies. Those who hate you will rule over you; and you will flee when no one pursues you.

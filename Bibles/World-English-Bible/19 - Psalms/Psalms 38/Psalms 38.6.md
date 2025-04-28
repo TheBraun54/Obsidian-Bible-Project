@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am pained and bowed down greatly; I go mourning all the day long.
+I am pained and bowed down greatly. I go mourning all day long.

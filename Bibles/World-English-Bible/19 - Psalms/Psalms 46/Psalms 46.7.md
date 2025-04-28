@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah of hosts is with us; The God of Jacob is our refuge. {{Selah
+Yahweh of Armies is with us. The God of Jacob is our refuge. Selah.

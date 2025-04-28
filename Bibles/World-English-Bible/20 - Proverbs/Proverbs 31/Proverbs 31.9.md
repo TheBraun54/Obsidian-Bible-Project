@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Open thy mouth, judge righteously, And minister justice to the poor and needy.
+Open your mouth, judge righteously, and serve justice to the poor and needy."

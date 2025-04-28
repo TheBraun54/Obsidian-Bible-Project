@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Concerning whom, when the accusers stood up, they brought no charge of such evil things as I supposed;
+Concerning whom, when the accusers stood up, they brought no charge of such things as I supposed;

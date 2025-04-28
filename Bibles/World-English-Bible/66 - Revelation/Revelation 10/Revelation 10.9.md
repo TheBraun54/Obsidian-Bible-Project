@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I went unto the angel, saying unto him that he should give me the little book. And he saith unto me, Take it, and eat it up; and it shall make thy belly bitter, but in thy mouth it shall be sweet as honey.
+I went to the angel, telling him to give me the little book. He said to me, "Take it, and eat it up. It will make your stomach bitter, but in your mouth it will be as sweet as honey."

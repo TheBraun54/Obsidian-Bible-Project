@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he delivered them into the hand of his servants, every drove by itself, and said unto his servants, Pass over before me, and put a space betwixt drove and drove.
+He delivered them into the hands of his servants, every herd by itself, and said to his servants, "Pass over before me, and put a space between herd and herd."

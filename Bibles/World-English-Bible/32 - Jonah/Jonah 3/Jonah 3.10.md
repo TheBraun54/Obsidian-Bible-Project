@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God saw their works, that they turned from their evil way; and God repented of the evil which he said he would do unto them; and he did it not.
+God saw their works, that they turned from their evil way. God relented of the disaster which he said he would do to them, and he didn't do it.

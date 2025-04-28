@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one of the four living creatures gave unto the seven angels seven golden bowls full of the wrath of God, who liveth for ever and ever.
+One of the four living creatures gave to the seven angels seven golden bowls full of the wrath of God, who lives forever and ever.

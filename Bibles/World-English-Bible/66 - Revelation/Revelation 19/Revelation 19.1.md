@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After these things I heard as it were a great voice of a great multitude in heaven, saying, Hallelujah; Salvation, and glory, and power, belong to our God:
+After these things I heard something like a loud voice of a great multitude in heaven, saying, "Hallelujah! Salvation, power, and glory belong to our God:

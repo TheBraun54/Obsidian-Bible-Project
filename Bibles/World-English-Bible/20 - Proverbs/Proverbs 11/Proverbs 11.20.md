@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that are perverse in heart are an abomination to Jehovah; But such as are perfect in [their] way are his delight.
+Those who are perverse in heart are an abomination to Yahweh, but those whose ways are blameless are his delight.

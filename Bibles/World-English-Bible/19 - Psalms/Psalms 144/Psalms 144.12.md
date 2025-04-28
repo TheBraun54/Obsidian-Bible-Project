@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When our sons shall be as plants grown up in their youth, And our daughters as corner-stones hewn after the fashion of a palace;
+Then our sons will be like well-nurtured plants, our daughters like pillars carved to adorn a palace.

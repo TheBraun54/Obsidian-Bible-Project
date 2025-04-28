@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cast away from you all your transgressions, wherein ye have transgressed; and make you a new heart and a new spirit: for why will ye die, O house of Israel?
+Cast away from you all your transgressions, in which you have transgressed; and make yourself a new heart and a new spirit: for why will you die, house of Israel?

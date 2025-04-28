@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A prudent man concealeth knowledge; But the heart of fools proclaimeth foolishness.
+A prudent man keeps his knowledge, but the hearts of fools proclaim foolishness.

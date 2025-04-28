@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they smote all the souls that were therein with the edge of the sword, utterly destroying them; there was none left that breathed: and he burnt Hazor with fire.
+They struck all the souls who were in it with the edge of the sword, utterly destroying them. There was no one left who breathed. He burnt Hazor with fire.

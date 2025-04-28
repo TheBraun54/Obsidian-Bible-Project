@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the [evil] spirit from God was upon Saul, that David took the harp, and played with his hand: so Saul was refreshed, and was well, and the evil spirit departed from him.
+It happened, when the [evil] spirit from God was on Saul, that David took the harp, and played with his hand: so Saul was refreshed, and was well, and the evil spirit departed from him.

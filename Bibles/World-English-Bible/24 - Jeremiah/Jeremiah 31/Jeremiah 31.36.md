@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If these ordinances depart from before me, saith Jehovah, then the seed of Israel also shall cease from being a nation before me for ever.
+If these ordinances depart from before me, says Yahweh, then the seed of Israel also shall cease from being a nation before me forever.

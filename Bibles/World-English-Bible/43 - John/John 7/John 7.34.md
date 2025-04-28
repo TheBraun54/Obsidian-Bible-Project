@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall seek me, and shall not find me: and where I am, ye cannot come.
+You will seek me, and won't find me; and where I am, you can't come."

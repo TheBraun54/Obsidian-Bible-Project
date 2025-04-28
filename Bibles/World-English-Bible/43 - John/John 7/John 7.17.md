@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If any man willeth to do his will, he shall know of the teaching, whether it is of God, or [whether] I speak from myself.
+If anyone desires to do his will, he will know about the teaching, whether it is from God, or if I am speaking from myself.

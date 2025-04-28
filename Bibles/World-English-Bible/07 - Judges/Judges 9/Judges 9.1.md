@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abimelech the son of Jerubbaal went to Shechem unto his mother's brethren, and spake with them, and with all the family of the house of his mother's father, saying,
+Abimelech the son of Jerubbaal went to Shechem to his mother's brothers, and spoke with them, and with all the family of the house of his mother's father, saying,

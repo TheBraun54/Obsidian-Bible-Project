@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if his means suffice not for two turtle-doves, or two young pigeons, then he shall bring his oblation for that wherein he hath sinned, the tenth part of an ephah of fine flour for a sin-offering: he shall put no oil upon it, neither shall he put any frankincense thereon; for it is a sin-offering.
+"'But if he can't afford two turtledoves, or two young pigeons, then he shall bring his offering for that in which he has sinned, the tenth part of an ephah of fine flour for a sin offering. He shall put no oil on it, neither shall he put any frankincense on it, for it is a sin offering.

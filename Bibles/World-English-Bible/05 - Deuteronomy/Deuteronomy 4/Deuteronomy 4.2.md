@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall not add unto the word which I command you, neither shall ye diminish from it, that ye may keep the commandments of Jehovah your God which I command you.
+You shall not add to the word which I command you, neither shall you diminish from it, that you may keep the commandments of Yahweh your God which I command you.

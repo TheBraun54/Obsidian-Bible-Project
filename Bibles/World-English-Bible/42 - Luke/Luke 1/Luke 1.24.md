@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after these days Elisabeth his wife conceived; and she hid herself five months, saying,
+After these days Elizabeth, his wife, conceived, and she hid herself five months, saying,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O generation, see ye the word of Jehovah. Have I been a wilderness unto Israel? or a land of thick darkness? wherefore say my people, We are broken loose; we will come no more unto thee?
+Generation, consider the word of Yahweh. Have I been a wilderness to Israel? Or a land of thick darkness? Why do my people say, 'We have broken loose. We will come to you no more?'

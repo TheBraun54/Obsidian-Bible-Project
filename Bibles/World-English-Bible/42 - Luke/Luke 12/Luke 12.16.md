@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he spake a parable unto them, saying, The ground of a certain rich man brought forth plentifully:
+He spoke a parable to them, saying, "The ground of a certain rich man brought forth abundantly.

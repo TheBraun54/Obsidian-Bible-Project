@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The light shall be dark in his tent, And his lamp above him shall be put out.
+The light shall be dark in his tent. His lamp above him shall be put out.

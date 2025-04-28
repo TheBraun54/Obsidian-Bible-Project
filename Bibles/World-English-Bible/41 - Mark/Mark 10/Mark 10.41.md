@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the ten heard it, they began to be moved with indignation concerning James and John.
+When the ten heard it, they began to be indignant towards James and John.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah put a word in Balaam's mouth, and said, Return unto Balak, and thus thou shalt speak.
+Yahweh put a word in Balaam's mouth, and said, "Return to Balak, and thus you shall speak."

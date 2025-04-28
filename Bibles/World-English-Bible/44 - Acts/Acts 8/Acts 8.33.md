@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In his humiliation his judgment was taken away: His generation who shall declare? For his life is taken from the earth.
+In his humiliation, his judgment was taken away. Who will declare His generation? For his life is taken from the earth."

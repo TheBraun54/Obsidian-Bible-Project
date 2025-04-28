@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and delivered him out of all his afflictions, and gave him favor and wisdom before Pharaoh king of Egypt; and he made him governor over Egypt and all his house.
+and delivered him out of all his afflictions, and gave him favor and wisdom before Pharaoh, king of Egypt. He made him governor over Egypt and all his house.

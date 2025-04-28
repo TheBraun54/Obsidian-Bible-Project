@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In those days, and in that time, saith Jehovah, the children of Israel shall come, they and the children of Judah together; they shall go on their way weeping, and shall seek Jehovah their God.
+In those days, and in that time, says Yahweh, the children of Israel shall come, they and the children of Judah together; they shall go on their way weeping, and shall seek Yahweh their God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It pleased Darius to set over the kingdom a hundred and twenty satraps, who should be throughout the whole kingdom;
+It pleased Darius to set over the kingdom one hundred twenty satraps, who should be throughout the whole kingdom;

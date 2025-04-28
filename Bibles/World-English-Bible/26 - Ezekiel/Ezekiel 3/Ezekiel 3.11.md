@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And go, get thee to them of the captivity, unto the children of thy people, and speak unto them, and tell them, Thus saith the Lord Jehovah; whether they will hear, or whether they will forbear.
+Go to them of the captivity, to the children of your people, and speak to them, and tell them, Thus says the Lord Yahweh; whether they will hear, or whether they will forbear.

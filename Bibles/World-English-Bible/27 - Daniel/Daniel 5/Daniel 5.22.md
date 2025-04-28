@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou his son, O Belshazzar, hast not humbled thy heart, though thou knewest all this,
+You, his son, Belshazzar, have not humbled your heart, though you knew all this,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall bear no sin by reason of it, when ye have heaved from it the best thereof: and ye shall not profane the holy things of the children of Israel, that ye die not.
+You shall bear no sin by reason of it, when you have heaved from it its best: and you shall not profane the holy things of the children of Israel, that you not die.'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The steps of his strength shall be straitened, And his own counsel shall cast him down.
+The steps of his strength shall be shortened. His own counsel shall cast him down.

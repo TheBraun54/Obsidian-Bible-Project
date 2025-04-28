@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt cut the ram into its pieces, and wash its inwards, and its legs, and put them with its pieces, and with its head.
+You shall cut the ram into its pieces, and wash its innards, and its legs, and put them with its pieces, and with its head.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and didst bring forth thy people Israel out of the land of Egypt with signs, and with wonders, and with a strong hand, and with an outstretched arm, and with great terror;
+and brought forth your people Israel out of the land of Egypt with signs, and with wonders, and with a strong hand, and with an outstretched arm, and with great terror;

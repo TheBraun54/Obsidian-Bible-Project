@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every moving thing that liveth shall be food for you; as the green herb have I given you all.
+Every moving thing that lives will be food for you. As the green herb, I have given everything to you.

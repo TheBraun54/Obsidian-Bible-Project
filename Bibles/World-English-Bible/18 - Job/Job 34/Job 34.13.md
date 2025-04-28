@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who gave him a charge over the earth? Or who hath disposed the whole world?
+Who put him in charge of the earth? or who has appointed him over the whole world?

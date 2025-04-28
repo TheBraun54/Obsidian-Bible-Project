@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the statute of the law which Jehovah hath commanded, saying, Speak unto the children of Israel, that they bring thee a red heifer without spot, wherein is no blemish, [and] upon which never came yoke.
+"This is the statute of the law which Yahweh has commanded: Speak to the children of Israel, that they bring you a red heifer without spot, in which is no blemish, [and] on which never came yoke.

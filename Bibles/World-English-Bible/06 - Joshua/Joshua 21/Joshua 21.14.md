@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jattir with its suburbs, and Eshtemoa with its suburbs,
+Jattir with its suburbs, Eshtemoa with its suburbs,

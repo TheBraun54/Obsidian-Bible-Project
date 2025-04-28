@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the fifteenth day of the same month is the feast of unleavened bread unto Jehovah: seven days ye shall eat unleavened bread.
+On the fifteenth day of the same month is the feast of unleavened bread to Yahweh. Seven days you shall eat unleavened bread.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now there are diversities of gifts, but the same Spirit.
+Now there are various kinds of gifts, but the same Spirit.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the seventh angel sounded; and there followed great voices in heaven, and they said, The kingdom of the world is become [the kingdom] of out Lord, and of his Christ: and he shall reign for ever and ever.
+The seventh angel sounded, and great voices in heaven followed, saying, "The kingdom of the world has become the Kingdom of our Lord, and of his Christ. He will reign forever and ever!"

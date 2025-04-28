@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus rebuked him; and the demon went out of him: and the boy was cured from that hour.
+Jesus rebuked him, the demon went out of him, and the boy was cured from that hour.

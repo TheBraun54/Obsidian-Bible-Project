@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-lest coming suddenly he find you sleeping.
+lest coming suddenly he might find you sleeping.

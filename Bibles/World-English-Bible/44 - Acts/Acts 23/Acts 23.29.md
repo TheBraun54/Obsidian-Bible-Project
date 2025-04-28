@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whom I found to be accused about questions of their law, but to have nothing laid to his charge worthy of death or of bonds.
+I found him to be accused about questions of their law, but not to be charged with anything worthy of death or of imprisonment.

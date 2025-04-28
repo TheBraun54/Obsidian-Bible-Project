@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had mocked him, they took off from him the robe, and put on him his garments, and led him away to crucify him.
+When they had mocked him, they took the robe off of him, and put his clothes on him, and led him away to crucify him.

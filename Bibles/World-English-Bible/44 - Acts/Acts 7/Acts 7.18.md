@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-till there arose another king over Egypt, who knew not Joseph.
+until there arose a different king, who didn't know Joseph.

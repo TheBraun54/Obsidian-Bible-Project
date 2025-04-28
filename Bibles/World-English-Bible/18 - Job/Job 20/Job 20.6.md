@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though his height mount up to the heavens, And his head reach unto the clouds;
+Though his height mount up to the heavens, and his head reach to the clouds,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto his disciples, Therefore I say unto you, Be not anxious for [your] life, what ye shall eat; nor yet for your body, what ye shall put on.
+He said to his disciples, "Therefore I tell you, don't be anxious for your life, what you will eat, nor yet for your body, what you will wear.

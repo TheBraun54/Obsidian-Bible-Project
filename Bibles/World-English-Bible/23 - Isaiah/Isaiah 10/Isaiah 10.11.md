@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-shall I not, as I have done unto Samaria and her idols, so do to Jerusalem and her idols?
+shall I not, as I have done to Samaria and her idols, so do to Jerusalem and her idols?

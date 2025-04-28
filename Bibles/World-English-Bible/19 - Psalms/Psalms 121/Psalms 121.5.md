@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is thy keeper: Jehovah is thy shade upon thy right hand.
+Yahweh is your keeper. Yahweh is your shade on your right hand.

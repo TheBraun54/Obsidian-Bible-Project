@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David abode in the wilderness in the strongholds, and remained in the hill-country in the wilderness of Ziph. And Saul sought him every day, but God delivered him not into his hand.
+David stayed in the wilderness in the strongholds, and remained in the hill country in the wilderness of Ziph. Saul sought him every day, but God didn't deliver him into his hand.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit the king of the children of Ammon hearkened not unto the words of Jephthah which he sent him.
+However the king of the children of Ammon didn't listen to the words of Jephthah which he sent him.

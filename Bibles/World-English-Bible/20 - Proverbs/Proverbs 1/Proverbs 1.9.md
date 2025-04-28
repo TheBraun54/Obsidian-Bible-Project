@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they shall be a chaplet of grace unto thy head, And chains about thy neck.
+for they will be a garland to grace your head, and chains around your neck.

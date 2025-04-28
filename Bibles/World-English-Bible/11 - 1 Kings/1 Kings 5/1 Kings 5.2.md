@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Solomon sent to Hiram, saying,
+Solomon sent to Hiram, saying,

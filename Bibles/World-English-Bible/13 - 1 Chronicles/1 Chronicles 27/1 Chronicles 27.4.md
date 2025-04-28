@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And over the course of the second month was Dodai the Ahohite, and his course; and Mikloth the ruler: and in his course were twenty and four thousand.
+Over the division of the second month was Dodai the Ahohite, and his division; and Mikloth the ruler: and in his division were twenty-four thousand.

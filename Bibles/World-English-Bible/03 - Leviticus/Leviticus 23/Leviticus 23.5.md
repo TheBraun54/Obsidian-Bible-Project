@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the first month, on the fourteenth day of the month at even, is Jehovah's passover.
+In the first month, on the fourteenth day of the month in the evening, is Yahweh's Passover.

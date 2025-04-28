@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall die for lack of instruction; And in the greatness of his folly he shall go astray.
+He will die for lack of instruction. In the greatness of his folly, he will go astray.

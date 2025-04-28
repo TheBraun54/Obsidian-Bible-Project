@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sons of Jehieli: Zetham, and Joel his brother, over the treasures of the house of Jehovah.
+The sons of Jehieli: Zetham, and Joel his brother, over the treasures of the house of Yahweh.

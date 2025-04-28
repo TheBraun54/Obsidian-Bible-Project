@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If I speak with the tongues of men and of angels, but have not love, I am become sounding brass, or a clanging cymbal.
+If I speak with the languages of men and of angels, but don't have love, I have become sounding brass, or a clanging cymbal.

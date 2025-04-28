@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in like manner the second also, and the third, unto the seventh.
+In the same way, the second also, and the third, to the seventh.

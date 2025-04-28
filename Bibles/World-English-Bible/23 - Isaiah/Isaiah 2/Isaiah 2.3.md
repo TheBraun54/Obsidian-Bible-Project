@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And many peoples shall go and say, Come ye, and let us go up to the mountain of Jehovah, to the house of the God of Jacob; and he will teach us of his ways, and we will walk in his paths: for out of Zion shall go forth [ the law, and the word of Jehovah from Jerusalem.
+Many peoples shall go and say, "Come, let's go up to the mountain of Yahweh, to the house of the God of Jacob; and he will teach us of his ways, and we will walk in his paths." For out of Zion the law shall go forth, and the word of Yahweh from Jerusalem.

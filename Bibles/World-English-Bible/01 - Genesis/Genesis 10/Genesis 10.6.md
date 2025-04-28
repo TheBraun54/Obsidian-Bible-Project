@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Ham: Cush, and Mizraim, and Put, and Canaan.
+The sons of Ham: Cush, Mizraim, Put, and Canaan.

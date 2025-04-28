@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Insomuch that we exhorted Titus, that as he made a beginning before, so he would also complete in you this grace also.
+So we urged Titus, that as he made a beginning before, so he would also complete in you this grace.

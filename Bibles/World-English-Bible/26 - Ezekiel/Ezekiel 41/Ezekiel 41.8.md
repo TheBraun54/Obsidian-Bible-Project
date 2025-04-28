@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I saw also that the house had a raised basement round about: the foundations of the side-chambers were a full reed of six great cubits.
+I saw also that the house had a raised base all around: the foundations of the side rooms were a full reed of six great cubits.

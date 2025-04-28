@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sun ariseth, they get them away, And lay them down in their dens.
+The sun rises, and they steal away, and lay down in their dens.

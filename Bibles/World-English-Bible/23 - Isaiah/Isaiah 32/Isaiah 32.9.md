@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rise up, ye women that are at ease, [and] hear my voice; ye careless daughters, give ear unto my speech.
+Rise up, you women who are at ease! Hear my voice! You careless daughters, give ear to my speech!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A false witness that uttereth lies, And he that soweth discord among brethren.
+a false witness who utters lies, and he who sows discord among brothers.

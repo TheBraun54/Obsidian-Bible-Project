@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the four wheels were underneath the panels; and the axletrees of the wheels were in the base: and the height of a wheel was a cubit and half a cubit.
+The four wheels were underneath the panels; and the axles of the wheels were in the base: and the height of a wheel was a cubit and half a cubit.

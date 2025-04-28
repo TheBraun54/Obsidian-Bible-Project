@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O my soul, come not thou into their council; Unto their assembly, my glory, be not thou united; For in their anger they slew a man, And in their self-will they hocked [ an ox.
+My soul, don't come into their council. My glory, don't be united to their assembly; for in their anger they killed men. In their self-will they hamstrung cattle.

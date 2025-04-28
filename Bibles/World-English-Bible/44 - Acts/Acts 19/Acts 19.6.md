@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Paul had laid his hands upon them, the Holy Spirit came on them; and they spake with tongues, and prophesied.
+When Paul had laid his hands on them, the Holy Spirit came on them, and they spoke with other languages and prophesied.

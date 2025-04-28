@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they told him, saying, John the Baptist; and others, Elijah; but others, One of the prophets.
+They told him, "John the Baptizer, and others say Elijah, but others: one of the prophets."

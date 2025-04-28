@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Jehovah raised them up judges, then Jehovah was with the judge, and saved them out of the hand of their enemies all the days of the judge: for it repented Jehovah because of their groaning by reason of them that oppressed them and vexed them.
+When Yahweh raised them up judges, then Yahweh was with the judge, and saved them out of the hand of their enemies all the days of the judge: for it grieved Yahweh because of their groaning by reason of those who oppressed them and troubled them.

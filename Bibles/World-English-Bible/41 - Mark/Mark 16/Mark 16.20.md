@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went forth, and preached everywhere, the Lord working with them, and confirming the word by the signs that followed. Amen.
+They went out, and preached everywhere, the Lord working with them, and confirming the word by the signs that followed. Amen.

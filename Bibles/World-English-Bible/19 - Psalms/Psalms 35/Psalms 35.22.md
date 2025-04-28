@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast seen it, O Jehovah; Keep not silence: O Lord, be not far from me.
+You have seen it, Yahweh. Don't keep silent. Lord, don't be far from me.

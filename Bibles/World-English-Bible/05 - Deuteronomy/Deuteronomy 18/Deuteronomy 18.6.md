@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a Levite come from any of thy gates out of all Israel, where he sojourneth, and come with all the desire of his soul unto the place which Jehovah shall choose;
+If a Levite comes from any of your gates out of all Israel, where he lives as a foreigner, and comes with all the desire of his soul to the place which Yahweh shall choose;

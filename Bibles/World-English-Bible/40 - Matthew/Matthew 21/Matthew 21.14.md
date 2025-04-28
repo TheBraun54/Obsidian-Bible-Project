@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the blind and the lame came to him in the temple; and he healed them.
+The blind and the lame came to him in the temple, and he healed them.

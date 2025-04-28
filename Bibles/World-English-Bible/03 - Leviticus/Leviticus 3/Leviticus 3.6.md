@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if his oblation for a sacrifice of peace-offerings unto Jehovah be of the flock; male or female, he shall offer it without blemish.
+"'If his offering for a sacrifice of peace offerings to Yahweh is from the flock; male or female, he shall offer it without blemish.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sick man answered him, Sir, I have no man, when the water is troubled, to put me into the pool: but while I am coming, another steppeth down before me.
+The sick man answered him, "Sir, I have no one to put me into the pool when the water is stirred up, but while I'm coming, another steps down before me."

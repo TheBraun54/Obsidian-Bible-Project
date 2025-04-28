@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Stripes that wound cleanse away evil; And strokes [reach] the innermost parts.
+Wounding blows cleanse away evil, and beatings purge the innermost parts.

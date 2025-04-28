@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he, knowing their thoughts, said unto them, Every kingdom divided against itself is brought to desolation; and a house [divided] against a house falleth.
+But he, knowing their thoughts, said to them, "Every kingdom divided against itself is brought to desolation. A house divided against itself falls.

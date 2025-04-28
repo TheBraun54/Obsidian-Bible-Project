@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he dreamed; and behold, a ladder set up on the earth, and the top of it reached to heaven; and, behold, the angels of God ascending and descending on it.
+He dreamed. Behold, a stairway set upon the earth, and its top reached to heaven. Behold, the angels of God ascending and descending on it.

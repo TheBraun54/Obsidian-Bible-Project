@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Rebekah spake unto Jacob her son, saying, Behold, I heard thy father speak unto Esau thy brother, saying,
+Rebekah spoke to Jacob her son, saying, "Behold, I heard your father speak to Esau your brother, saying,

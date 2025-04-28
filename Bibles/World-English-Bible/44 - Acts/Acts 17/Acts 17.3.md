@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-opening and alleging that it behooved the Christ to suffer, and to rise again from the dead; and that this Jesus, whom, [said he], I proclaim unto you, is the Christ.
+explaining and demonstrating that the Christ had to suffer and rise again from the dead, and saying, "This Jesus, whom I proclaim to you, is the Christ."

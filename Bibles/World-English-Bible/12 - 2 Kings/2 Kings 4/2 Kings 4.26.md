@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-run, I pray thee, now to meet her, and say unto her, Is it well with thee? is it well with thy husband? is it well with the child? And she answered, It is well.
+Please run now to meet her, and ask her, 'Is it well with you? Is it well with your husband? Is it well with the child?'" She answered, "It is well."

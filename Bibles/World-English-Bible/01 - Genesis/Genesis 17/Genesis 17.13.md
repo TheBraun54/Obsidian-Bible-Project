@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that is born in thy house, and he that is bought with thy money, must needs be circumcised: and my covenant shall be in your flesh for an everlasting covenant.
+He who is born in your house, and he who is bought with your money, must be circumcised. My covenant will be in your flesh for an everlasting covenant.

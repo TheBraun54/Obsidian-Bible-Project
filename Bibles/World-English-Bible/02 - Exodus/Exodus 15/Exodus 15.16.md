@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Terror and dread falleth upon them; By the greatness of thine arm they are as still as a stone; Till thy people pass over, O Jehovah, Till the people pass over that thou hast purchased.
+Terror and dread falls on them. By the greatness of your arm they are as still as a stone-- until your people pass over, Yahweh, until the people pass over who you have purchased.

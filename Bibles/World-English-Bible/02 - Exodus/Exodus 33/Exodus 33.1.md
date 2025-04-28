@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah spake unto Moses, Depart, go up hence, thou and the people that thou hast brought up out of the land of Egypt, unto the land of which I sware unto Abraham, to Isaac, and to Jacob, saying, Unto thy seed will I give it:
+Yahweh spoke to Moses, "Depart, go up from here, you and the people that you have brought up out of the land of Egypt, to the land of which I swore to Abraham, to Isaac, and to Jacob, saying, 'I will give it to your seed.'

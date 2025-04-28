@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph died, and all his brethren, and all that generation.
+Joseph died, as did all his brothers, and all that generation.

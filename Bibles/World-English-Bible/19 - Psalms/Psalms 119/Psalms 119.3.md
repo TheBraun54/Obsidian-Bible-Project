@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, they do no unrighteousness; They walk in his ways.
+Yes, they do nothing wrong. They walk in his ways.

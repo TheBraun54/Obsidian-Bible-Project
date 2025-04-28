@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I say unto him, My lord, thou knowest. And he said to me, These are they that come out of the great tribulation, and they washed their robes, and made them white in the blood of the Lamb. [
+I told him, "My lord, you know." He said to me, "These are those who came out of the great tribulation. They washed their robes, and made them white in the Lamb's blood.

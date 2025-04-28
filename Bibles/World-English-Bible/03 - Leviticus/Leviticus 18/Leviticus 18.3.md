@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After the doings of the land of Egypt, wherein ye dwelt, shall ye not do: and after the doings of the land of Canaan, whither I bring you, shall ye not do; neither shall ye walk in their statutes.
+You shall not do as they do in the land of Egypt, where you lived: and you shall not do as they do in the land of Canaan, where I am bringing you; neither shall you walk in their statutes.

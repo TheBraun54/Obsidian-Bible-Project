@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If ye then, being evil, know how to give good gifts unto your children, how much more shall your Father who is in heaven give good things to them that ask him?
+If you then, being evil, know how to give good gifts to your children, how much more will your Father who is in heaven give good things to those who ask him!

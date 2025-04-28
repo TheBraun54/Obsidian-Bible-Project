@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cause me to hear thy lovingkindness in the morning; For in thee do I trust: Cause me to know the way wherein I should walk; For I lift up my soul unto thee.
+Cause me to hear your loving kindness in the morning, for I trust in you. Cause me to know the way in which I should walk, for I lift up my soul to you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At thy rebuke, O God of Jacob, Both chariot and horse are cast into a deep sleep.
+At your rebuke, God of Jacob, both chariot and horse are cast into a deep sleep.

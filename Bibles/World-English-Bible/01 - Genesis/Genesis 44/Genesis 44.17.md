@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Far be it from me that I should do so: the man in whose hand the cup is found, he shall be my bondman; but as for you, get you up in peace unto your father.
+He said, "Far be it from me that I should do so. The man in whose hand the cup is found, he will be my bondservant; but as for you, go up in peace to your father."

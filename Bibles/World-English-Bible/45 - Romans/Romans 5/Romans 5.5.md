@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and hope putteth not to shame; because the love of God hath been shed abroad in our hearts through the Holy Spirit which was given unto us.
+and hope doesn't disappoint us, because God's love has been poured out into our hearts through the Holy Spirit who was given to us.

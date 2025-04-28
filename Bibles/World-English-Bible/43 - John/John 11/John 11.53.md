@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So from that day forth they took counsel that they might put him to death.
+So from that day forward they took counsel that they might put him to death.

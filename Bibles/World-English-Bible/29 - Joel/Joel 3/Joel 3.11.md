@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Haste ye, and come, all ye nations round about, and gather yourselves together: thither cause thy mighty ones to come down, O Jehovah.
+Hurry and come, all you surrounding nations, and gather yourselves together." Cause your mighty ones to come down there, Yahweh.

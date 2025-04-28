@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said unto him, How canst thou say, I love thee, when thy heart is not with me? thou hast mocked me these three times, and hast not told me wherein thy great strength lieth.
+She said to him, "How can you say, 'I love you,' when your heart is not with me? You have mocked me these three times, and have not told me where your great strength lies."

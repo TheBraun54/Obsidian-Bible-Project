@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be ye angry, and sin not: let not the sun go down upon your wrath:
+"Be angry, and don't sin." Don't let the sun go down on your wrath,

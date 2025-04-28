@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went through the region of Phrygia and Galatia, having been forbidden of the Holy Spirit to speak the word in Asia;
+When they had gone through the region of Phrygia and Galatia, they were forbidden by the Holy Spirit to speak the word in Asia.

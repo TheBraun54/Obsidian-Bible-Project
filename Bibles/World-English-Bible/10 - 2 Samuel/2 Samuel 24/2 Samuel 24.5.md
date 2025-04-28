@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they passed over the Jordan, and encamped in Aroer, on the right side of the city that is in the middle of the valley of Gad, and unto Jazer:
+They passed over the Jordan, and encamped in Aroer, on the right side of the city that is in the middle of the valley of Gad, and to Jazer:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he answered them, He that made me whole, the same said unto me, Take up thy bed, and walk.
+He answered them, "He who made me well, the same said to me, 'Take up your mat, and walk.'"

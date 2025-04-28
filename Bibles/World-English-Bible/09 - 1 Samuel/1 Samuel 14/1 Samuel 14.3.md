@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Ahijah, the son of Ahitub, Ichabod's brother, the son of Phinehas, the son of Eli, the priest of Jehovah in Shiloh, wearing an ephod. And the people knew not that Jonathan was gone.
+and Ahijah, the son of Ahitub, Ichabod's brother, the son of Phinehas, the son of Eli, the priest of Yahweh in Shiloh, wearing an ephod. The people didn't know that Jonathan was gone.

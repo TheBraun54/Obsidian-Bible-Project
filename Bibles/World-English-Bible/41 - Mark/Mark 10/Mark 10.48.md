@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And many rebuked him, that he should hold his peace: but he cried out the more a great deal, Thou son of David, have mercy on me.
+Many rebuked him, that he should be quiet, but he cried out much more, "You son of David, have mercy on me!"

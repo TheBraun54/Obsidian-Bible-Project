@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I speak the things which I have seen with [my] Father: and ye also do the things which ye heard from [your] father.
+I say the things which I have seen with my Father; and you also do the things which you have seen with your father."

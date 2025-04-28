@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lo, I will bring a nation upon you from far, O house of Israel, saith Jehovah: it is a mighty nation, it is an ancient nation, a nation whose language thou knowest not, neither understandest what they say.
+Behold, I will bring a nation on you from far, house of Israel," says Yahweh. "It is a mighty nation. It is an ancient nation, a nation whose language you don't know, neither understand what they say.

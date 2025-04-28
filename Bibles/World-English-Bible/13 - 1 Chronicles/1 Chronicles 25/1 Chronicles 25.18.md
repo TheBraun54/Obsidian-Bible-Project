@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the eleventh to Azarel, his sons and his brethren, twelve:
+the eleventh to Azarel, his sons and his brothers, twelve:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For by thy words thou shalt be justified, and by thy words thou shalt be condemned.
+For by your words you will be justified, and by your words you will be condemned."

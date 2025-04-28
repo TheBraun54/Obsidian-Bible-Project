@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he cried unto the man of God that came from Judah, saying, Thus saith Jehovah, Forasmuch as thou hast been disobedient unto the mouth of Jehovah, and hast not kept the commandment which Jehovah thy God commanded thee,
+and he cried to the man of God who came from Judah, saying, "Thus says Yahweh, 'Because you have been disobedient to the mouth of Yahweh, and have not kept the commandment which Yahweh your God commanded you,

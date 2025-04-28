@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as they tarried there many days, Festus laid Paul's case before the King, saying, There is a certain man left a prisoner by Felix;
+As he stayed there many days, Festus laid Paul's case before the king, saying, "There is a certain man left a prisoner by Felix;

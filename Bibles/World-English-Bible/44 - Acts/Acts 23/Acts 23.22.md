@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the chief captain let the young man go, charging him, Tell no man that thou hast signified these things to me.
+So the commanding officer let the young man go, charging him, "Tell no one that you have revealed these things to me."

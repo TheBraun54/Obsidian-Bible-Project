@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Deliver me from all my transgressions: Make me not the reproach of the foolish.
+Deliver me from all my transgressions. Don't make me the reproach of the foolish.

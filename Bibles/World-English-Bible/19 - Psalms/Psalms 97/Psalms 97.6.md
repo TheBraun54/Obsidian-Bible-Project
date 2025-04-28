@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The heavens declare his righteousness, And all the peoples have seen his glory.
+The heavens declare his righteousness. All the peoples have seen his glory.

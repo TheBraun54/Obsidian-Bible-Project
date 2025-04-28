@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-preaching boldly in the name of the Lord: and he spake and disputed against the Grecian Jews; but they were seeking to kill him.
+preaching boldly in the name of the Lord Jesus. He spoke and disputed against the Hellenists, but they were seeking to kill him.

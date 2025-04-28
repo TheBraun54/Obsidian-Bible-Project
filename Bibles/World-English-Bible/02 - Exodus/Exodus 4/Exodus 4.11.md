@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto him, Who hath made man's mouth? Or who maketh [a man] dumb, or deaf, or seeing, or blind? is it not I, Jehovah?
+Yahweh said to him, "Who made man's mouth? Or who makes one mute, or deaf, or seeing, or blind? Isn't it I, Yahweh?

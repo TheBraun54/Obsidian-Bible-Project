@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that lie upon beds of ivory, and stretch themselves upon their couches, and eat the lambs out of the flock, and the calves out of the midst of the stall;
+Who lie on beds of ivory, and stretch themselves on their couches, and eat the lambs out of the flock, and the calves out of the midst of the stall;

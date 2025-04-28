@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But unto us God revealed [them] through the Spirit: for the Spirit searcheth all things, yea, the deep things of God.
+But to us, God revealed them through the Spirit. For the Spirit searches all things, yes, the deep things of God.

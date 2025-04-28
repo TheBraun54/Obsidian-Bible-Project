@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when Paul was about to open his mouth, Gallio said unto the Jews, If indeed it were a matter of wrong or of wicked villany, O ye Jews, reason would that I should bear with you:
+But when Paul was about to open his mouth, Gallio said to the Jews, "If indeed it were a matter of wrong or of wicked crime, you Jews, it would be reasonable that I should bear with you;

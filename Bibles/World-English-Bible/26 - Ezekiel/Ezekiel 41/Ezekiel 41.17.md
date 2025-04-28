@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to [the space] above the door, even unto the inner house, and without, and by all the wall round about within and without, by measure.
+to [the space] above the door, even to the inner house, and outside, and by all the wall all around inside and outside, by measure.

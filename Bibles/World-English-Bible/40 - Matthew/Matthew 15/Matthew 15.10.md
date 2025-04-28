@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he called to him the multitude, and said unto them, Hear, and understand:
+He summoned the multitude, and said to them, "Hear, and understand.

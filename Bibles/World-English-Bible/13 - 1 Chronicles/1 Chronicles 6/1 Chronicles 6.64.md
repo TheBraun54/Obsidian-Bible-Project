@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel gave to the Levites the cities with their suburbs.
+The children of Israel gave to the Levites the cities with their suburbs.

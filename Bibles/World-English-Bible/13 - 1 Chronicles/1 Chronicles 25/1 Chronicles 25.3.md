@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of Jeduthun; the sons of Jeduthun: Gedaliah, and Zeri, and Jeshaiah, Hashabiah, and Mattithiah, six, under the hands of their father Jeduthun with the harp, who prophesied in giving thanks and praising Jehovah.
+Of Jeduthun; the sons of Jeduthun: Gedaliah, and Zeri, and Jeshaiah, Hashabiah, and Mattithiah, six, under the hands of their father Jeduthun with the harp, who prophesied in giving thanks and praising Yahweh.

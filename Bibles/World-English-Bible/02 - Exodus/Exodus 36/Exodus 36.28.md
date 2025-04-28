@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And two boards made he for the corners of the tabernacle in the hinder part.
+He made two boards for the corners of the tabernacle in the far part.

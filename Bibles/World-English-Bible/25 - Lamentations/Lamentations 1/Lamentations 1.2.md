@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She weepeth sore in the night, and her tears are on her cheeks; Among all her lovers she hath none to comfort her: All her friends have dealt treacherously with her; they are become her enemies.
+She weeps bitterly in the night, and her tears are on her cheeks; among all her lovers she has none to comfort her: All her friends have dealt treacherously with her; they are become her enemies.

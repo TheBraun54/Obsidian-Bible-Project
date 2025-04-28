@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as the lightning cometh forth from the east, and is seen even unto the west; so shall be the coming of the Son of man.
+For as the lightning flashes from the east, and is seen even to the west, so will be the coming of the Son of Man.

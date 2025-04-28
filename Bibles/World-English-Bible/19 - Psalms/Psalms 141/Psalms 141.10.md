@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the wicked fall into their own nets, Whilst that I withal escape.
+Let the wicked fall together into their own nets, while I pass by. A contemplation by David, when he was in the cave. A Prayer.

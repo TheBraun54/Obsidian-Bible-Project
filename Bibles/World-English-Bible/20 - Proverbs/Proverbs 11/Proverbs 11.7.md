@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When a wicked man dieth, [his] expectation shall perish; And the hope of iniquity perisheth.
+When a wicked man dies, hope perishes, and expectation of power comes to nothing.

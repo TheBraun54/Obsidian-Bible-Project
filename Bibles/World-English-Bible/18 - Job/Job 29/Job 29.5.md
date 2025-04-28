@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the Almighty was yet with me, And my children were about me;
+when the Almighty was yet with me, and my children were around me,

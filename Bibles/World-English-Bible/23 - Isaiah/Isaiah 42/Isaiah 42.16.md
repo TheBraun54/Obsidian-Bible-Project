@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will bring the blind by a way that they know not; in paths that they know not will I lead them; I will make darkness light before them, and crooked places straight. These things will I do, and I will not forsake them.
+I will bring the blind by a way that they don't know. I will lead them in paths that they don't know. I will make darkness light before them, and crooked places straight. I will do these things, and I will not forsake them.

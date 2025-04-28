@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So shall I observe thy law continually For ever and ever.
+So I will obey your law continually, forever and ever.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For your hands are defiled with blood, and your fingers with iniquity; your lips have spoken lies, your tongue muttereth wickedness.
+For your hands are defiled with blood, and your fingers with iniquity; your lips have spoken lies, your tongue mutters wickedness.

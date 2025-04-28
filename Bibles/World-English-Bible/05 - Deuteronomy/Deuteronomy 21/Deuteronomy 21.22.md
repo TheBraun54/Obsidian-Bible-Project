@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man have committed a sin worthy of death, and he be put to death, and thou hang him on a tree;
+If a man have committed a sin worthy of death, and he be put to death, and you hang him on a tree;

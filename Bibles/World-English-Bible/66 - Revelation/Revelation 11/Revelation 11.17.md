@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, We give thee thanks, O Lord God, the Almighty, who art and who wast; because thou hast taken thy great power, and didst reign.
+saying: "We give you thanks, Lord God, the Almighty, the one who is and who was; because you have taken your great power, and reigned.

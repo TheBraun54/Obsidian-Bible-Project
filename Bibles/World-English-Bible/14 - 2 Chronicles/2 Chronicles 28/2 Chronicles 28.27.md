@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ahaz slept with his fathers, and they buried him in the city, even in Jerusalem; for they brought him not into the sepulchres of the kings of Israel: and Hezekiah his son reigned in his stead.
+Ahaz slept with his fathers, and they buried him in the city, even in Jerusalem; for they didn't bring him into the tombs of the kings of Israel: and Hezekiah his son reigned in his place.

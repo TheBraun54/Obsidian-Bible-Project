@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for the sixteenth to Hananiah, his sons and his brethren, twelve:
+for the sixteenth to Hananiah, his sons and his brothers, twelve:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Am I a sea, or a sea-monster, That thou settest a watch over me?
+Am I a sea, or a sea monster, that you put a guard over me?

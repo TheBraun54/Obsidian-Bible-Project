@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And levy a tribute unto Jehovah of the men of war that went out to battle: one soul of five hundred, [both] of the persons, and of the oxen, and of the asses, and of the flocks:
+Levy a tribute to Yahweh of the men of war who went out to battle: one soul of five hundred, [both] of the persons, and of the cattle, and of the donkeys, and of the flocks:

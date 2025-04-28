@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith Jehovah concerning the prophets that prophesy in my name, and I sent them not, yet they say, Sword and famine shall not be in this land: By sword and famine shall those prophets be consumed.
+Therefore thus says Yahweh concerning the prophets who prophesy in my name, and I didn't send them, yet they say, Sword and famine shall not be in this land: By sword and famine shall those prophets be consumed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So stood the two companies of them that gave thanks in the house of God, and I, and the half of the rulers with me;
+So stood the two companies of those who gave thanks in the house of God, and I, and the half of the rulers with me;

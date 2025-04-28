@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Thy brother came with guile, and hath taken away thy blessing.
+He said, "Your brother came with deceit, and has taken away your blessing."

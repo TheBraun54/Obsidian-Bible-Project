@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king turned his face about, and blessed all the assembly of Israel: and all the assembly of Israel stood.
+The king turned his face about, and blessed all the assembly of Israel: and all the assembly of Israel stood.

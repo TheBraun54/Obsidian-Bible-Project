@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Lord's servant must not strive, but be gentle towards all, apt to teach, forbearing,
+The Lord's servant must not quarrel, but be gentle towards all, able to teach, patient,

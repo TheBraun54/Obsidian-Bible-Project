@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the fifteenth year of Amaziah the son of Joash king of Judah Jeroboam the son of Joash king of Israel began to reign in Samaria, [and reigned] forty and one years.
+In the fifteenth year of Amaziah the son of Joash king of Judah Jeroboam the son of Joash king of Israel began to reign in Samaria, [and reigned] forty-one years.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the ways of man are before the eyes of Jehovah; And he maketh level all his paths.
+For the ways of man are before the eyes of Yahweh. He examines all his paths.

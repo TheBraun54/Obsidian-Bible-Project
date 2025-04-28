@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Great are thy tender mercies, O Jehovah: Quicken me according to thine ordinances.
+Great are your tender mercies, Yahweh. Revive me according to your ordinances.

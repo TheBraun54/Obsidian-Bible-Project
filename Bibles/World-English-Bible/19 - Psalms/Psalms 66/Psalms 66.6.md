@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He turned the sea into dry land; They went through the river on foot: There did we rejoice in him.
+He turned the sea into dry land. They went through the river on foot. There, we rejoiced in him.

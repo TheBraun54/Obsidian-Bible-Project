@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his brethren said to him, Shalt thou indeed reign over us? or shalt thou indeed have dominion over us? And they hated him yet the more for his dreams, and for his words.
+His brothers said to him, "Will you indeed reign over us? Or will you indeed have dominion over us?" They hated him all the more for his dreams and for his words.

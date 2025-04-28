@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cast not away therefore your boldness, which hath great recompense of reward.
+Therefore don't throw away your boldness, which has a great reward.

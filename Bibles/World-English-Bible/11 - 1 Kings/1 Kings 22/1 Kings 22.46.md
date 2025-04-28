@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the remnant of the sodomites, that remained in the days of his father Asa, he put away out of the land.
+The remnant of the sodomites, that remained in the days of his father Asa, he put away out of the land.

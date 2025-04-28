@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Maacah, Caleb's concubine, bare Sheber and Tirhanah.
+Maacah, Caleb's concubine, bore Sheber and Tirhanah.

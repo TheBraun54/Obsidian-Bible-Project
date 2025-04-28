@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but the hill-country shall be thine; for though it is a forest, thou shalt cut it down, and the goings out thereof shall be thine; for thou shalt drive out the Canaanites, though they have chariots of iron, and though they are strong.
+but the hill country shall be yours. Although it is a forest, you shall cut it down, and it's farthest extent shall be yours; for you shall drive out the Canaanites, though they have chariots of iron, and though they are strong."

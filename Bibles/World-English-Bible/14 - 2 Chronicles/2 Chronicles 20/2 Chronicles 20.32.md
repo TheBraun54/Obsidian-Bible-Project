@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he walked in the way of Asa his father, and turned not aside from it, doing that which was right in the eyes of Jehovah.
+He walked in the way of Asa his father, and didn't turn aside from it, doing that which was right in the eyes of Yahweh.

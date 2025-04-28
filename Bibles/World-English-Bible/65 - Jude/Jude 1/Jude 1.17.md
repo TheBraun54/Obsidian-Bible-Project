@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye, beloved, remember ye the words which have been spoken before by the apostles of our Lord Jesus Christ;
+But you, beloved, remember the words which have been spoken before by the apostles of our Lord Jesus Christ.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Your glorying is not good. Know ye not that a little leaven leaveneth the whole lump?
+Your boasting is not good. Don't you know that a little yeast leavens the whole lump?

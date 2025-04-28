@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that putteth not out his money to interest, Nor taketh reward against the innocent. He that doeth these things shall never be moved.
+he who doesn't lend out his money for usury, nor take a bribe against the innocent. He who does these things shall never be shaken. A Poem by David.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am small and despised; [Yet] do I not forget thy precepts.
+I am small and despised. I don't forget your precepts.

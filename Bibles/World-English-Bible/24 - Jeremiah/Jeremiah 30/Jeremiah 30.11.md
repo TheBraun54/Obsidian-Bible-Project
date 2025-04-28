@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I am with thee, saith Jehovah, to save thee: for I will make a full end of all the nations whither I have scattered thee, but I will not make a full end of thee; but I will correct thee in measure, and will in no wise leave thee unpunished.
+For I am with you, says Yahweh, to save you: for I will make a full end of all the nations where I have scattered you, but I will not make a full end of you; but I will correct you in measure, and will in no way leave you unpunished.

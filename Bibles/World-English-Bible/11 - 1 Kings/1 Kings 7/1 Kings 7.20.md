@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there were capitals above also upon the two pillars, close by the belly which was beside the network: and the pomegranates were two hundred, in rows round about upon the other capital.
+There were capitals above also on the two pillars, close by the belly which was beside the network: and the pomegranates were two hundred, in rows around on the other capital.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, and say unto them, If any man's wife go aside, and commit a trespass against him,
+"Speak to the children of Israel, and tell them: 'If any man's wife goes astray, and is unfaithful to him,

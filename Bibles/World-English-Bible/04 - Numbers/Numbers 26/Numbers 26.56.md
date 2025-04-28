@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-According to the lot shall their inheritance be divided between the more and the fewer.
+According to the lot shall their inheritance be divided between the more and the fewer."

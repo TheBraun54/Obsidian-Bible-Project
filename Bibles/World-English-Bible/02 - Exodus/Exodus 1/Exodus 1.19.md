@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the midwives said unto Pharaoh, Because the Hebrew women are not as the Egyptian women; for they are lively, and are delivered ere the midwife come unto them.
+The midwives said to Pharaoh, "Because the Hebrew women aren't like the Egyptian women; for they are vigorous, and give birth before the midwife comes to them."

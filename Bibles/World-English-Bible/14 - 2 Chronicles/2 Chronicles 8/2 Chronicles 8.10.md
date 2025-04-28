@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these were the chief officers of king Solomon, even two hundred and fifty, that bare rule over the people.
+These were the chief officers of king Solomon, even two-hundred fifty, who ruled over the people.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Avoid it, pass not by it; Turn from it, and pass on.
+Avoid it, and don't pass by it. Turn from it, and pass on.

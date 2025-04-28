@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I will warn you whom ye shall fear: Fear him, who after he hath killed hath power to cast into hell; yea, I say unto you, Fear him.
+But I will warn you whom you should fear. Fear him, who after he has killed, has power to cast into Gehenna. Yes, I tell you, fear him.

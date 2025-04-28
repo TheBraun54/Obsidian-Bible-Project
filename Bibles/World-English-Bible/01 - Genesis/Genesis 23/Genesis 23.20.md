@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the field, and the cave that is therein, were made sure unto Abraham for a possession of a burying-place by the children of Heth.
+The field, and the cave that is in it, were deeded to Abraham for a possession of a burying place by the children of Heth.

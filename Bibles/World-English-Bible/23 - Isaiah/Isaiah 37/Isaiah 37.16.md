@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah of hosts, the God of Israel, that sittest [above] the cherubim, thou art the God, even thou alone, of all the kingdoms of the earth; thou hast made heaven and earth.
+"Yahweh of Armies, the God of Israel, who is enthroned among the cherubim, you are the God, even you alone, of all the kingdoms of the earth. You have made heaven and earth.

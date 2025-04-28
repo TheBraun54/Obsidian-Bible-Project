@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Make haste to answer me, O Jehovah; My spirit faileth: Hide not thy face from me, Lest I become like them that go down into the pit.
+Hurry to answer me, Yahweh. My spirit fails. Don't hide your face from me, so that I don't become like those who go down into the pit.

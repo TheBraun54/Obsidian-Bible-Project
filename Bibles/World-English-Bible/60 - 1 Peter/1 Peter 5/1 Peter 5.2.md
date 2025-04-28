@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Tend the flock of God which is among you, exercising the oversight, not of constraint, but willingly, according to [the will of] God; nor yet for filthy lucre, but of a ready mind;
+Shepherd the flock of God which is among you, exercising the oversight, not under compulsion, but voluntarily, not for dishonest gain, but willingly;

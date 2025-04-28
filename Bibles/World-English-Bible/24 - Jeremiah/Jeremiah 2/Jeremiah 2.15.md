@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The young lions have roared upon him, and yelled; and they have made his land waste: his cities are burned up, without inhabitant.
+The young lions have roared at him, and yelled. They have made his land waste. His cities are burned up, without inhabitant.

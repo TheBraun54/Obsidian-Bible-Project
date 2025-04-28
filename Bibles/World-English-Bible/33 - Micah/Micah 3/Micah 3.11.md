@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The heads thereof judge for reward, and the priests thereof teach for hire, and the prophets thereof divine for money: yet they lean upon Jehovah, and say, Is not Jehovah in the midst of us? no evil shall come upon us.
+Her leaders judge for bribes, and her priests teach for a price, and her prophets of it tell fortunes for money: yet they lean on Yahweh, and say, "Isn't Yahweh in the midst of us? No disaster will come on us."

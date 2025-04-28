@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But this spake he of the Spirit, which they that believed on him were to receive: for the Spirit was not yet [given] ; because Jesus was not yet glorified.
+But he said this about the Spirit, which those believing in him were to receive. For the Holy Spirit was not yet given, because Jesus wasn't yet glorified.

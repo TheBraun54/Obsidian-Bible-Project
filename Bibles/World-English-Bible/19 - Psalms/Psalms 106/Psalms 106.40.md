@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore was the wrath of Jehovah kindled against his people, And he abhorred his inheritance.
+Therefore Yahweh burned with anger against his people. He abhorred his inheritance.

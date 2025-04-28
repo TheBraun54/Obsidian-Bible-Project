@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-among whom are ye also called [to be] Jesus Christ's:
+among whom you are also called to belong to Jesus Christ;

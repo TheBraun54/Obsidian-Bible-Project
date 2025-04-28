@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh said, Who is Jehovah, that I should hearken unto his voice to let Israel go? I know not Jehovah, and moreover I will not let Israel go.
+Pharaoh said, "Who is Yahweh, that I should listen to his voice to let Israel go? I don't know Yahweh, and moreover I will not let Israel go."

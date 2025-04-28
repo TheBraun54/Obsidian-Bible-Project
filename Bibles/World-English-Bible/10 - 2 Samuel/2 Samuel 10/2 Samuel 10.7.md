@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when David heard of it, he sent Joab, and all the host of the mighty men.
+When David heard of it, he sent Joab, and all the army of the mighty men.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Without are the dogs, and the sorcerers, and the fornicators, and the murderers, and the idolaters, and every one that loveth and maketh a lie.
+Outside are the dogs, the sorcerers, the sexually immoral, the murderers, the idolaters, and everyone who loves and practices falsehood.

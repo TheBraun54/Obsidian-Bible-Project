@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah recompense thy work, and a full reward be given thee of Jehovah, the God of Israel, under whose wings thou art come to take refuge.
+May Yahweh repay your work, and a full reward be given you from Yahweh, the God of Israel, under whose wings you have come to take refuge."

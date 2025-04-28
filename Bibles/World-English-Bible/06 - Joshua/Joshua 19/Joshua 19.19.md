@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Hapharaim, and Shion, and Anaharath,
+Hapharaim, Shion, Anaharath,

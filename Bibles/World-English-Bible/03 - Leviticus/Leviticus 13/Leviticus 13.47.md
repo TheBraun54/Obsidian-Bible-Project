@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The garment also that the plague of leprosy is in, whether it be a woollen garment, or a linen garment;
+"The garment also that the plague of leprosy is in, whether it is a woolen garment, or a linen garment;

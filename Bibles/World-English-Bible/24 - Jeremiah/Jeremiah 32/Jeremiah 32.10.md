@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I subscribed the deed, and sealed it, and called witnesses, and weighed him the money in the balances.
+I subscribed the deed, and sealed it, and called witnesses, and weighed him the money in the balances.

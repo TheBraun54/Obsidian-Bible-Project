@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Write thou these words: for after the tenor of these words I have made a covenant with thee and with Israel.
+Yahweh said to Moses, "Write you these words: for in accordance with these words I have made a covenant with you and with Israel."

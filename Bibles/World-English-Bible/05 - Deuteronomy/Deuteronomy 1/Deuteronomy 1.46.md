@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So ye abode in Kadesh many days, according unto the days that ye abode [there] .
+So you stayed in Kadesh many days, according to the days that you stayed [there].

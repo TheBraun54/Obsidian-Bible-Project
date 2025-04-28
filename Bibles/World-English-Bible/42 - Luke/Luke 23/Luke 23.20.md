@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pilate spake unto them again, desiring to release Jesus;
+Then Pilate spoke to them again, wanting to release Jesus,

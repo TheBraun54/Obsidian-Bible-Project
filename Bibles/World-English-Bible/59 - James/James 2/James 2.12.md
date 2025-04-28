@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So speak ye, and so do, as men that are to be judged by a law of liberty.
+So speak, and so do, as men who are to be judged by a law of freedom.

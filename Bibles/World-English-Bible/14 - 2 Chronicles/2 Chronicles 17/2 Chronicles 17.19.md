@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These were they that waited on the king, besides those whom the king put in the fortified cities throughout all Judah.
+These were those who waited on the king, besides those whom the king put in the fortified cities throughout all Judah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-covetings, wickednesses, deceit, lasciviousness, an evil eye, railing, pride, foolishness:
+covetings, wickedness, deceit, lustful desires, an evil eye, blasphemy, pride, and foolishness.

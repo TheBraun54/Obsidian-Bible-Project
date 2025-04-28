@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Kattath, and Nahalal, and Shimron, and Idalah, and Bethlehem: twelve cities with their villages.
+Kattath, Nahalal, Shimron, Idalah, and Bethlehem: twelve cities with their villages.

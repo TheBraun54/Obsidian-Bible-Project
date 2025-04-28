@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And for the western border, ye shall have the great sea and the border [thereof] : this shall be your west border.
+"'For the western border, you shall have the great sea and the border [of it]: this shall be your west border.

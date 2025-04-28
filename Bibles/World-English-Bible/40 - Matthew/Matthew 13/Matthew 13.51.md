@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have ye understood all these things? They say unto him, Yea.
+Jesus said to them, "Have you understood all these things?" They answered him, "Yes, Lord."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt stand without, and the man to whom thou dost lend shall bring forth the pledge without unto thee.
+You shall stand outside, and the man to whom you do lend shall bring forth the pledge outside to you.

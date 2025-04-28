@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wilt not thou possess that which Chemosh thy god giveth thee to possess? So whomsoever Jehovah our God hath dispossessed from before us, them will we possess.
+Won't you possess that which Chemosh your god gives you to possess? So whoever Yahweh our God has dispossessed from before us, them will we possess.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and if ye take this one also from me, and harm befall him, ye will bring down my gray hairs with sorrow to Sheol.
+If you take this one also from me, and harm happens to him, you will bring down my gray hairs with sorrow to Sheol.'

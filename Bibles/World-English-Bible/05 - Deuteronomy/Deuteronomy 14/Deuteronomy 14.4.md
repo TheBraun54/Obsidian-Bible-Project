@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the beasts which ye may eat: the ox, the sheep, and the goat,
+These are the animals which you may eat: the ox, the sheep, and the goat,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is it not wheat harvest to-day? I will call unto Jehovah, that he may send thunder and rain; and ye shall know and see that your wickedness is great, which ye have done in the sight of Jehovah, in asking you a king.
+Isn't it wheat harvest today? I will call to Yahweh, that he may send thunder and rain; and you shall know and see that your wickedness is great, which you have done in the sight of Yahweh, in asking for a king."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but thou shalt surely kill him; thy hand shall be first upon him to put him to death, and afterwards the hand of all the people.
+but you shall surely kill him; your hand shall be first on him to put him to death, and afterwards the hand of all the people.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I love Jehovah, because he heareth My voice and my supplications.
+I love Yahweh, because he listens to my voice, and my cries for mercy.

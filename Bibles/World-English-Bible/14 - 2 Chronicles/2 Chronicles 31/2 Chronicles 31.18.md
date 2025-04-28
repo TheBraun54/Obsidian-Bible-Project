@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and them that were reckoned by genealogy of all their little ones, their wives, and their sons, and their daughters, through all the congregation: for in their office of trust they sanctified themselves in holiness.
+and those who were reckoned by genealogy of all their little ones, their wives, and their sons, and their daughters, through all the congregation: for in their office of trust they sanctified themselves in holiness.

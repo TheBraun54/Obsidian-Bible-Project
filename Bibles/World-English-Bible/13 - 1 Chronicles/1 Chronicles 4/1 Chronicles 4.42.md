@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And some of them, even of the sons of Simeon, five hundred men, went to mount Seir, having for their captains Pelatiah, and Neariah, and Rephaiah, and Uzziel, the sons of Ishi.
+Some of them, even of the sons of Simeon, five hundred men, went to Mount Seir, having for their captains Pelatiah, and Neariah, and Rephaiah, and Uzziel, the sons of Ishi.

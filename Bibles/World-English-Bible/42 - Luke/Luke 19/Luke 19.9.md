@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto him, To-day is salvation come to this house, forasmuch as he also is a son of Abraham.
+Jesus said to him, "Today, salvation has come to this house, because he also is a son of Abraham.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I say unto you, that he will avenge them speedily. Nevertheless, when the Son of man cometh, shall he find faith on the earth?
+I tell you that he will avenge them quickly. Nevertheless, when the Son of Man comes, will he find faith on the earth?"

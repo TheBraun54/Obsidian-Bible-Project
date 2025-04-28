@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-from the ground unto above the door were cherubim and palm-trees made; thus was the wall of the temple.
+from the ground to above the door were cherubim and palm trees made: thus was the wall of the temple.

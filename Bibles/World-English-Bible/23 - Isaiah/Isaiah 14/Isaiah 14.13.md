@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou saidst in thy heart, I will ascend into heaven, I will exalt my throne above the stars of God; and I will sit upon the mount of congregation, in the uttermost parts of the north;
+You said in your heart, "I will ascend into heaven! I will exalt my throne above the stars of God! I will sit on the mountain of assembly, in the far north!

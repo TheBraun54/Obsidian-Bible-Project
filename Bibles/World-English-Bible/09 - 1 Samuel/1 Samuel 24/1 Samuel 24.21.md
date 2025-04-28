@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Swear now therefore unto me by Jehovah, that thou wilt not cut off my seed after me, and that thou wilt not destroy my name out of my father's house.
+Swear now therefore to me by Yahweh, that you will not cut off my seed after me, and that you will not destroy my name out of my father's house."

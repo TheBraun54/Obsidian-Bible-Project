@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Saul had a concubine, whose name was Rizpah, the daughter of Aiah: and [Ish-bosheth] said to Abner, Wherefore hast thou gone in unto my father's concubine?
+Now Saul had a concubine, whose name was Rizpah, the daughter of Aiah: and [Ishbosheth] said to Abner, "Why have you gone in to my father's concubine?"

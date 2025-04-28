@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there went up with him both chariots and horsemen: and it was a very great company.
+There went up with him both chariots and horsemen. It was a very great company.

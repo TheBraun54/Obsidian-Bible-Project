@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ye shall keep it until the fourteenth day of the same month; and the whole assembly of the congregation of Israel shall kill it at even.
+and you shall keep it until the fourteenth day of the same month; and the whole assembly of the congregation of Israel shall kill it at evening.

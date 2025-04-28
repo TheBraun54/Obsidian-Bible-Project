@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph called the name of the first-born Manasseh: For, [said he], God hath made me forget all my toil, and all my father's house.
+Joseph called the name of the firstborn Manasseh, "For," he said, "God has made me forget all my toil, and all my father's house."

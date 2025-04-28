@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as Josiah turned himself, he spied the sepulchres that were there in the mount; and he sent, and took the bones out of the sepulchres, and burned them upon the altar, and defiled it, according to the word of Jehovah which the man of God proclaimed, who proclaimed these things.
+As Josiah turned himself, he spied the tombs that were there in the mountain; and he sent, and took the bones out of the tombs, and burned them on the altar, and defiled it, according to the word of Yahweh which the man of God proclaimed, who proclaimed these things.

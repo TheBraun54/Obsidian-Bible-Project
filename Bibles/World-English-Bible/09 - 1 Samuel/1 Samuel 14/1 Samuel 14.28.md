@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then answered one of the people, and said, Thy father straitly charged the people with an oath, saying, Cursed be the man that eateth food this day. And the people were faint.
+Then one of the people answered, and said, "Your father directly commanded the people with an oath, saying, 'Cursed is the man who eats food this day.'" The people were faint.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the love of money is a root of all kinds of evil: which some reaching after have been led astray from the faith, and have pierced themselves through with many sorrows.
+For the love of money is a root of all kinds of evil. Some have been led astray from the faith in their greed, and have pierced themselves through with many sorrows.

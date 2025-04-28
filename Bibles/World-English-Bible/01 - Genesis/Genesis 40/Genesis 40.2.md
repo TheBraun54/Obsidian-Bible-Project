@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh was wroth against his two officers, against the chief of the butlers, and against the chief of the bakers.
+Pharaoh was angry with his two officers, the chief cupbearer and the chief baker.

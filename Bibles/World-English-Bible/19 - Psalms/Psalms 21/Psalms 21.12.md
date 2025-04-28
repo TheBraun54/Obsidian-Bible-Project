@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou wilt make them turn their back; Thou wilt make ready with thy bowstrings against their face.
+For you will make them turn their back, when you aim drawn bows at their face.

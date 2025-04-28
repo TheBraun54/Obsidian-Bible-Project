@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She may not eat of anything that cometh of the vine, neither let her drink wine or strong drink, nor eat any unclean thing; all that I commanded her let her observe.
+She may not eat of anything that comes of the vine, neither let her drink wine or strong drink, nor eat any unclean thing; all that I commanded her let her observe."

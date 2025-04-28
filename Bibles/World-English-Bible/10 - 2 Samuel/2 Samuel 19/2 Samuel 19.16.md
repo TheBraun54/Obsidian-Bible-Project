@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Shimei the son of Gera, the Benjamite, who was of Bahurim, hasted and came down with the men of Judah to meet king David.
+Shimei the son of Gera, the Benjamite, who was of Bahurim, hurried and came down with the men of Judah to meet king David.

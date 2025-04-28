@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the commandments and the ordinances which Jehovah commanded by Moses unto the children of Israel in the plains of Moab by the Jordan at Jericho.
+These are the commandments and the ordinances which Yahweh commanded by Moses to the children of Israel in the plains of Moab by the Jordan at Jericho.

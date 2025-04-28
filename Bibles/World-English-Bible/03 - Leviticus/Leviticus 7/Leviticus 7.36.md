@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-which Jehovah commanded to be given them of the children of Israel, in the day that he anointed them. It is [their] portion for ever throughout their generations.
+which Yahweh commanded to be given them of the children of Israel, in the day that he anointed them. It is their portion forever throughout their generations.

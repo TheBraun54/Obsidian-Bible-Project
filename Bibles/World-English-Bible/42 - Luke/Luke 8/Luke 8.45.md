@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said, Who is it that touched me? And when all denied, Peter said, and they that were with him, Master, the multitudes press thee and crush [thee] .
+Jesus said, "Who touched me?" When all denied it, Peter and those with him said, "Master, the multitudes press and jostle you, and you say, 'Who touched me?'"

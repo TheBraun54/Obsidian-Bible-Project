@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Egyptians shall know that I am Jehovah, when I have gotten me honor upon Pharaoh, upon his chariots, and upon his horsemen.
+The Egyptians shall know that I am Yahweh, when I have gotten myself honor over Pharaoh, over his chariots, and over his horsemen."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the people removed from their tents, to pass over the Jordan, the priests that bare the ark of the covenant being before the people;
+It happened, when the people moved from their tents to pass over the Jordan, the priests who bore the ark of the covenant being before the people,

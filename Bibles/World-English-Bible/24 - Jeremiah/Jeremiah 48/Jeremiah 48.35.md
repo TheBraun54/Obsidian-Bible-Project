@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover I will cause to cease in Moab, saith Jehovah, him that offereth in the high place, and him that burneth incense to his gods.
+Moreover I will cause to cease in Moab, says Yahweh, him who offers in the high place, and him who burns incense to his gods.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the king commanded Ebed-melech the Ethiopian, saying, Take from hence thirty men with thee, and take up Jeremiah the prophet out of the dungeon, before he die.
+Then the king commanded Ebedmelech the Ethiopian, saying, Take from here thirty men with you, and take up Jeremiah the prophet out of the dungeon, before he dies.

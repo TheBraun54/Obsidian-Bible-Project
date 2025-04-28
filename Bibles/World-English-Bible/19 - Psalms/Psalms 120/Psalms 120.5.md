@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe is me, that I sojourn in Meshech, That I dwell among the tents of Kedar!
+Woe is me, that I live in Meshech, that I dwell among the tents of Kedar!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the names of those that were born unto him in Jerusalem: Shammua, and Shobab, and Nathan, and Solomon,
+These are the names of those who were born to him in Jerusalem: Shammua, and Shobab, and Nathan, and Solomon,

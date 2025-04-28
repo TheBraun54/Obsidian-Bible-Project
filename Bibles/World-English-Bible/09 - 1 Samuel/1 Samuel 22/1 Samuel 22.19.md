@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Nob, the city of the priests, smote he with the edge of the sword, both men and women, children and sucklings, and oxen and asses and sheep, with the edge of the sword.
+He struck Nob, the city of the priests, with the edge of the sword, both men and women, children and nursing babies, and cattle and donkeys and sheep, with the edge of the sword.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The nations are sunk down in the pit that they made: In the net which they hid is their own foot taken.
+The nations have sunk down in the pit that they made. In the net which they hid, their own foot is taken.

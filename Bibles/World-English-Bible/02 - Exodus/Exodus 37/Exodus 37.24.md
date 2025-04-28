@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of a talent of pure gold made he it, and all the vessels thereof.
+He made it of a talent of pure gold, with all its vessels.

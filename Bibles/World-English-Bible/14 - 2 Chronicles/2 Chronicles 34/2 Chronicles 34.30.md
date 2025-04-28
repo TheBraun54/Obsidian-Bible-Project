@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king went up to the house of Jehovah, and all the men of Judah and the inhabitants of Jerusalem, and the priests, and the Levites, and all the people, both great and small: and he read in their ears all the words of the book of the covenant that was found in the house of Jehovah.
+The king went up to the house of Yahweh, and all the men of Judah and the inhabitants of Jerusalem, and the priests, and the Levites, and all the people, both great and small: and he read in their ears all the words of the book of the covenant that was found in the house of Yahweh.

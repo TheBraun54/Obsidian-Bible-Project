@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Joshua, See, I have given into thy hand Jericho, and the king thereof, and the mighty men of valor.
+Yahweh said to Joshua, "Behold, I have given Jericho into your hand, with its king and the mighty men of valor.

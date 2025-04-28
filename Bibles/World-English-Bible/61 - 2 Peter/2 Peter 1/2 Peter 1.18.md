@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and this voice we [ourselves] heard borne out of heaven, when we were with him in the holy mount.
+We heard this voice come out of heaven when we were with him on the holy mountain.

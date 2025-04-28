@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But, according to his promise, we look for new heavens and a new earth, wherein dwelleth righteousness.
+But, according to his promise, we look for new heavens and a new earth, in which righteousness dwells.

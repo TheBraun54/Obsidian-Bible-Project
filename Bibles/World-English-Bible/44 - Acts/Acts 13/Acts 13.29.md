@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had fulfilled all things that were written of him, they took him down from the tree, and laid him in a tomb.
+When they had fulfilled all things that were written about him, they took him down from the tree, and laid him in a tomb.

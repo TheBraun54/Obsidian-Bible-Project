@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember his covenant for ever, The word which he commanded to a thousand generations,
+Remember his covenant forever, the word which he commanded to a thousand generations,

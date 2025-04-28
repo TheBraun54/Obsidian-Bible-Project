@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, lo, they are gone away from destruction; [yet] Egypt shall gather them up, Memphis shall bury them; their pleasant things of silver, nettles shall possess them; thorns shall be in their tents.
+For, behold, they have gone away from destruction. Egypt will gather them up. Memphis will bury them. Nettles will possess their pleasant things of silver. Thorns will be in their tents.

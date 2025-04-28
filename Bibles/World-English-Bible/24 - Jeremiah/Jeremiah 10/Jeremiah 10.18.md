@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah, Behold, I will sling out the inhabitants of the land at this time, and will distress them, that they may feel [it] .
+For thus says Yahweh, Behold, I will sling out the inhabitants of the land at this time, and will distress them, that they may feel [it].

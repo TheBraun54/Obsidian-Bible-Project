@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Incline your ear, and come unto me; hear, and your soul shall live: and I will make an everlasting covenant with you, even the sure mercies of David.
+Turn your ear, and come to me; hear, and your soul shall live: and I will make an everlasting covenant with you, even the sure mercies of David.

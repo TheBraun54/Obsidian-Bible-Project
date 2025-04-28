@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But that servant went out, and found one of his fellow-servants, who owed him a hundred shillings: and he laid hold on him, and took [him] by the throat, saying, Pay what thou owest.
+"But that servant went out, and found one of his fellow servants, who owed him one hundred denarii, and he grabbed him, and took him by the throat, saying, 'Pay me what you owe!'

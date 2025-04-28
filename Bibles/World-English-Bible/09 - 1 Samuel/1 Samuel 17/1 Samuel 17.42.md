@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the Philistine looked about, and saw David, he disdained him; for he was but a youth, and ruddy, and withal of a fair countenance.
+When the Philistine looked about, and saw David, he disdained him; for he was but a youth, and ruddy, and withal of a fair face.

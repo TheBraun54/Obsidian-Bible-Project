@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he withdrew himself in the deserts, and prayed.
+But he withdrew himself into the desert, and prayed.

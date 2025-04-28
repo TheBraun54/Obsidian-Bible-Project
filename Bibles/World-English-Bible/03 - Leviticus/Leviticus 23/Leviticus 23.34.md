@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto the children of Israel, saying, On the fifteenth day of this seventh month is the feast of tabernacles for seven days unto Jehovah.
+"Speak to the children of Israel, and say, 'On the fifteenth day of this seventh month is the feast of tents for seven days to Yahweh.

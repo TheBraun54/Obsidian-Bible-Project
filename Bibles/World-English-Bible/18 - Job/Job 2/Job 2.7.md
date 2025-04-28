@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Satan went forth from the presence of Jehovah, and smote Job with sore boils from the sole of his foot unto his crown.
+So Satan went forth from the presence of Yahweh, and struck Job with painful sores from the sole of his foot to his head.

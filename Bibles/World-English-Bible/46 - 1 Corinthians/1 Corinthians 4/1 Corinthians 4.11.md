@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even unto this present hour we both hunger, and thirst, and are naked, and are buffeted, and have no certain dwelling-place;
+Even to this present hour we hunger, thirst, are naked, are beaten, and have no certain dwelling place.

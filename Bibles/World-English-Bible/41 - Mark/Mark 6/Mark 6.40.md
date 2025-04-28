@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they sat down in ranks, by hundreds, and by fifties.
+They sat down in ranks, by hundreds and by fifties.

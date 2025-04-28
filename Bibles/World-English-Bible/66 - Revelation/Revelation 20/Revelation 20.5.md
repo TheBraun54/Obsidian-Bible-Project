@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The rest of the dead lived not until the thousand years should be finished. This is the first resurrection.
+The rest of the dead didn't live until the thousand years were finished. This is the first resurrection.

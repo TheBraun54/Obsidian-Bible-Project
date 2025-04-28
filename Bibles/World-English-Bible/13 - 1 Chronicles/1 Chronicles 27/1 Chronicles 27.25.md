@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And over the king's treasures was Azmaveth the son of Adiel: and over the treasures in the fields, in the cities, and in the villages, and in the castles, was Jonathan the son of Uzziah:
+Over the king's treasures was Azmaveth the son of Adiel: and over the treasures in the fields, in the cities, and in the villages, and in the towers, was Jonathan the son of Uzziah:

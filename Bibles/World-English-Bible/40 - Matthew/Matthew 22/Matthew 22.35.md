@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And one of them, a lawyer, asked him a question, trying him:
+One of them, a lawyer, asked him a question, testing him.

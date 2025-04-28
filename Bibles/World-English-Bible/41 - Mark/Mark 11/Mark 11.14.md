@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answered and said unto it, No man eat fruit from thee henceforward for ever. And his disciples heard it.
+Jesus told it, "May no one ever eat fruit from you again!" and his disciples heard it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the army of the Syrians came with a small company of men; and Jehovah delivered a very great host into their hand, because they had forsaken Jehovah, the God of their fathers. So they executed judgment upon Joash.
+For the army of the Syrians came with a small company of men; and Yahweh delivered a very great army into their hand, because they had forsaken Yahweh, the God of their fathers. So they executed judgment on Joash.

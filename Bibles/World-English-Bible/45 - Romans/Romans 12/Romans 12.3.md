@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I say, through the grace that was given me, to every man that is among you, not to think of himself more highly than he ought to think; but so to think as to think soberly, according as God hath dealt to each man a measure of faith.
+For I say, through the grace that was given me, to every man who is among you, not to think of himself more highly than he ought to think; but to think reasonably, as God has apportioned to each person a measure of faith.

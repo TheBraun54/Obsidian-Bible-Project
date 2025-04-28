@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto another, Follow me. But he said, Lord, suffer me first to go and bury my father.
+He said to another, "Follow me!" But he said, "Lord, allow me first to go and bury my father."

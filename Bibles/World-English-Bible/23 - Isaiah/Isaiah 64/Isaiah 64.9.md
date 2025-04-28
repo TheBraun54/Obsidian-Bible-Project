@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not wroth very sore, O Jehovah, neither remember iniquity for ever: behold, look, we beseech thee, we are all thy people.
+Don't be furious, Yahweh, neither remember iniquity forever: see, look, we beg you, we are all your people.

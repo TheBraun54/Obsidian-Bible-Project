@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehoiada took for him two wives; and he begat sons and daughters.
+Jehoiada took for him two wives; and he became the father of sons and daughters.

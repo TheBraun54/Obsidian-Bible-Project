@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The best of them is as a brier; the most upright is [worse] than a thorn hedge: the day of thy watchmen, even thy visitation, is come; now shall be their perplexity.
+The best of them is like a brier. The most upright is worse than a thorn hedge. The day of your watchmen, even your visitation, has come; now is the time of their confusion.

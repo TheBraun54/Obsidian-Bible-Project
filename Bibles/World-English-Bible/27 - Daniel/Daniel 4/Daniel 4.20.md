@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The tree that thou sawest, which grew, and was strong, whose height reached unto heaven, and the sight thereof to all the earth;
+The tree that you saw, which grew, and was strong, whose height reached to the sky, and its sight to all the earth;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And two golden rings shalt thou make for it under the crown thereof; upon the two ribs thereof, upon the two sides of it shalt thou make them; and they shall be for places for staves wherewith to bear it.
+You shall make two golden rings for it under its molding; on its two ribs, on its two sides you shall make them; and they shall be for places for poles with which to bear it.

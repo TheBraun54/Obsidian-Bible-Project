@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he led forth his own people like sheep, And guided them in the wilderness like a flock.
+But he led forth his own people like sheep, and guided them in the wilderness like a flock.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For whom the Lord loveth he chasteneth, And scourgeth every son whom he receiveth.
+For whom the Lord loves, he chastens, and scourges every son whom he receives."

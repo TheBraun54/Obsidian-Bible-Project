@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Do we then make the law of none effect through faith? God forbid: nay, we establish the law.
+Do we then nullify the law through faith? May it never be! No, we establish the law.

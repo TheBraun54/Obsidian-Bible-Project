@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went up unto them into the boat; and the wind ceased: and they were sore amazed in themselves;
+He got into the boat with them; and the wind ceased, and they were very amazed among themselves, and marveled;

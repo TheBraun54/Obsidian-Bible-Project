@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and she shall say to me, Both drink thou, and I will also draw for thy camels: let the same be the woman whom Jehovah hath appointed for my master's son.
+and she will tell me, "Drink, and I will also draw for your camels,"--let her be the woman whom Yahweh has appointed for my master's son.'

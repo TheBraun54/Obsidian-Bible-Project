@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Afterward he brought me to the gate, even the gate that looketh toward the east.
+Afterward he brought me to the gate, even the gate that looks toward the east.

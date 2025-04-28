@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye have an anointing from the Holy One, and ye know all the things.
+You have an anointing from the Holy One, and you all have knowledge.

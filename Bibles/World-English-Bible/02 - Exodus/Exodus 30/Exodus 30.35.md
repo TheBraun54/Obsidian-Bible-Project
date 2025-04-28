@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt make of it incense, a perfume after the art of the perfumer, seasoned with salt, pure [and] holy:
+and you shall make incense of it, a perfume after the art of the perfumer, seasoned with salt, pure and holy:

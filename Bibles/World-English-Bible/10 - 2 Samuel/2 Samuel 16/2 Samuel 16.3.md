@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said, And where is thy master's son? And Ziba said unto the king, Behold, he abideth at Jerusalem; for he said, To-day will the house of Israel restore me the kingdom of my father.
+The king said, "Where is your master's son?" Ziba said to the king, "Behold, he is staying in Jerusalem; for he said, 'Today the house of Israel will restore me the kingdom of my father.'"

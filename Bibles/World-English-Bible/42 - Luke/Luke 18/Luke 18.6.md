@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Lord said, Hear what the unrighteous judge saith.
+The Lord said, "Listen to what the unrighteous judge says.

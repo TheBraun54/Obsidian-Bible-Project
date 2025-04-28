@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will render unto Babylon and to all the inhabitants of Chaldea all their evil that they have done in Zion in your sight, saith Jehovah.
+I will render to Babylon and to all the inhabitants of Chaldea all their evil that they have done in Zion in your sight, says Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and every armed man of you will pass over the Jordan before Jehovah, until he hath driven out his enemies from before him,
+and every armed man of you will pass over the Jordan before Yahweh, until he has driven out his enemies from before him,

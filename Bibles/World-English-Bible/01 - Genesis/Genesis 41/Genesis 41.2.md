@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, there came up out of the river seven kine, well-favored and fat-fleshed; and they fed in the reed-grass.
+Behold, there came up out of the river seven cattle, sleek and fat, and they fed in the marsh grass.

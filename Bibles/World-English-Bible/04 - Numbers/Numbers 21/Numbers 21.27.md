@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore they that speak in proverbs say, Come ye to Heshbon; Let the city of Sihon be built and established:
+Therefore those who speak in proverbs say, "Come to Heshbon. Let the city of Sihon be built and established;

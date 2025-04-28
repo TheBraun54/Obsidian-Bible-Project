@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy servant would but just go over the Jordan with the king: and why should the king recompense it me with such a reward?
+Your servant would but just go over the Jordan with the king. Why should the king repay me with such a reward?

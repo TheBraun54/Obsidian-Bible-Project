@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they arose early: and it came to pass about the spring of the day, that Samuel called to Saul on the housetop, saying, Up, that I may send thee away. And Saul arose, and they went out both of them, he and Samuel, abroad.
+They arose early: and it happened about the spring of the day, that Samuel called to Saul on the housetop, saying, "Get up, that I may send you away." Saul arose, and they went out both of them, he and Samuel, abroad.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were both naked, the man and his wife, and were not ashamed.
+They were both naked, the man and his wife, and were not ashamed.

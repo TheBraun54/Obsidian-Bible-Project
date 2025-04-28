@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a second like [unto it] is this, Thou shalt love thy neighbor as thyself.
+A second likewise is this, 'You shall love your neighbor as yourself.'

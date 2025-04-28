@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-According as we hearkened unto Moses in all things, so will we hearken unto thee: only Jehovah thy God be with thee, as he was with Moses.
+Just as we listened to Moses in all things, so will we listen to you. Only may Yahweh your God be with you, as he was with Moses.

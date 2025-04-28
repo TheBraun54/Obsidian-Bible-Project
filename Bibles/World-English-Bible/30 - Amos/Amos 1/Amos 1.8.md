@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will cut off the inhabitant from Ashdod, and him that holdeth the sceptre from Ashkelon; and I will turn my hand against Ekron; and the remnant of the Philistines shall perish, saith the Lord Jehovah.
+I will cut off the inhabitant from Ashdod, and him who holds the scepter from Ashkelon; and I will turn my hand against Ekron; and the remnant of the Philistines will perish," says the Lord Yahweh.

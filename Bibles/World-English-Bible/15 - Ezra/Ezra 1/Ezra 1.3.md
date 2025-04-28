@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whosoever there is among you of all his people, his God be with him, and let him go up to Jerusalem, which is in Judah, and build the house of Jehovah, the God of Israel (he is God), which is in Jerusalem.
+Whoever there is among you of all his people, may his God be with him, and let him go up to Jerusalem, which is in Judah, and build the house of Yahweh, the God of Israel (he is God), which is in Jerusalem.

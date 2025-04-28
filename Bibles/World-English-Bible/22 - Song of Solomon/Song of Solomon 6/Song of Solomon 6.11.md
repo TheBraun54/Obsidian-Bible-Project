@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I went down into the garden of nuts, To see the green plants of the valley, To see whether the vine budded, [And] the pomegranates were in flower.
+I went down into the nut tree grove, to see the green plants of the valley, to see whether the vine budded, and the pomegranates were in flower.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when Job's three friends heard of all this evil that was come upon him, they came every one from his own place: Eliphaz the Temanite, and Bildad the Shuhite, and Zophar the Naamathite, and they made an appointment together to come to bemoan him and to comfort him.
+Now when Job's three friends heard of all this evil that had come on him, they each came from his own place: Eliphaz the Temanite, Bildad the Shuhite, and Zophar the Naamathite, and they made an appointment together to come to sympathize with him and to comfort him.

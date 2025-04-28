@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless my brethren that went up with me made the heart of the people melt; but I wholly followed Jehovah my God.
+Nevertheless, my brothers who went up with me made the heart of the people melt; but I wholly followed Yahweh my God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They also that render evil for good Are adversaries unto me, because I follow the thing that is good.
+They who also render evil for good are adversaries to me, because I follow what is good.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Esther, If it please the king, let it be granted to the Jews that are in Shushan to do to-morrow also according unto this day's decree, and let Haman's ten sons be hanged upon the gallows.
+Then Esther said, "If it pleases the king, let it be granted to the Jews who are in Shushan to do tomorrow also according to this day's decree, and let Haman's ten sons be hanged on the gallows."

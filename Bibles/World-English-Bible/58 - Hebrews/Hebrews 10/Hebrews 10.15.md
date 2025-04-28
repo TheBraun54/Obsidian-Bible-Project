@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Holy Spirit also beareth witness to us; for after he hath said,
+The Holy Spirit also testifies to us, for after saying,

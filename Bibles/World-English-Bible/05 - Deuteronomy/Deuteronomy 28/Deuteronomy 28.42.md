@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All thy trees and the fruit of thy ground shall the locust possess.
+All your trees and the fruit of your ground shall the locust possess.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is it nothing to you, all ye that pass by? Behold, and see if there be any sorrow like unto my sorrow, which is brought upon me, Wherewith Jehovah hath afflicted [me] in the day of his fierce anger.
+Is it nothing to you, all you who pass by? Look, and see if there be any sorrow like my sorrow, which is brought on me, With which Yahweh has afflicted [me] in the day of his fierce anger.

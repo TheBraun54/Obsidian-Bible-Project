@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As silver is melted in the midst of the furnace, so shall ye be melted in the midst thereof; and ye shall know that I, Jehovah, have poured out my wrath upon you.
+As silver is melted in the midst of the furnace, so you will be melted in its midst; and you will know that I, Yahweh, have poured out my wrath on you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is high as heaven; what canst thou do? Deeper than Sheol; What canst thou know?
+They are high as heaven. What can you do? They are deeper than Sheol. What can you know?

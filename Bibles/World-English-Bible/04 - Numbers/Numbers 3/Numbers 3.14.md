@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah spake unto Moses in the wilderness of Sinai, saying,
+Yahweh spoke to Moses in the wilderness of Sinai, saying,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people came to Beth-el, and sat there till even before God, and lifted up their voices, and wept sore.
+The people came to Bethel, and sat there until evening before God, and lifted up their voices, and wept severely.

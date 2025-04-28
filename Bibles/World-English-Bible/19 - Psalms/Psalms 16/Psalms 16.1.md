@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[Michtam of David]. Preserve me, O God; For in thee do I take refuge.
+Preserve me, God, for in you do I take refuge.

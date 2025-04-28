@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Succoth, and encamped in Etham, which is in the edge of the wilderness.
+They traveled from Succoth, and encamped in Etham, which is in the edge of the wilderness.

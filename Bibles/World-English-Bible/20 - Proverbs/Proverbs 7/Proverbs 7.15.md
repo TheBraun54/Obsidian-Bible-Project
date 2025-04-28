@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore came I forth to meet thee, Diligently to seek thy face, and I have found thee.
+Therefore I came out to meet you, to diligently seek your face, and I have found you.

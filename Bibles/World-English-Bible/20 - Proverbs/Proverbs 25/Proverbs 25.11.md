@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A word fitly spoken Is [like] apples of gold in network of silver.
+A word fitly spoken is like apples of gold in settings of silver.

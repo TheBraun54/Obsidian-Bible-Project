@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There are, it may be, so many kinds of voices in the world, and no [kind] is without signification.
+There are, it may be, so many kinds of sounds in the world, and none of them is without meaning.

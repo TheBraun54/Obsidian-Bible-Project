@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the rest of the acts of Omri which he did, and his might that he showed, are they not written in the book of the chronicles of the kings of Israel?
+Now the rest of the acts of Omri which he did, and his might that he showed, aren't they written in the book of the chronicles of the kings of Israel?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Kings of the earth and all peoples; Princes and all judges of the earth;
+kings of the earth and all peoples; princes and all judges of the earth;

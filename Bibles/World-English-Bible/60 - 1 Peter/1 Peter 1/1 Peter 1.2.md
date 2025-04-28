@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-according to the foreknowledge of God the Father, in sanctification of the Spirit, unto obedience and sprinkling of the blood of Jesus Christ: Grace to you and peace be multiplied.
+according to the foreknowledge of God the Father, in sanctification of the Spirit, that you may obey Jesus Christ and be sprinkled with his blood: Grace to you and peace be multiplied.

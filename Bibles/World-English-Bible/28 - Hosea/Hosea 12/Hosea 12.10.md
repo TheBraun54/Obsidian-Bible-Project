@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have also spoken unto the prophets, and I have multiplied visions; and by the ministry of the prophets have I used similitudes.
+I have also spoken to the prophets, and I have multiplied visions; and by the ministry of the prophets I have used parables.

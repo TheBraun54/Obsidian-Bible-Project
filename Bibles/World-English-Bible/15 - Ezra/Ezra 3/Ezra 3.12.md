@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But many of the priests and Levites and heads of fathers' [houses], the old men that had seen the first house, when the foundation of this house was laid before their eyes, wept with a loud voice; and many shouted aloud for joy:
+But many of the priests and Levites and heads of fathers' [houses], the old men who had seen the first house, when the foundation of this house was laid before their eyes, wept with a loud voice; and many shouted aloud for joy:

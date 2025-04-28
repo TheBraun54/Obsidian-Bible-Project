@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And many came unto him; and they said, John indeed did no sign: but all things whatsoever John spake of this man were true.
+Many came to him. They said, "John indeed did no sign, but everything that John said about this man is true."

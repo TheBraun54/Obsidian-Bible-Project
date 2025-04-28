@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O God, when thou wentest forth before thy people, When thou didst march through the wilderness; {{Selah
+God, when you went forth before your people, when you marched through the wilderness... Selah.

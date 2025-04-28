@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if, after they have escaped the defilements of the world through the knowledge of the Lord and Saviour Jesus Christ, they are again entangled therein and overcome, the last state is become worse with them than the first.
+For if, after they have escaped the defilement of the world through the knowledge of the Lord and Savior Jesus Christ, they are again entangled in it and overcome, the last state has become worse for them than the first.

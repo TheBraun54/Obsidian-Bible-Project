@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lest thou give thine honor unto others, And thy years unto the cruel;
+lest you give your honor to others, and your years to the cruel one;

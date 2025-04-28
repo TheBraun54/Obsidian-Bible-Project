@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Honor Jehovah with thy substance, And with the first-fruits of all thine increase:
+Honor Yahweh with your substance, with the first fruits of all your increase:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the more they afflicted them, the more they multiplied and the more they spread abroad. And they were grieved because of the children of Israel.
+But the more they afflicted them, the more they multiplied and the more they spread out. They were grieved because of the children of Israel.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-forbidding to marry, [and commanding] to abstain from meats, which God created to be received with thanksgiving by them that believe and know the truth.
+forbidding marriage and commanding to abstain from foods which God created to be received with thanksgiving by those who believe and know the truth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of every tribe a thousand, throughout all the tribes of Israel, shall ye send to the war.
+Of every tribe one thousand, throughout all the tribes of Israel, you shall send to the war."

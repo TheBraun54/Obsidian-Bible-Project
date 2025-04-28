@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus answered and spake again in parables unto them, saying,
+Jesus answered and spoke again in parables to them, saying,

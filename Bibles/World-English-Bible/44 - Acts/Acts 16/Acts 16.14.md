@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a certain woman named Lydia, a seller of purple of the city of Thyatira, one that worshipped God, heard us: whose heart the Lord opened to give heed unto the things which were spoken by Paul.
+A certain woman named Lydia, a seller of purple, of the city of Thyatira, one who worshiped God, heard us; whose heart the Lord opened to listen to the things which were spoken by Paul.

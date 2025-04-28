@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah came down to see the city and the tower, which the children of men builded.
+Yahweh came down to see the city and the tower, which the children of men built.

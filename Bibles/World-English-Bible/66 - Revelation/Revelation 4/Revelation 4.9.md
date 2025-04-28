@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the living creatures shall give glory and honor and thanks to him that sitteth on the throne, to him that liveth for ever and ever,
+When the living creatures give glory, honor, and thanks to him who sits on the throne, to him who lives forever and ever,

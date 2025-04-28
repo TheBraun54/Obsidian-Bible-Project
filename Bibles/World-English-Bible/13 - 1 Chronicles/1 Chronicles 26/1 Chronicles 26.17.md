@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Eastward were six Levites, northward four a day, southward four a day, and for the store-house two and two.
+Eastward were six Levites, northward four a day, southward four a day, and for the storehouse two and two.

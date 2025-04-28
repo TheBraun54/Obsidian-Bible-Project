@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of Joseph he said, Blessed of Jehovah be his land, For the precious things of heaven, for the dew, And for the deep that coucheth beneath,
+Of Joseph he said, "His land is blessed by Yahweh, for the precious things of the heavens, for the dew, for the deep that couches beneath,

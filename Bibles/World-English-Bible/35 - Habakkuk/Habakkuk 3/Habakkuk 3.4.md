@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And [his] brightness was as the light; He had rays [coming forth] from his hand; And there was the hiding of his power.
+His splendor is like the sunrise. Rays shine from his hand, where his power is hidden.

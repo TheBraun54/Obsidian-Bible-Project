@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh that my ways were established To observe thy statutes!
+Oh that my ways were steadfast to obey your statutes!

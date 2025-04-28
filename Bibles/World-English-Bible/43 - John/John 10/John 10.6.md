@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This parable spake Jesus unto them: but they understood not what things they were which he spake unto them.
+Jesus spoke this parable to them, but they didn't understand what he was telling them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath cut off in fierce anger all the horn of Israel; He hath drawn back his right hand from before the enemy: And he hath burned up Jacob like a flaming fire, which devoureth round about.
+He has cut off in fierce anger all the horn of Israel; He has drawn back his right hand from before the enemy: He has burned up Jacob like a flaming fire, which devours all around.

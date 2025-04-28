@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then Toi sent Joram his son unto king David, to salute him, and to bless him, because he had fought against Hadadezer and smitten him: for Hadadezer had wars with Toi. And [Joram] brought with him vessels of silver, and vessels of gold, and vessels of brass:
+then Toi sent Joram his son to king David, to Greet him, and to bless him, because he had fought against Hadadezer and struck him: for Hadadezer had wars with Toi. [Joram] brought with him vessels of silver, and vessels of gold, and vessels of brass:

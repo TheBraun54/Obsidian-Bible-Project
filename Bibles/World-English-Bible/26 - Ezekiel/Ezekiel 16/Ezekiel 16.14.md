@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thy renown went forth among the nations for thy beauty; for it was perfect, through my majesty which I had put upon thee, saith the Lord Jehovah.
+Your renown went forth among the nations for your beauty; for it was perfect, through my majesty which I had put on you, says the Lord Yahweh.

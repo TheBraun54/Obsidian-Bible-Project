@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then king Solomon sware by Jehovah, saying, God do so to me, and more also, if Adonijah hath not spoken this word against his own life.
+Then king Solomon swore by Yahweh, saying, "God do so to me, and more also, if Adonijah has not spoken this word against his own life.

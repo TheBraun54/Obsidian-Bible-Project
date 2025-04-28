@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and being in readiness to avenge all disobedience, when your obedience shall be made full.
+and being in readiness to avenge all disobedience, when your obedience will be made full.

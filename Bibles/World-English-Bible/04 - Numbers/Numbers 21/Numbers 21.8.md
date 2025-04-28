@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Make thee a fiery serpent, and set it upon a standard: and it shall come to pass, that every one that is bitten, when he seeth it, shall live.
+Yahweh said to Moses, "Make a fiery serpent, and set it on a standard: and it shall happen, that everyone who is bitten, when he sees it, shall live."

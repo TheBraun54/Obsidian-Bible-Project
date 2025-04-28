@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the fourth poured out his bowl upon the sun; and it was given unto it to scorch men with fire.
+The fourth poured out his bowl on the sun, and it was given to him to scorch men with fire.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Uz his first-born, and Buz his brother, and Kemuel the father of Aram,
+Uz his firstborn, Buz his brother, Kemuel the father of Aram,

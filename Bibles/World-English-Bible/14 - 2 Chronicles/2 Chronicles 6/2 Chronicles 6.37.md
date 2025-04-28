@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yet if they shall bethink themselves in the land whither they are carried captive, and turn again, and make supplication unto thee in the land of their captivity, saying, We have sinned, we have done perversely, and have dealt wickedly;
+yet if they shall repent themselves in the land where they are carried captive, and turn again, and make supplication to you in the land of their captivity, saying, 'We have sinned, we have done perversely, and have dealt wickedly;'

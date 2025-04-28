@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If therefore ye have not been faithful in the unrighteous mammon, who will commit to your trust the true [riches] ?
+If therefore you have not been faithful in the unrighteous mammon, who will commit to your trust the true riches?

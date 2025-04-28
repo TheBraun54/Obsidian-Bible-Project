@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they are a nation void of counsel, And there is no understanding in them.
+For they are a nation void of counsel. There is no understanding in them.

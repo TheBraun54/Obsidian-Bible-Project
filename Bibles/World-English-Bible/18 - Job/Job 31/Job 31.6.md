@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(Let me be weighed in an even balance, That God may know mine integrity);
+(let me be weighed in an even balance, that God may know my integrity);

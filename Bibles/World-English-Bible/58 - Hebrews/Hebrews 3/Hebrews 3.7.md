@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore, even as the Holy Spirit saith, To-day if ye shall hear his voice,
+Therefore, even as the Holy Spirit says, "Today if you will hear his voice,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the chief priests and the scribes stood, vehemently accusing him.
+The chief priests and the scribes stood, vehemently accusing him.

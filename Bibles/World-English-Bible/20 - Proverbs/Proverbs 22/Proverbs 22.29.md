@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seest thou a man diligent in his business? he shall stand before kings; He shall not stand before mean men.
+Do you see a man skilled in his work? He will serve kings. He won't serve obscure men.

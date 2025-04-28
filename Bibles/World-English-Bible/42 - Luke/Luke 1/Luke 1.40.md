@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and entered into the house of Zacharias and saluted Elisabeth.
+and entered into the house of Zacharias and greeted Elizabeth.

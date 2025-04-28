@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Parthians and Medes and Elamites, and the dwellers in Mesopotamia, in Judaea and Cappadocia, in Pontus and Asia,
+Parthians, Medes, Elamites, and people from Mesopotamia, Judea, Cappadocia, Pontus, Asia,

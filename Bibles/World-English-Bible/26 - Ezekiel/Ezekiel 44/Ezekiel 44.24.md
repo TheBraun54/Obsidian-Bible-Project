@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in a controversy they shall stand to judge; according to mine ordinances shall they judge it: and they shall keep my laws and my statutes in all my appointed feasts; and they shall hallow my sabbaths.
+In a controversy they shall stand to judge; according to my ordinances shall they judge it: and they shall keep my laws and my statutes in all my appointed feasts; and they shall make my Sabbaths holy.

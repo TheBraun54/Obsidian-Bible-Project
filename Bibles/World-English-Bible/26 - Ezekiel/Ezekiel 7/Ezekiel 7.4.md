@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And mine eye shall not spare thee, neither will I have pity; but I will bring thy ways upon thee, and thine abominations shall be in the midst of thee: and ye shall know that I am Jehovah.
+My eye shall not spare you, neither will I have pity; but I will bring your ways on you, and your abominations shall be in the midst of you: and you shall know that I am Yahweh.

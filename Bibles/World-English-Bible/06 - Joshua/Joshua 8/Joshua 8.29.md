@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Ai he hanged on a tree until the eventide: and at the going down of the sun Joshua commanded, and they took his body down from the tree, and cast it at the entrance of the gate of the city, and raised thereon a great heap of stones, unto this day.
+He hanged the king of Ai on a tree until the evening, and at the sundown Joshua commanded, and they took his body down from the tree, and threw it at the entrance of the gate of the city, and raised a great heap of stones on it that remains to this day.

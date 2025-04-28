@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What is it therefore? They will certainly hear that thou art come.
+What then? The assembly must certainly meet, for they will hear that you have come.

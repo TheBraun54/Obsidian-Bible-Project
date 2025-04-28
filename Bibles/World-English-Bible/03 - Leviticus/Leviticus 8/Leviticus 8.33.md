@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall not go out from the door of the tent of meeting seven days, until the days of your consecration be fulfilled: for he shall consecrate you seven days.
+You shall not go out from the door of the Tent of Meeting seven days, until the days of your consecration are fulfilled: for he shall consecrate you seven days.

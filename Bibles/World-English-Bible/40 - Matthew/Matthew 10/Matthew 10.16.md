@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I send you forth as sheep in the midst of wolves: be ye therefore wise as serpents, and harmless as doves.
+"Behold, I send you out as sheep in the midst of wolves. Therefore be wise as serpents, and harmless as doves.

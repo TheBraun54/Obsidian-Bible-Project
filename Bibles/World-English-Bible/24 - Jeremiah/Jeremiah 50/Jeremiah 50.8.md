@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Flee out of the midst of Babylon, and go forth out of the land of the Chaldeans, and be as the he-goats before the flocks.
+Flee out of the midst of Babylon, and go forth out of the land of the Chaldeans, and be as the male goats before the flocks.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. A Psalm of David]. Hear my voice, O God, in my complaint: Preserve my life from fear of the enemy.
+Hear my voice, God, in my complaint. Preserve my life from fear of the enemy.

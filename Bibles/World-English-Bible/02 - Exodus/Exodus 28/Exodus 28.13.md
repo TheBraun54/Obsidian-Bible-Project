@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make settings of gold,
+You shall make settings of gold,

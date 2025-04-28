@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his disciples asked him what this parable might be.
+Then his disciples asked him, "What does this parable mean?"

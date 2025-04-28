@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who art thou, O great mountain? before Zerubbabel [thou shalt become] a plain; and he shall bring forth the top stone with shoutings of Grace, grace, unto it.
+Who are you, great mountain? Before Zerubbabel you are a plain; and he will bring out the capstone with shouts of 'Grace, grace, to it!'"

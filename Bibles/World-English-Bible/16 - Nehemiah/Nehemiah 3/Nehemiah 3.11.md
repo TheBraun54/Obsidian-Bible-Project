@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Malchijah the son of Harim, and Hasshub the son of Pahath-moab, repaired another portion, and the tower of the furnaces.
+Malchijah the son of Harim, and Hasshub the son of Pahathmoab, repaired another portion, and the tower of the furnaces.

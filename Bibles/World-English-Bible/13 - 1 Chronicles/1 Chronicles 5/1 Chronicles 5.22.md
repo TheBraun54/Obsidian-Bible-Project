@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there fell many slain, because the war was of God. And they dwelt in their stead until the captivity.
+For there fell many slain, because the war was of God. They lived in their place until the captivity.

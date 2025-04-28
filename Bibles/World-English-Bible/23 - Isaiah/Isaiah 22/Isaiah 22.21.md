@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will cloth him with thy robe, and strengthen him with thy girdle, and I will commit thy government into his hand; and he shall be a father to the inhabitants of Jerusalem, and to the house of Judah.
+and I will clothe him with your robe, and strengthen him with your belt. I will commit your government into his hand; and he will be a father to the inhabitants of Jerusalem, and to the house of Judah.

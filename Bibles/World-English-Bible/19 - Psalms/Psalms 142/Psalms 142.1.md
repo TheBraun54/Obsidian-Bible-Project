@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[Maschil of David, when he was in the cave; a Prayer]. I cry with my voice unto Jehovah; With my voice unto Jehovah do I make supplication.
+I cry with my voice to Yahweh. With my voice, I ask Yahweh for mercy.

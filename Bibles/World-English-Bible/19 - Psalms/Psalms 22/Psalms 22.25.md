@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of thee cometh my praise in the great assembly: I will pay my vows before them that fear him.
+Of you comes my praise in the great assembly. I will pay my vows before those who fear him.

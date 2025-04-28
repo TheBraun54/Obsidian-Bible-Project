@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the sinners of my people shall die by the sword, who say, The evil shall not overtake nor meet us.
+All the sinners of my people will die by the sword, who say, 'Evil won't overtake nor meet us.'

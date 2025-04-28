@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on the day that Moses had made an end of setting up the tabernacle, and had anointed it and sanctified it, and all the furniture thereof, and the altar and all the vessels thereof, and had anointed them and sanctified them;
+It happened on the day that Moses had finished setting up the tabernacle, and had anointed it and sanctified it, with all its furniture, and the altar with all its vessels, and had anointed and sanctified them;

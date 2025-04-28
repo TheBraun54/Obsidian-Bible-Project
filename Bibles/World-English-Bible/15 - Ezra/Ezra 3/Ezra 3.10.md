@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the builders laid the foundation of the temple of Jehovah, they set the priests in their apparel with trumpets, and the Levites the sons of Asaph with cymbals, to praise Jehovah, after the order of David king of Israel.
+When the builders laid the foundation of the temple of Yahweh, they set the priests in their clothing with trumpets, and the Levites the sons of Asaph with cymbals, to praise Yahweh, after the order of David king of Israel.

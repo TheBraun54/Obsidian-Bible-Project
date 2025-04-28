@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To make a weight for the wind: Yea, he meteth out the waters by measure.
+He establishes the force of the wind. Yes, he measures out the waters by measure.

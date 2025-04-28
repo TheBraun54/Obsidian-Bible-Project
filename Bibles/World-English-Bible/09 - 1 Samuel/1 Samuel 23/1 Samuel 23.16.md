@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jonathan, Saul's son, arose, and went to David into the wood, and strengthened his hand in God.
+Jonathan, Saul's son, arose, and went to David into the woods, and strengthened his hand in God.

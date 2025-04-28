@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the army of the Chaldeans, that were [with] the captain of the guard, brake down the walls of Jerusalem round about.
+All the army of the Chaldeans, who were [with] the captain of the guard, broke down the walls around Jerusalem.

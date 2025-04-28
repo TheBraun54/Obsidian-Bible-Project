@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I rejoice that in everything I am of good courage concerning you.
+I rejoice that in everything I am confident concerning you.

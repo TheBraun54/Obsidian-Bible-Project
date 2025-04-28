@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On the second day Nethanel the son of Zuar, prince of Issachar, did offer:
+On the second day Nethanel the son of Zuar, prince of Issachar, gave his offering.

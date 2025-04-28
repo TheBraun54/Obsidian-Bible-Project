@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus God requited the wickedness of Abimelech, which he did unto his father, in slaying his seventy brethren;
+Thus God requited the wickedness of Abimelech, which he did to his father, in killing his seventy brothers;

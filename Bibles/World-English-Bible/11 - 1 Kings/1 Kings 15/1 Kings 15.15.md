@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brought into the house of Jehovah the things that his father had dedicated, and the things that himself had dedicated, silver, and gold, and vessels.
+He brought into the house of Yahweh the things that his father had dedicated, and the things that himself had dedicated, silver, and gold, and vessels.

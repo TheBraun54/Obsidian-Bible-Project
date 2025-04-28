@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have compared thee, O my love, To a steed in Pharaoh's chariots.
+I have compared you, my love, to a steed in Pharaoh's chariots.

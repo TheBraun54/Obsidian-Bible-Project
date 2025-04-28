@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I came to them of the captivity at Tel-abib, that dwelt by the river Chebar, and to where they dwelt; and I sat there overwhelmed among them seven days.
+Then I came to them of the captivity at Tel Aviv, that lived by the river Chebar, and to where they lived; and I sat there overwhelmed among them seven days.

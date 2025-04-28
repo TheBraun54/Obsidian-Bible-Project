@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The boar out of the wood doth ravage it, And the wild beasts of the field feed on it.
+The boar out of the wood ravages it. The wild animals of the field feed on it.

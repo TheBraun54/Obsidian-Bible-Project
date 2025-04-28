@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore Jehovah, the God of Israel, saith, I said indeed that thy house, and the house of thy father, should walk before me for ever: but now Jehovah saith, Be it far from me; for them that honor me I will honor, and they that despise me shall be lightly esteemed.
+"Therefore Yahweh, the God of Israel, says, 'I said indeed that your house, and the house of your father, should walk before me forever.' But now Yahweh says, 'Be it far from me; for those who honor me I will honor, and those who despise me shall be lightly esteemed.

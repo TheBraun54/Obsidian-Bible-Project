@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ O my soul], thou hast said unto Jehovah, Thou art my Lord: I have no good beyond thee.
+My soul, you have said to Yahweh, "You are my Lord. Apart from you I have no good thing."

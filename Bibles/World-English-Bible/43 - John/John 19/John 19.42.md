@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There then because of the Jews' Preparation (for the tomb was nigh at hand) they laid Jesus.
+Then because of the Jews' Preparation Day (for the tomb was near at hand) they laid Jesus there.

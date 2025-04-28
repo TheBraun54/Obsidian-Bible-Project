@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there is no faithfulness in their mouth; Their inward part is very wickedness; Their throat is an open sepulchre; They flatter with their tongue.
+For there is no faithfulness in their mouth. Their heart is destruction. Their throat is an open tomb. They flatter with their tongue.

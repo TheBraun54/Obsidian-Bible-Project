@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Say to them that are of a fearful heart, Be strong, fear not: behold, your God will come [with] vengeance, [with] the recompense of God; he will come and save you.
+Tell those who have a fearful heart, "Be strong. Don't be afraid. Behold, your God will come with vengeance, God's retribution. He will come and save you.

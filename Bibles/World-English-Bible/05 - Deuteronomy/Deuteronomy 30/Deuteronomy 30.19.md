@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I call heaven and earth to witness against you this day, that I have set before thee life and death, the blessing and the curse: therefore choose life, that thou mayest live, thou and thy seed;
+I call heaven and earth to witness against you this day, that I have set before you life and death, the blessing and the curse: therefore choose life, that you may live, you and your seed;

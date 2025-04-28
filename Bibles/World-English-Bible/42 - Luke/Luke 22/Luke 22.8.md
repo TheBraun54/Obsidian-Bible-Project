@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sent Peter and John, saying, Go and make ready for us the passover, that we may eat.
+He sent Peter and John, saying, "Go and prepare the Passover for us, that we may eat."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Behold, I have heard that there is grain in Egypt: get you down thither, and buy for us from thence; that we may live, and not die.
+He said, "Behold, I have heard that there is grain in Egypt. Go down there, and buy for us from there, so that we may live, and not die."

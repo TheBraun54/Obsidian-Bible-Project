@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My root is spread out to the waters, And the dew lieth all night upon my branch;
+My root is spread out to the waters. The dew lies all night on my branch.

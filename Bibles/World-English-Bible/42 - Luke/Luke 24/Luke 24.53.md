@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and were continually in the temple, blessing God.
+and were continually in the temple, praising and blessing God. Amen.

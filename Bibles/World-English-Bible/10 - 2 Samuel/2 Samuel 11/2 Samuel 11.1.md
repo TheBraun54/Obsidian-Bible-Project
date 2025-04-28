@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, at the return of the year, at the time when kings go out [to battle], that David sent Joab, and his servants with him, and all Israel; and they destroyed the children of Ammon, and besieged Rabbah. But David tarried at Jerusalem.
+It happened, at the return of the year, at the time when kings go out [to battle], that David sent Joab, and his servants with him, and all Israel; and they destroyed the children of Ammon, and besieged Rabbah. But David stayed at Jerusalem.

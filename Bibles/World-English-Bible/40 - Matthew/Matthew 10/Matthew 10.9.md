@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Get you no gold, nor silver, nor brass in your purses;
+Don't take any gold, nor silver, nor brass in your money belts.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and all the days of Mahalalel were eight hundred ninety and five years: and he died.
+All the days of Mahalalel were eight hundred ninety-five years, then he died.

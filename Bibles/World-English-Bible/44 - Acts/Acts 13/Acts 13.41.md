@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, ye despisers, and wonder, and perish; For I work a work in your days, A work which ye shall in no wise believe, if one declare it unto you.
+'Behold, you scoffers, and wonder, and perish; for I work a work in your days, a work which you will in no way believe, if one declares it to you.'"

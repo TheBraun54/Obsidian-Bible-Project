@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Know ye not that we shall judge angels? how much more, things that pertain to this life?
+Don't you know that we will judge angels? How much more, things that pertain to this life?

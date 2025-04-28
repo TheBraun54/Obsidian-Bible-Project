@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-knowing that ye were redeemed, not with corruptible things, with silver or gold, from your vain manner of life handed down from your fathers;
+knowing that you were redeemed, not with corruptible things, with silver or gold, from the useless way of life handed down from your fathers,

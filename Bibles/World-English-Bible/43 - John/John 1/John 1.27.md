@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ even] he that cometh after me, the latchet of whose shoe I am not worthy to unloose.
+He is the one who comes after me, who is preferred before me, whose sandal strap I'm not worthy to loosen."

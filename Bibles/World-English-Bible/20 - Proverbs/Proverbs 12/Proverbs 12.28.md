@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the way of righteousness is life; And in the pathway thereof there is no death.
+In the way of righteousness is life; in its path there is no death.

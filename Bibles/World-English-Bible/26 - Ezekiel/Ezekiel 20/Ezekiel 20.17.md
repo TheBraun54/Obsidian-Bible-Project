@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless mine eye spared them, and I destroyed them not, neither did I make a full end of them in the wilderness.
+Nevertheless my eye spared them, and I didn't destroy them, neither did I make a full end of them in the wilderness.

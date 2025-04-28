@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the demons came out from the man, and entered into the swine: and the herd rushed down the steep into the lake, and were drowned.
+The demons came out from the man, and entered into the pigs, and the herd rushed down the steep bank into the lake, and were drowned.

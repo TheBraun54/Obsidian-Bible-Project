@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that falleth on this stone shall be broken to pieces: but on whomsoever it shall fall, it will scatter him as dust.
+He who falls on this stone will be broken to pieces, but on whoever it will fall, it will scatter him as dust."

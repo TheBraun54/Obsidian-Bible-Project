@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if God spared not angels when they sinned, but cast them down to hell, and committed them to pits of darkness, to be reserved unto judgment;
+For if God didn't spare angels when they sinned, but cast them down to Tartarus, and committed them to pits of darkness, to be reserved for judgment;

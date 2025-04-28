@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye worship that which ye know not: we worship that which we know; for salvation is from the Jews.
+You worship that which you don't know. We worship that which we know; for salvation is from the Jews.

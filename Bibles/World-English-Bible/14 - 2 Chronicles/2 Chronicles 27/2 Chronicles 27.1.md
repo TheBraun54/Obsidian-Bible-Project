@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jotham was twenty and five years old when he began to reign; and he reigned sixteen years in Jerusalem: and his mother's name was Jerushah the daughter of Zadok.
+Jotham was twenty-five years old when he began to reign; and he reigned sixteen years in Jerusalem: and his mother's name was Jerushah the daughter of Zadok.

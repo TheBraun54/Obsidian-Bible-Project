@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall bring his trespass-offering unto Jehovah, unto the door of the tent of meeting, even a ram for a trespass-offering.
+He shall bring his trespass offering to Yahweh, to the door of the Tent of Meeting, even a ram for a trespass offering.

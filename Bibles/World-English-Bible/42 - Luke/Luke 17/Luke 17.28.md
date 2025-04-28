@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Likewise even as it came to pass in the days of Lot; they ate, they drank, they bought, they sold, they planted, they builded;
+Likewise, even as it happened in the days of Lot: they ate, they drank, they bought, they sold, they planted, they built;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Balak heard that Balaam was come, he went out to meet him unto the City of Moab, which is on the border of the Arnon, which is in the utmost part of the border.
+When Balak heard that Balaam had come, he went out to meet him to the City of Moab, which is on the border of the Arnon, which is in the utmost part of the border.

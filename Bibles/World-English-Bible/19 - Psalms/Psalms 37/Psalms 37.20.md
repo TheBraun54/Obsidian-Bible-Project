@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the wicked shall perish, And the enemies of Jehovah shall be as the fat of lambs: They shall consume; in smoke shall they consume away.
+But the wicked shall perish. The enemies of Yahweh shall be like the beauty of the fields. They will vanish-- vanish like smoke.

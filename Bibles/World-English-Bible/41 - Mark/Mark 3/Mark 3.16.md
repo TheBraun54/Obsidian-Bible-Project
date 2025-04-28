@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Simon he surnamed Peter;
+Simon, to whom he gave the name Peter;

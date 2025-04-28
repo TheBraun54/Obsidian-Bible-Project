@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses spake unto Aaron, and unto Eleazar and unto Ithamar, his sons that were left, Take the meal-offering that remaineth of the offerings of Jehovah made by fire, and eat it without leaven beside the altar; for it is most holy;
+Moses spoke to Aaron, and to Eleazar and to Ithamar, his sons who were left, "Take the meal offering that remains of the offerings of Yahweh made by fire, and eat it without yeast beside the altar; for it is most holy;

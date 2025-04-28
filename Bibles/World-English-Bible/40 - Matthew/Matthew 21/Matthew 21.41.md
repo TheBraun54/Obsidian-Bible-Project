@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They say unto him, He will miserably destroy those miserable men, and will let out the vineyard unto other husbandmen, who shall render him the fruits in their seasons.
+They told him, "He will miserably destroy those miserable men, and will lease out the vineyard to other farmers, who will give him the fruit in its season."

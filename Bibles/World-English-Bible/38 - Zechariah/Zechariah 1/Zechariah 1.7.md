@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Upon the four and twentieth day of the eleventh month, which is the month Shebat, in the second year of Darius, came the word of Jehovah unto Zechariah the son of Berechiah, the son of Iddo, the prophet, saying,
+On the twenty-fourth day of the eleventh month, which is the month Shebat, in the second year of Darius, the word of Yahweh came to Zechariah the son of Berechiah, the son of Iddo, the prophet, saying,

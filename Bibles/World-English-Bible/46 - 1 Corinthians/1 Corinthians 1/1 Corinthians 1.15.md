@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-lest any man should say that ye were baptized into my name.
+so that no one should say that I had baptized you into my own name.

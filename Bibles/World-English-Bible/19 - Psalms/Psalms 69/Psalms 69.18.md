@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Draw nigh unto my soul, and redeem it: Ransom me because of mine enemies.
+Draw near to my soul, and redeem it. Ransom me because of my enemies.

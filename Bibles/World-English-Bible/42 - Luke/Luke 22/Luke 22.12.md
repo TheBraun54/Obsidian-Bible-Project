@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he will show you a large upper room furnished: there make ready.
+He will show you a large, furnished upper room. Make preparations there."

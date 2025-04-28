@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His going forth is from the end of the heavens, And his circuit unto the ends of it; And there is nothing hid from the heat thereof.
+His going forth is from the end of the heavens, his circuit to its ends; There is nothing hidden from its heat.

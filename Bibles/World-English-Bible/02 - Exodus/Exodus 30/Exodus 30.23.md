@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take thou also unto thee the chief spices: of flowing myrrh five hundred [shekels], and of sweet cinnamon half so much, even two hundred and fifty, and of sweet calamus two hundred and fifty,
+"Also take fine spices: of liquid myrrh, five hundred shekels; and of fragrant cinnamon half as much, even two hundred and fifty; and of fragrant cane, two hundred and fifty;

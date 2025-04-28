@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But there came a man of God to him, saying, O king, let not the army of Israel go with thee; for Jehovah is not with Israel, [to wit], with all the children of Ephraim.
+A man of God came to him, saying, "O king, don't let the army of Israel go with you; for Yahweh is not with Israel, with all the children of Ephraim.

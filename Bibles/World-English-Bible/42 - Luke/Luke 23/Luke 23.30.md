@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall they begin to say to the mountains, Fall on us; and to the hills, Cover us.
+Then they will begin to tell the mountains, 'Fall on us!' and tell the hills, 'Cover us.'

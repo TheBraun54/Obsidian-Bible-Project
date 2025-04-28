@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore shall a man leave his father and his mother, and shall cleave unto his wife: and they shall be one flesh.
+Therefore a man will leave his father and his mother, and will join with his wife, and they will be one flesh.

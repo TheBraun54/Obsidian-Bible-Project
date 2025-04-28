@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, as wild asses in the desert They go forth to their work, seeking diligently for food; The wilderness [yieldeth] them bread for their children.
+Behold, as wild donkeys in the desert, they go forth to their work, seeking diligently for food. The wilderness yields them bread for their children.

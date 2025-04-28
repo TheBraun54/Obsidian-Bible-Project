@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But this [I say], He that soweth sparingly shall reap also sparingly; and he that soweth bountifully shall reap also bountifully.
+Remember this: he who sows sparingly will also reap sparingly. He who sows bountifully will also reap bountifully.

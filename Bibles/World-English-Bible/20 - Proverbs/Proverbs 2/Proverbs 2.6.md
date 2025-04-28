@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah giveth wisdom; Out of his mouth [cometh] knowledge and understanding:
+For Yahweh gives wisdom. Out of his mouth comes knowledge and understanding.

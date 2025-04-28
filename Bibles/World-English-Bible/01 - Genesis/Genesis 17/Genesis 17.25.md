@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ishmael his son was thirteen years old, when he was circumcised in the flesh of his foreskin.
+Ishmael, his son, was thirteen years old when he was circumcised in the flesh of his foreskin.

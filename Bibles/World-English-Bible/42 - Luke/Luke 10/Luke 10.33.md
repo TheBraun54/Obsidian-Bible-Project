@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But a certain Samaritan, as he journeyed, came where he was: and when he saw him, he was moved with compassion,
+But a certain Samaritan, as he traveled, came where he was. When he saw him, he was moved with compassion,

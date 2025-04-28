@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely thou wilt slay the wicked, O God: Depart from me therefore, ye bloodthirsty men.
+If only you, God, would kill the wicked. Get away from me, you bloodthirsty men!

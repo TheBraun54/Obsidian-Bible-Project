@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Gideon said unto him, Oh, my lord, if Jehovah is with us, why then is all this befallen us? and where are all his wondrous works which our fathers told us of, saying, Did not Jehovah bring us up from Egypt? but now Jehovah hath cast us off, and delivered us into the hand of Midian.
+Gideon said to him, "Oh, my lord, if Yahweh is with us, why then has all this happened to us? Where are all his wondrous works which our fathers told us of, saying, 'Didn't Yahweh bring us up from Egypt?' But now Yahweh has cast us off, and delivered us into the hand of Midian."

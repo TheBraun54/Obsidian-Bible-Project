@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou wilt send our brother with us, we will go down and buy thee food:
+If you'll send our brother with us, we'll go down and buy you food,

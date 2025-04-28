@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-One of his disciples, Andrew, Simon Peter's brother, saith unto him,
+One of his disciples, Andrew, Simon Peter's brother, said to him,

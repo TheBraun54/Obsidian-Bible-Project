@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul and all the people that were with him were gathered together, and came to the battle: and, behold, every man's sword was against his fellow, [and there was] a very great discomfiture.
+Saul and all the people who were with him were gathered together, and came to the battle: and behold, every man's sword was against his fellow, [and there was] a very great confusion.

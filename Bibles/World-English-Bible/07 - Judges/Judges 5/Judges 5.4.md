@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah, when thou wentest forth out of Seir, When thou marchedst out of the field of Edom, The earth trembled, the heavens also dropped, Yea, the clouds dropped water.
+"Yahweh, when you went forth out of Seir, when you marched out of the field of Edom, the earth trembled, the sky also dropped. Yes, the clouds dropped water.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My God with his lovingkindness will meet me: God will let me see [my desire] upon mine enemies.
+My God will go before me with his loving kindness. God will let me look at my enemies in triumph.

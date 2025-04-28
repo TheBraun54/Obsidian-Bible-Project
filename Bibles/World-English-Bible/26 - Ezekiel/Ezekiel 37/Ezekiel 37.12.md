@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore prophesy, and say unto them, Thus saith the Lord Jehovah: Behold, I will open your graves, and cause you to come up out of your graves, O my people; and I will bring you into the land of Israel.
+Therefore prophesy, and tell them, Thus says the Lord Yahweh: Behold, I will open your graves, and cause you to come up out of your graves, my people; and I will bring you into the land of Israel.

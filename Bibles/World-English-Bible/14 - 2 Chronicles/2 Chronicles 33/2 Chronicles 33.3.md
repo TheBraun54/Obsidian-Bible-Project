@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he built again the high places which Hezekiah his father had broken down; and he reared up altars for the Baalim, and made Asheroth, and worshipped all the host of heaven, and served them.
+For he built again the high places which Hezekiah his father had broken down; and he reared up altars for the Baals, and made Asheroth, and worshiped all the army of the sky, and served them.

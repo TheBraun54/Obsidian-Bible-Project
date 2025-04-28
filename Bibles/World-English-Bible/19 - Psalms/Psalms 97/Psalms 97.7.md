@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let all them be put to shame that serve graven images, That boast themselves of idols: Worship him, all ye gods.
+Let all them be shamed who serve engraved images, who boast in their idols. Worship him, all you gods!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-beseeching us with much entreaty in regard of this grace and the fellowship in the ministering to the saints:
+begging us with much entreaty to receive this grace and the fellowship in the service to the saints.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and strip Aaron of his garments, and put them upon Eleazar his son: and Aaron shall be gathered [unto his people], and shall die there.
+and strip Aaron of his garments, and put them on Eleazar his son: and Aaron shall be gathered [to his people], and shall die there."

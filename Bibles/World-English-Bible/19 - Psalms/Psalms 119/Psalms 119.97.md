@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-MEM. Oh how love I thy law! It is my meditation all the day.
+How I love your law! It is my meditation all day.

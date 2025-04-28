@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Penuel the father of Gedor, and Ezer the father of Hushah. These are the sons of Hur, the first-born of Ephrathah, the father of Beth-lehem.
+and Penuel the father of Gedor, and Ezer the father of Hushah. These are the sons of Hur, the firstborn of Ephrathah, the father of Bethlehem.

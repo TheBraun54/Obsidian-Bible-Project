@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the vale of Siddim was full of slime pits; and the kings of Sodom and Gomorrah fled, and they fell there, and they that remained fled to the mountain.
+Now the valley of Siddim was full of tar pits; and the kings of Sodom and Gomorrah fled, and they fell there, and those who remained fled to the hills.

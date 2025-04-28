@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit there was no reckoning made with them of the money that was delivered into their hand; for they dealt faithfully.
+However there was no accounting made with them of the money that was delivered into their hand; for they dealt faithfully."

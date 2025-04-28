@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who art thou that judgest the servant of another? to his own lord he standeth or falleth. Yea, he shall be made to stand; for the Lord hath power to make him stand.
+Who are you who judge another's servant? To his own lord he stands or falls. Yes, he will be made to stand, for God has power to make him stand.

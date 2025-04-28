@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be a perpetual statute unto them: and he that sprinkleth the water for impurity shall wash his clothes, and he that toucheth the water for impurity shall be unclean until even.
+It shall be a perpetual statute to them: and he who sprinkles the water for impurity shall wash his clothes, and he who touches the water for impurity shall be unclean until evening.

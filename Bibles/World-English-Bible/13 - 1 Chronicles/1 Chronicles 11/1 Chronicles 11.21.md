@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of the three, he was more honorable than the two, and was made their captain: howbeit he attained not to the [first] three.
+Of the three, he was more honorable than the two, and was made their captain: however he didn't attain to the [first] three.

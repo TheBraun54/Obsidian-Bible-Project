@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The young men saw me and hid themselves, And the aged rose up and stood;
+The young men saw me and hid themselves. The aged rose up and stood.

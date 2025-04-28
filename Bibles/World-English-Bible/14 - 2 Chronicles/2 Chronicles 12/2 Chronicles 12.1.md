@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the kingdom of Rehoboam was established, and he was strong, that he forsook the law of Jehovah, and all Israel with him.
+It happened, when the kingdom of Rehoboam was established, and he was strong, that he forsook the law of Yahweh, and all Israel with him.

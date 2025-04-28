@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then the priest shall reckon unto him the worth of thy estimation unto the year of jubilee: and he shall give thine estimation in that day, as a holy thing unto Jehovah.
+then the priest shall reckon to him the worth of your valuation up to the Year of Jubilee; and he shall give your valuation on that day, as a holy thing to Yahweh.

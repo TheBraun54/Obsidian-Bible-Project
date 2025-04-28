@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that I may not seem as if I would terrify you by my letters.
+that I may not seem as if I desire to terrify you by my letters.

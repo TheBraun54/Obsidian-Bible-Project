@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith Jehovah of hosts: Because ye have not heard my words,
+Therefore thus says Yahweh of Armies: Because you have not heard my words,

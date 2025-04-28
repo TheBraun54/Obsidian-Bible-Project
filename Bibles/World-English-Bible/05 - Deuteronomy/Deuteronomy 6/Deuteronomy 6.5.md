@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt love Jehovah thy God with all thy heart, and with all thy soul, and with all thy might.
+and you shall love Yahweh your God with all your heart, and with all your soul, and with all your might.

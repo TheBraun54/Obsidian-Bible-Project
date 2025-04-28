@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Brethren, pray for us.
+Brothers, pray for us.

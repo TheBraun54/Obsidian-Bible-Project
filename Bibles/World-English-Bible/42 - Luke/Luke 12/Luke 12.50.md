@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I have a baptism to be baptized with; and how am I straitened till it be accomplished!
+But I have a baptism to be baptized with, and how distressed I am until it is accomplished!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto me, They have well said that which they have spoken.
+Yahweh said to me, "They have well said that which they have spoken.

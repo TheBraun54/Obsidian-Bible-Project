@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I have made thy face hard against their faces, and thy forehead hard against their foreheads.
+Behold, I have made your face hard against their faces, and your forehead hard against their foreheads.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said unto them, We cannot do this thing, to give our sister to one that is uncircumcised; for that were a reproach unto us.
+and said to them, "We can't do this thing, to give our sister to one who is uncircumcised; for that is a reproach to us.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, What shall I give thee? And Jacob said, Thou shalt not give me aught: if thou wilt do this thing for me, I will again feed thy flock and keep it.
+He said, "What shall I give you?" Jacob said, "You shall not give me anything. If you will do this thing for me, I will again feed your flock and keep it.

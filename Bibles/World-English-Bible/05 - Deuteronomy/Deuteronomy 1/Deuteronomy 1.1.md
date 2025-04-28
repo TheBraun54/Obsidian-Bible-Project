@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the words which Moses spake unto all Israel beyond the Jordan in the wilderness, in the Arabah over against Suph, between Paran, and Tophel, and Laban, and Hazeroth, and Di-zahab.
+These are the words which Moses spoke to all Israel beyond the Jordan in the wilderness, in the Arabah over against Suph, between Paran, and Tophel, and Laban, and Hazeroth, and Dizahab.

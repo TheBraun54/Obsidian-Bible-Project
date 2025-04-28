@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath made bare his holy arm in the eyes of all the nations; and all the ends of the earth have seen the salvation of our God.
+Yahweh has made bare his holy arm in the eyes of all the nations; and all the ends of the earth have seen the salvation of our God.

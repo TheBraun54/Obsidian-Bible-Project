@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of the Jews five times received I forty [stripes] save one.
+Five times from the Jews I received forty stripes minus one.

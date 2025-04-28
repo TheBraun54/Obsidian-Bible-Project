@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the cloud covered the tent of meeting, and the glory of Jehovah filled the tabernacle.
+Then the cloud covered the Tent of Meeting, and the glory of Yahweh filled the tabernacle.

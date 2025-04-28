@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the day began to wear away; and the twelve came, and said unto him, Send the multitude away, that they may go into the villages and country round about, and lodge, and get provisions: for we are here in a desert place.
+The day began to wear away; and the twelve came, and said to him, "Send the multitude away, that they may go into the surrounding villages and farms, and lodge, and get food, for we are here in a deserted place."

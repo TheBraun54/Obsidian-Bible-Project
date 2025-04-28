@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto Hobab, the son of Reuel the Midianite, Moses' father-in-law, We are journeying unto the place of which Jehovah said, I will give it you: come thou with us, and we will do thee good; for Jehovah hath spoken good concerning Israel.
+Moses said to Hobab, the son of Reuel the Midianite, Moses' father-in-law, "We are journeying to the place of which Yahweh said, 'I will give it to you.' Come with us, and we will treat you well; for Yahweh has spoken good concerning Israel."

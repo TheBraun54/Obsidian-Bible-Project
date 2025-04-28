@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah unto the house of Israel, Seek ye me, and ye shall live;
+For thus says Yahweh to the house of Israel: "Seek me, and you will live;

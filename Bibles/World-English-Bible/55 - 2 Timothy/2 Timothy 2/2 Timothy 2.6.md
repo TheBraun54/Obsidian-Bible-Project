@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The husbandmen that laboreth must be the first to partake of the fruits.
+The farmers who labor must be the first to get a share of the crops.

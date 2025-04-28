@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mine eye affecteth my soul, because of all the daughters of my city.
+My eye affects my soul, because of all the daughters of my city.

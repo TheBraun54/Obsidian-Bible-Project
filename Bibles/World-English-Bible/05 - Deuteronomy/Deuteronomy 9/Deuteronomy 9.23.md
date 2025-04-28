@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Jehovah sent you from Kadesh-barnea, saying, Go up and possess the land which I have given you; then ye rebelled against the commandment of Jehovah your God, and ye believed him not, nor hearkened to his voice.
+When Yahweh sent you from Kadesh Barnea, saying, "Go up and possess the land which I have given you;" then you rebelled against the commandment of Yahweh your God, and you didn't believe him, nor listen to his voice.

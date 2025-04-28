@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast set at nought all them that err from thy statutes; For their deceit is falsehood.
+You reject all those who stray from your statutes, for their deceit is in vain.

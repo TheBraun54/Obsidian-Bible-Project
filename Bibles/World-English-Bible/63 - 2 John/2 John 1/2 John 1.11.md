@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for he that giveth him greeting partaketh in his evil works.
+for he who welcomes him participates in his evil works.

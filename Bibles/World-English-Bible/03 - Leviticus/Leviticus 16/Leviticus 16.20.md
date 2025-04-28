@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he hath made an end of atoning for the holy place, and the tent of meeting, and the altar, he shall present the live goat:
+"When he has made an end of atoning for the Holy Place, the Tent of Meeting, and the altar, he shall present the live goat.

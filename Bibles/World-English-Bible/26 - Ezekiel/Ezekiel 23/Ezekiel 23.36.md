@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah said moreover unto me: Son of man, wilt thou judge Oholah and Oholibah? then declare unto them their abominations.
+Yahweh said moreover to me: Son of man, will you judge Oholah and Oholibah? then declare to them their abominations.

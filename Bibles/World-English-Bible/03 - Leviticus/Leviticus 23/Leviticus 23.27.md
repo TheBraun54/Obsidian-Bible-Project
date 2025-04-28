@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit on the tenth day of this seventh month is the day of atonement: it shall be a holy convocation unto you, and ye shall afflict your souls; and ye shall offer an offering made by fire unto Jehovah.
+"However on the tenth day of this seventh month is the day of atonement: it shall be a holy convocation to you, and you shall afflict yourselves; and you shall offer an offering made by fire to Yahweh.

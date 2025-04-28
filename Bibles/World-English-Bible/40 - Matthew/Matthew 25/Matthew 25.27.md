@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thou oughtest therefore to have put my money to the bankers, and at my coming I should have received back mine own with interest.
+You ought therefore to have deposited my money with the bankers, and at my coming I should have received back my own with interest.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she conceived again, and bare a son; and she called his name Onan.
+She conceived again, and bore a son; and she named him Onan.

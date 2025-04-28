@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah was with Judah; and drove out [the inhabitants of] the hill-country; for he could not drive out the inhabitants of the valley, because they had chariots of iron.
+Yahweh was with Judah; and drove out [the inhabitants of] the hill country; for he could not drive out the inhabitants of the valley, because they had chariots of iron.

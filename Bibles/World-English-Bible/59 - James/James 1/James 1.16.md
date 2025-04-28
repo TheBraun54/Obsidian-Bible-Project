@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not deceived, my beloved brethren.
+Don't be deceived, my beloved brothers.

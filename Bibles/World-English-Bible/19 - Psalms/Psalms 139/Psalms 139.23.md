@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Search me, O God, and know my heart: Try me, and know my thoughts;
+Search me, God, and know my heart. Try me, and know my thoughts.

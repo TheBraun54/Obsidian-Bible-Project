@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then I will give your rains in their season, and the land shall yield its increase, and the trees of the field shall yield their fruit.
+then I will give you your rains in their season, and the land shall yield its increase, and the trees of the field shall yield their fruit.

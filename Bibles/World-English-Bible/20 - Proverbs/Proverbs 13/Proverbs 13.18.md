@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Poverty and shame [shall be to] him that refuseth correction; But he that regardeth reproof shall be honored.
+Poverty and shame come to him who refuses discipline, but he who heeds correction shall be honored.

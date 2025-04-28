@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they speak not peace; But they devise deceitful words against them that are quiet in the land.
+For they don't speak peace, but they devise deceitful words against those who are quiet in the land.

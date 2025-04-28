@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Show us thy lovingkindness, O Jehovah, And grant us thy salvation.
+Show us your loving kindness, Yahweh. Grant us your salvation.

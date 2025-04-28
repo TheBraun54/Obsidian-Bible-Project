@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She maketh linen garments and selleth them, And delivereth girdles unto the merchant.
+She makes linen garments and sells them, and delivers sashes to the merchant.

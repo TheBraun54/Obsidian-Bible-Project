@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If he offer a lamb for his oblation, then shall he offer it before Jehovah;
+If he offers a lamb for his offering, then he shall offer it before Yahweh;

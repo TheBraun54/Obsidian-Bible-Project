@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mountains and all hills; Fruitful trees and all cedars;
+mountains and all hills; fruit trees and all cedars;

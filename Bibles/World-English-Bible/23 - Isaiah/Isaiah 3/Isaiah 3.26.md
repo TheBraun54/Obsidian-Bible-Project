@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And her gates shall lament and mourn; and she shall be desolate and sit upon the ground.
+Her gates shall lament and mourn; and she shall be desolate and sit on the ground.

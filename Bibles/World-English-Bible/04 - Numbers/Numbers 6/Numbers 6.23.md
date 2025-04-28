@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto Aaron and unto his sons, saying, On this wise ye shall bless the children of Israel: ye shall say unto them,
+"Speak to Aaron and to his sons, saying, 'This is how you shall bless the children of Israel.' You shall tell them,

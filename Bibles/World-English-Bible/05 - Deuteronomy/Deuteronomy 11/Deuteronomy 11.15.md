@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will give grass in thy fields for thy cattle, and thou shalt eat and be full.
+I will give grass in your fields for your livestock, and you shall eat and be full.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the disciples went forth, and came into the city, and found as he had said unto them: and they made ready the passover.
+His disciples went out, and came into the city, and found things as he had said to them, and they prepared the Passover.

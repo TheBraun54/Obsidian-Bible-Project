@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus perceiving it saith unto them, Why reason ye, because ye have no bread? do ye not yet perceive, neither understand? have ye your heart hardened?
+Jesus, perceiving it, said to them, "Why do you reason that it's because you have no bread? Don't you perceive yet, neither understand? Is your heart still hardened?

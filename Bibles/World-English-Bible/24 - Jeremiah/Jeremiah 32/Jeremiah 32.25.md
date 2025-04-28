@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou hast said unto me, O Lord Jehovah, Buy thee the field for money, and call witnesses; whereas the city is given into the hand of the Chaldeans.
+You have said to me, Lord Yahweh, Buy the field for money, and call witnesses; whereas the city is given into the hand of the Chaldeans.

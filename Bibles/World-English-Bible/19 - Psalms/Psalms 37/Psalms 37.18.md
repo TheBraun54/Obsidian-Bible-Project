@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah knoweth the days of the perfect; And their inheritance shall be for ever.
+Yahweh knows the days of the perfect. Their inheritance shall be forever.

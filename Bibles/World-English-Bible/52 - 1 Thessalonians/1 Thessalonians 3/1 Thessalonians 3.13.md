@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to the end he may establish your hearts unblameable in holiness before our God and Father, at the coming of our Lord Jesus with all his saints.
+to the end he may establish your hearts blameless in holiness before our God and Father, at the coming of our Lord Jesus with all his saints.

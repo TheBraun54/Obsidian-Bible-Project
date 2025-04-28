@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brought them up into his house, and set food before them, and rejoiced greatly, with all his house, having believed in God.
+He brought them up into his house, and set food before them, and rejoiced greatly, with all his household, having believed in God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These were the appointed cities for all the children of Israel, and for the stranger that sojourneth among them, that whosoever killeth any person unwittingly might flee thither, and not die by the hand of the avenger of blood, until he stood before the congregation.
+These were the appointed cities for all the children of Israel, and for the alien who lives among them, that whoever kills any person unintentionally might flee there, and not die by the hand of the avenger of blood, until he stands before the congregation.

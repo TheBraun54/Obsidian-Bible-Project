@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they sought to lay hold on him, they feared the multitudes, because they took him for a prophet.
+When they sought to seize him, they feared the multitudes, because they considered him to be a prophet.

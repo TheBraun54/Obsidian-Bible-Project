@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore answered them and said, My teaching is not mine, but his that sent me.
+Jesus therefore answered them, "My teaching is not mine, but his who sent me.

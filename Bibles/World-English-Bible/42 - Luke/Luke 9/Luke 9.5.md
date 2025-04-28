@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as many as receive you not, when ye depart from that city, shake off the dust from your feet for a testimony against them.
+As many as don't receive you, when you depart from that city, shake off even the dust from your feet for a testimony against them."

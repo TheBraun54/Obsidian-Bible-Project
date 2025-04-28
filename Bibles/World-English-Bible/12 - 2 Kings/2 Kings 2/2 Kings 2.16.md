@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto him, Behold now, there are with thy servants fifty strong men; let them go, we pray thee, and seek thy master, lest the Spirit of Jehovah hath taken him up, and cast him upon some mountain, or into some valley. And he said, Ye shall not send.
+They said to him, "See now, there are with your servants fifty strong men. Please let them go and seek your master. Perhaps the Spirit of Yahweh has taken him up, and put him on some mountain, or into some valley. He said, "You shall not send them."

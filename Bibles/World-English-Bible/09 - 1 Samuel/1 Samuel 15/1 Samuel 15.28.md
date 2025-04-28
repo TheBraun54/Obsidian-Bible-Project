@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel said unto him, Jehovah hath rent the kingdom of Israel from thee this day, and hath given it to a neighbor of thine, that is better than thou.
+Samuel said to him, "Yahweh has torn the kingdom of Israel from you this day, and has given it to a neighbor of yours who is better than you.

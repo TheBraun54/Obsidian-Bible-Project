@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he cometh, and findeth them sleeping, and saith unto Peter, Simon, sleepest thou? couldest thou not watch one hour?
+He came and found them sleeping, and said to Peter, "Simon, are you sleeping? Couldn't you watch one hour?

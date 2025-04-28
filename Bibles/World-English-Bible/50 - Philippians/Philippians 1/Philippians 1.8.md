@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For God is my witness, how I long after you all in the tender mercies of Christ Jesus.
+For God is my witness, how I long after all of you in the tender mercies of Christ Jesus.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses took them from off their hands, and burnt them on the altar upon the burnt-offering: they were a consecration for a sweet savor: it was an offering made by fire unto Jehovah.
+Moses took them from their hands, and burned them on the altar on the burnt offering. They were a consecration for a pleasant aroma. It was an offering made by fire to Yahweh.

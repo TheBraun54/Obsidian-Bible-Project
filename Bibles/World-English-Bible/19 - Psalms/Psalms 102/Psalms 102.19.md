@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he hath looked down from the height of his sanctuary; From heaven did Jehovah behold the earth;
+For he has looked down from the height of his sanctuary. From heaven, Yahweh saw the earth;

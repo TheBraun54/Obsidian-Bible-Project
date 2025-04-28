@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham gat up early in the morning to the place where he had stood before Jehovah:
+Abraham got up early in the morning to the place where he had stood before Yahweh.

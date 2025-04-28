@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Revile not the king, no, not in thy thought; and revile not the rich in thy bedchamber: for a bird of the heavens shall carry the voice, and that which hath wings shall tell the matter.
+Don't curse the king, no, not in your thoughts; and don't curse the rich in your bedroom: for a bird of the sky may carry your voice, and that which has wings may tell the matter.

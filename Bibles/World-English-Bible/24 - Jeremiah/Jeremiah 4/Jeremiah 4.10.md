@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said I, Ah, Lord Jehovah! surely thou hast greatly deceived this people and Jerusalem, saying, Ye shall have peace; whereas the sword reacheth unto the life.
+Then I said, "Ah, Lord Yahweh! Surely you have greatly deceived this people and Jerusalem, saying, 'You shall have peace;' whereas the sword reaches to the heart."

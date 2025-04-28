@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath not dealt so with any nation; And as for his ordinances, they have not known them. Praise ye Jehovah.
+He has not done this for just any nation. They don't know his ordinances. Praise Yah!

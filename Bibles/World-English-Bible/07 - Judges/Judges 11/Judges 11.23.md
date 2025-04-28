@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So now Jehovah, the God of Israel, hath dispossessed the Amorites from before his people Israel, and shouldest thou possess them?
+So now Yahweh, the God of Israel, has dispossessed the Amorites from before his people Israel, and should you possess them?

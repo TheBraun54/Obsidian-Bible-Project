@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah sent Jerubbaal, and Bedan, and Jephthah, and Samuel, and delivered you out of the hand of your enemies on every side; and ye dwelt in safety.
+Yahweh sent Jerubbaal, and Bedan, and Jephthah, and Samuel, and delivered you out of the hand of your enemies on every side; and you lived in safety.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in the day when God shall judge the secrets of men, according to my gospel, by Jesus Christ.
+in the day when God will judge the secrets of men, according to my Good News, by Jesus Christ.

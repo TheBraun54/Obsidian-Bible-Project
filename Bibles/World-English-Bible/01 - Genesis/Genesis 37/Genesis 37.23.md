@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Joseph was come unto his brethren, that they stripped Joseph of his coat, the coat of many colors that was on him;
+It happened, when Joseph came to his brothers, that they stripped Joseph of his coat, the coat of many colors that was on him;

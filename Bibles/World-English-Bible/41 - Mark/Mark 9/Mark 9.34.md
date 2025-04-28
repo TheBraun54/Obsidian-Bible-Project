@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they held their peace: for they had disputed one with another on the way, who [was] the greatest.
+But they were silent, for they had disputed one with another on the way about who was the greatest.

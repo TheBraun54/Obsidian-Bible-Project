@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and in nothing affrighted by the adversaries: which is for them an evident token of perdition, but of your salvation, and that from God;
+and in nothing frightened by the adversaries, which is for them a proof of destruction, but to you of salvation, and that from God.

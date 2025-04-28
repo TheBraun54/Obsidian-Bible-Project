@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the days of Lamech were seven hundred seventy and seven years: and he died.
+All the days of Lamech were seven hundred seventy-seven years, then he died.

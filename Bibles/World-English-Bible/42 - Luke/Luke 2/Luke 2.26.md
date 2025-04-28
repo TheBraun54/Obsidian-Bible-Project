@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it had been revealed unto him by the Holy Spirit, that he should not see death, before he had seen the Lord's Christ.
+It had been revealed to him by the Holy Spirit that he should not see death before he had seen the Lord's Christ.

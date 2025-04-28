@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then there come to Jesus from Jerusalem Pharisees and scribes, saying,
+Then Pharisees and scribes came to Jesus from Jerusalem, saying,

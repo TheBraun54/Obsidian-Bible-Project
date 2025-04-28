@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be on the day when ye shall pass over the Jordan unto the land which Jehovah thy God giveth thee, that thou shalt set thee up great stones, and plaster them with plaster:
+It shall be on the day when you shall pass over the Jordan to the land which Yahweh your God gives you, that you shall set yourself up great stones, and plaster them with plaster:

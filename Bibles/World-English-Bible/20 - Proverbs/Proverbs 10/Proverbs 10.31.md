@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The mouth of the righteous bringeth forth wisdom; But the perverse tongue shall be cut off.
+The mouth of the righteous brings forth wisdom, but the perverse tongue will be cut off.

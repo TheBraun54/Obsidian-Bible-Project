@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The iniquity of Ephraim is bound up; his sin is laid up in store.
+The guilt of Ephraim is stored up. His sin is stored up.

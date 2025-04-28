@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I applied my heart to seek and to search out by wisdom concerning all that is done under heaven: it is a sore travail that God hath given to the sons of men to be exercised therewith.
+I applied my heart to seek and to search out by wisdom concerning all that is done under the sky. It is a heavy burden that God has given to the sons of men to be afflicted with.

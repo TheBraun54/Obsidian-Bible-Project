@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-what think ye? They answered and said, He is worthy of death.
+What do you think?" They answered, "He is worthy of death!"

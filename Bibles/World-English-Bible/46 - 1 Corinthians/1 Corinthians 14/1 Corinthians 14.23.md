@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If therefore the whole church be assembled together and all speak with tongues, and there come in men unlearned or unbelieving, will they not say that ye are mad?
+If therefore the whole assembly is assembled together and all speak with other languages, and unlearned or unbelieving people come in, won't they say that you are crazy?

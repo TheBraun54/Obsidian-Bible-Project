@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel served Eglon the king of Moab eighteen years.
+The children of Israel served Eglon the king of Moab eighteen years.

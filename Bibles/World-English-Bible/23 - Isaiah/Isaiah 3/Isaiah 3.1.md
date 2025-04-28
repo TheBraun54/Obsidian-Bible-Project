@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, behold, the Lord, Jehovah of hosts, doth take away from Jerusalem and from Judah stay and staff, the whole stay of bread, and the whole stay of water;
+For, behold, the Lord, Yahweh of Armies, takes away from Jerusalem and from Judah supply and support, the whole supply of bread, and the whole supply of water;

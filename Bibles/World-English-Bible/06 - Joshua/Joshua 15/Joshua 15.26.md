@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Amam, and Shema, and Moladah,
+Amam, Shema, Moladah,

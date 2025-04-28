@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that trusteth in his riches shall fall; But the righteous shall flourish as the green leaf.
+He who trusts in his riches will fall, but the righteous shall flourish as the green leaf.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take his garment that is surety for a stranger; And hold him in pledge [that is surety] for a foreign woman.
+Take his garment when he puts up collateral for a stranger. Hold it for a wayward woman!

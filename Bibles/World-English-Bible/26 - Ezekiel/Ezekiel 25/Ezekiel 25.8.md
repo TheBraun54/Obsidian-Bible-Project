@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith the Lord Jehovah: Because that Moab and Seir do say, Behold, the house of Judah is like unto all the nations;
+Thus says the Lord Yahweh: Because Moab and Seir say, Behold, the house of Judah is like all the nations;

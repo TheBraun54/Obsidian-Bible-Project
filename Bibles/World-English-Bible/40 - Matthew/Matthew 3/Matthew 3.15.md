@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus answering said unto him, Suffer [it] now: for thus it becometh us to fulfil all righteousness. Then he suffereth him.
+But Jesus, answering, said to him, "Allow it now, for this is the fitting way for us to fulfill all righteousness." Then he allowed him.

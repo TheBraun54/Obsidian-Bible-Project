@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is that which belongeth unto the Levites: from twenty and five years old and upward they shall go in to wait upon the service in the work of the tent of meeting:
+"This is that which belongs to the Levites: from twenty-five years old and upward they shall go in to wait on the service in the work of the Tent of Meeting;

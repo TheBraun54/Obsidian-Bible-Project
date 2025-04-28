@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To call to them that pass by, Who go right on their ways:
+To call to those who pass by, who go straight on their ways,

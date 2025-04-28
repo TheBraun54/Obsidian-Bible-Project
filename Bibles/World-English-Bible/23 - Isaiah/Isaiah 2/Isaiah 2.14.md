@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and upon all the high mountains, and upon all the hills that are lifted up,
+For all the high mountains, for all the hills that are lifted up,

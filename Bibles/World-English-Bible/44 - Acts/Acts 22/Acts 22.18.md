@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and saw him saying unto me, Make haste, and get thee quickly out of Jerusalem; because they will not receive of thee testimony concerning me.
+and saw him saying to me, 'Hurry and get out of Jerusalem quickly, because they will not receive testimony concerning me from you.'

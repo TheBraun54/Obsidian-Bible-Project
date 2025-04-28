@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Stand therefore, having girded your loins with truth, and having put on the breastplate of righteousness,
+Stand therefore, having the utility belt of truth buckled around your waist, and having put on the breastplate of righteousness,

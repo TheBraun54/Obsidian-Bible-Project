@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Ahab heard those words, that he rent his clothes, and put sackcloth upon his flesh, and fasted, and lay in sackcloth, and went softly.
+It happened, when Ahab heard those words, that he tore his clothes, and put sackcloth on his flesh, and fasted, and lay in sackcloth, and went softly.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he carried me away in the Spirit into a wilderness: and I saw a woman sitting upon a scarlet-colored beast, full of names of blasphemy, having seven heads and ten horns.
+He carried me away in the Spirit into a wilderness. I saw a woman sitting on a scarlet-colored animal, full of blasphemous names, having seven heads and ten horns.

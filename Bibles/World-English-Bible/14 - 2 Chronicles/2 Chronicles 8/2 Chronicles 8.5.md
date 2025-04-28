@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also he built Beth-horon the upper, and Beth-horon the nether, fortified cities, with walls, gates, and bars;
+Also he built Beth Horon the upper, and Beth Horon the lower, fortified cities, with walls, gates, and bars;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But to you I say, to the rest that are in Thyatira, as many as have not this teaching, who know not the deep things of Satan, as they are wont to say; I cast upon you none other burden.
+But to you I say, to the rest who are in Thyatira, as many as don't have this teaching, who don't know what some call 'the deep things of Satan,' to you I say, I am not putting any other burden on you.

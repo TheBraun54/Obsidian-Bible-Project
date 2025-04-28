@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea and in your law it is written, that the witness of two men is true.
+It's also written in your law that the testimony of two people is valid.

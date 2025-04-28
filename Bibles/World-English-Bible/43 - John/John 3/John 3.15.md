@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that whosoever believeth may in him have eternal life.
+that whoever believes in him should not perish, but have eternal life.

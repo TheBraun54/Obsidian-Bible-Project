@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and all the congregation of the children of Israel shall be forgiven, and the stranger that sojourneth among them; for in respect of all the people it was done unwittingly.
+and all the congregation of the children of Israel shall be forgiven, and the stranger who lives as a foreigner among them; for in respect of all the people it was done unwittingly.

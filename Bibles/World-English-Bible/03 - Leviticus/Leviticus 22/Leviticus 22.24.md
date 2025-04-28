@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That which hath its stones bruised, or crushed, or broken, or cut, ye shall not offer unto Jehovah; neither shall ye do [thus] in your land.
+That which has its testicles bruised, crushed, broken, or cut, you shall not offer to Yahweh; neither shall you do thus in your land.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Do it the second time; and they did it the second time. And he said, Do it the third time; and they did it the third time.
+He said, "Do it a second time;" and they did it the second time. He said, "Do it a third time;" and they did it the third time.

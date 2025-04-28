@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moab is my washpot; Upon Edom will I cast my shoe; Over Philistia will I shout.
+Moab is my wash pot. I will toss my sandal on Edom. I will shout over Philistia."

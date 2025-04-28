@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let my supplication come before thee: Deliver me according to thy word.
+Let my supplication come before you. Deliver me according to your word.

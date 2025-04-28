@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the appointed sign between the men of Israel and the liers-in-wait was, that they should make a great cloud of smoke rise up out of the city.
+Now the appointed sign between the men of Israel and the ambushers was that they should make a great cloud of smoke rise up out of the city.

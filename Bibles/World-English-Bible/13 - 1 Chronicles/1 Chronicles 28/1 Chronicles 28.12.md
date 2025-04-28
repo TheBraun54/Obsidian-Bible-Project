@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the pattern of all that he had by the Spirit, for the courts of the house of Jehovah, and for all the chambers round about, for the treasuries of the house of God, and for the treasuries of the dedicated things;
+and the pattern of all that he had by the Spirit, for the courts of the house of Yahweh, and for all the surrounding rooms, for the treasuries of the house of God, and for the treasuries of the dedicated things;

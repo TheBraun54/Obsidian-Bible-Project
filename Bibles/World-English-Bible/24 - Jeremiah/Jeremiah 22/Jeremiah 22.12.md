@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But in the place whither they have led him captive, there shall he die, and he shall see this land no more.
+But in the place where they have led him captive, there shall he die, and he shall see this land no more.

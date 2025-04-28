@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then the priest shall look; and, behold, if the bright spots in the skin of their flesh be of a dull white, it is a tetter, it hath broken out in the skin; he is clean.
+then the priest shall examine them; and behold, if the bright spots on the skin of their body are a dull white, it is a harmless rash, it has broken out in the skin; he is clean.

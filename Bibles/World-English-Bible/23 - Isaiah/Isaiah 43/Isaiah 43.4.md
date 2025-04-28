@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Since thou hast been precious in my sight, [and] honorable, and I have loved thee; therefore will I give men in thy stead, and peoples instead of thy life.
+Since you have been precious and honored in my sight, and I have loved you; therefore I will give people in your place, and nations instead of your life.

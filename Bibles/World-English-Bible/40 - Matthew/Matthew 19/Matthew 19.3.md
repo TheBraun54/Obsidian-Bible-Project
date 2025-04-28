@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came unto him Pharisees, trying him, and saying, Is it lawful [for a man] to put away his wife for every cause?
+Pharisees came to him, testing him, and saying, "Is it lawful for a man to divorce his wife for any reason?"

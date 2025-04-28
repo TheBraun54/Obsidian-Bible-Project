@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[It shall be] for the priests that are sanctified of the sons of Zadok, that have kept my charge, that went not astray when the children of Israel went astray, as the Levites went astray. [
+[It shall be] for the priests who are sanctified of the sons of Zadok, who have kept my instruction, who didn't go astray when the children of Israel went astray, as the Levites went astray.

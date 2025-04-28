@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And furthermore ye have sent for men that come from far, unto whom a messenger was sent, and, lo, they came; for whom thou didst wash thyself, paint thine eyes, and deck thyself with ornaments, [
+Furthermore you have sent for men who come from far, to whom a messenger was sent, and behold, they came; for whom you did wash yourself, paint your eyes, and decorate yourself with ornaments,

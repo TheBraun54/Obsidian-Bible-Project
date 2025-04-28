@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the sons of Zilpah, whom Laban gave to Leah his daughter; and these she bare unto Jacob, even sixteen souls.
+These are the sons of Zilpah, whom Laban gave to Leah, his daughter, and these she bore to Jacob, even sixteen souls.

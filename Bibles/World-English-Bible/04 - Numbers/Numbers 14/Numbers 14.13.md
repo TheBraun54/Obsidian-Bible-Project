@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto Jehovah, Then the Egyptians will hear it; for thou broughtest up this people in thy might from among them;
+Moses said to Yahweh, "Then the Egyptians will hear it; for you brought up this people in your might from among them;

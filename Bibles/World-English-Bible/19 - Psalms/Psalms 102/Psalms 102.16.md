@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah hath built up Zion; He hath appeared in his glory.
+For Yahweh has built up Zion. He has appeared in his glory.

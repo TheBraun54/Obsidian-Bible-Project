@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jokmeam with its suburbs, and Beth-horon with its suburbs,
+and Jokmeam with its suburbs, and Beth Horon with its suburbs,

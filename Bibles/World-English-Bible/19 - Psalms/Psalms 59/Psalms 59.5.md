@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even thou, O Jehovah God of hosts, the God of Israel, Arise to visit all the nations: Be not merciful to any wicked transgressors. {{Selah
+You, Yahweh God of Armies, the God of Israel, rouse yourself to punish the nations. Show no mercy to the wicked traitors. Selah.

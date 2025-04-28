@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I think it right, as long as I am in this tabernacle, to stir you up by putting you in remembrance;
+I think it right, as long as I am in this tent, to stir you up by reminding you;

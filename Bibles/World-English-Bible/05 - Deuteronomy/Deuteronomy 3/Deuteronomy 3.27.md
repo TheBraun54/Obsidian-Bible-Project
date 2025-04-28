@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Get thee up unto the top of Pisgah, and lift up thine eyes westward, and northward, and southward, and eastward, and behold with thine eyes: for thou shalt not go over this Jordan.
+Go up to the top of Pisgah, and lift up your eyes westward, and northward, and southward, and eastward, and see with your eyes: for you shall not go over this Jordan.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said he unto me, Son of man, hast thou seen what the elders of the house of Israel do in the dark, every man in his chambers of imagery? for they say, Jehovah seeth us not; Jehovah hath forsaken the land.
+Then he said to me, Son of man, have you seen what the elders of the house of Israel do in the dark, every man in his rooms of imagery? for they say, Yahweh doesn't see us; Yahweh has forsaken the land.

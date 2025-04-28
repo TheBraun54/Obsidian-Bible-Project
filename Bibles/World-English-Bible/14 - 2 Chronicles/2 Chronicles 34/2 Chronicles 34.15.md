@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hilkiah answered and said to Shaphan the scribe, I have found the book of the law in the house of Jehovah. And Hilkiah delivered the book to Shaphan.
+Hilkiah answered Shaphan the scribe, "I have found the book of the law in the house of Yahweh." Hilkiah delivered the book to Shaphan.

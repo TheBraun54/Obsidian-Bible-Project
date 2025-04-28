@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou gavest me no kiss: but she, since the time I came in, hath not ceased to kiss my feet.
+You gave me no kiss, but she, since the time I came in, has not ceased to kiss my feet.

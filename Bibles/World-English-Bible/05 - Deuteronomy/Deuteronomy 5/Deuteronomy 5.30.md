@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go say to them, Return ye to your tents.
+"Go tell them, Return to your tents.

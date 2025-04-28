@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Jews answered him, For a good work we stone thee not, but for blasphemy; and because that thou, being a man, makest thyself God.
+The Jews answered him, "We don't stone you for a good work, but for blasphemy: because you, being a man, make yourself God."

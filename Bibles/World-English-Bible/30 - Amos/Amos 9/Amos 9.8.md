@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the eyes of the Lord Jehovah are upon the sinful kingdom, and I will destroy it from off the face of the earth; save that I will not utterly destroy the house of Jacob, saith Jehovah.
+Behold, the eyes of the Lord Yahweh are on the sinful kingdom, and I will destroy it from off the surface of the earth; except that I will not utterly destroy the house of Jacob," says Yahweh.

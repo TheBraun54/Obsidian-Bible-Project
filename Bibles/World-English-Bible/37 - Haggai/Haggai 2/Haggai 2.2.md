@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak now to Zerubbabel the son of Shealtiel, governor of Judah, and to Joshua the son of Jehozadak, the high priest, and to the remnant of the people, saying,
+"Speak now to Zerubbabel, the son of Shealtiel, governor of Judah, and to Joshua, the son of Jehozadak, the high priest, and to the remnant of the people, saying,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the cubit on the one side, and the cubit on the other side, of that which remaineth in the length of the curtains of the tent, shall hang over the sides of the tabernacle on this side and on that side, to cover it.
+The cubit on the one side, and the cubit on the other side, of that which remains in the length of the curtains of the tent, shall hang over the sides of the tabernacle on this side and on that side, to cover it.

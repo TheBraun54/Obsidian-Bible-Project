@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ye shall break down their altars, and dash in pieces their pillars, and burn their Asherim with fire; and ye shall hew down the graven images of their gods; and ye shall destroy their name out of that place.
+and you shall break down their altars, and dash in pieces their pillars, and burn their Asherim with fire; and you shall cut down the engraved images of their gods; and you shall destroy their name out of that place.

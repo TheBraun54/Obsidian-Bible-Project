@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elkanah her husband said unto her, Hannah, why weepest thou? and why eatest thou not? and why is thy heart grieved? am not I better to thee than ten sons?
+Elkanah her husband said to her, "Hannah, why do you weep? Why don't you eat? Why is your heart grieved? Am I not better to you than ten sons?"

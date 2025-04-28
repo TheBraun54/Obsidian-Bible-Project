@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But an angel of the Lord by night opened the prison doors, and brought them out, and said,
+But an angel of the Lord opened the prison doors by night, and brought them out, and said,

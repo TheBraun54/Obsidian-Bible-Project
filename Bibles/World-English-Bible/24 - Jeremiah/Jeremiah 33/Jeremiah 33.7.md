@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will cause the captivity of Judah and the captivity of Israel to return, and will build them, as at the first.
+I will cause the captivity of Judah and the captivity of Israel to return, and will build them, as at the first.

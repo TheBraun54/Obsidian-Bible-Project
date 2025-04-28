@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even to-day is my complaint rebellious: My stroke is heavier than my groaning.
+"Even today my complaint is rebellious. His hand is heavy in spite of my groaning.

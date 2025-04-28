@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I also am a man set under authority, having under myself soldiers: and I say to this one, Go, and he goeth; and to another, Come, and he cometh; and to my servant, Do this, and he doeth it. [
+For I also am a man placed under authority, having under myself soldiers. I tell this one, 'Go!' and he goes; and to another, 'Come!' and he comes; and to my servant, 'Do this,' and he does it."

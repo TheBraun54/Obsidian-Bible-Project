@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw another angel flying in mid heaven, having eternal good tidings to proclaim unto them that dwell on the earth, and unto every nation and tribe and tongue and people;
+I saw an angel flying in mid heaven, having an eternal Good News to proclaim to those who dwell on the earth, and to every nation, tribe, language, and people.

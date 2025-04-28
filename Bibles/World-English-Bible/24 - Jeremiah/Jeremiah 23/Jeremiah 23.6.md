@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In his days Judah shall be saved, and Israel shall dwell safely; and this is his name whereby he shall be called: Jehovah our righteousness.
+In his days Judah shall be saved, and Israel shall dwell safely; and this is his name by which he shall be called: Yahweh our righteousness.

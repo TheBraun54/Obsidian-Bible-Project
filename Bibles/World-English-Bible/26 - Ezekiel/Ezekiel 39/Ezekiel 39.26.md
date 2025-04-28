@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall bear their shame, and all their trespasses whereby they have trespassed against me, when they shall dwell securely in their land, and none shall make them afraid;
+They shall bear their shame, and all their trespasses by which they have trespassed against me, when they shall dwell securely in their land, and none shall make them afraid;

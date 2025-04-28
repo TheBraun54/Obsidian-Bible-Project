@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they reasoned one with another, saying, We have no bread.
+They reasoned with one another, saying, "It's because we have no bread."

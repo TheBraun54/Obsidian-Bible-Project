@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And those that encamp next unto him shall be the tribe of Asher: and the prince of the children of Asher shall be Pagiel the son of Ochran.
+"Those who encamp next to him shall be the tribe of Asher: and the prince of the children of Asher shall be Pagiel the son of Ochran.

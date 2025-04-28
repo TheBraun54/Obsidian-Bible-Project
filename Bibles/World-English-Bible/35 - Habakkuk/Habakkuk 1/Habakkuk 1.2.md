@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O Jehovah, how long shall I cry, and thou wilt not hear? I cry out unto thee of violence, and thou wilt not save.
+Yahweh, how long will I cry, and you will not hear? I cry out to you "Violence!" and will you not save?

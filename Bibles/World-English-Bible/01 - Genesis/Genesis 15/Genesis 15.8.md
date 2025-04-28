@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, O Lord Jehovah, whereby shall I know that I shall inherit it?
+He said, "Lord Yahweh, how will I know that I will inherit it?"

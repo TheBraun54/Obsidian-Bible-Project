@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, O Jehovah, the God of Israel, keep with thy servant David my father that which thou hast promised him, saying, There shall not fail thee a man in my sight to sit on the throne of Israel, if only thy children take heed to their way, to walk in my law as thou hast walked before me.
+"Now therefore, Yahweh, the God of Israel, keep with your servant David my father that which you have promised him, saying, 'There shall not fail you a man in my sight to sit on the throne of Israel, if only your children take heed to their way, to walk in my law as you have walked before me.'

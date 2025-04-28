@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Canst thou bind the wild-ox with his band in the furrow? Or will he harrow the valleys after thee?
+Can you hold the wild ox in the furrow with his harness? Or will he till the valleys after you?

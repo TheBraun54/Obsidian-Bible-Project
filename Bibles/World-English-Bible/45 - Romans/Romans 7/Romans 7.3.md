@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So then if, while the husband liveth, she be joined to another man, she shall be called an adulteress: but if the husband die, she is free from the law, so that she is no adulteress, though she be joined to another man.
+So then if, while the husband lives, she is joined to another man, she would be called an adulteress. But if the husband dies, she is free from the law, so that she is no adulteress, though she is joined to another man.

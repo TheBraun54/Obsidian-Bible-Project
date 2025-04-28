@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Reuben answered them, saying, Spake I not unto you, saying, Do not sin against the child; and ye would not hear? therefore also, behold, his blood is required.
+Reuben answered them, saying, "Didn't I tell you, saying, 'Don't sin against the child,' and you wouldn't listen? Therefore also, behold, his blood is required."

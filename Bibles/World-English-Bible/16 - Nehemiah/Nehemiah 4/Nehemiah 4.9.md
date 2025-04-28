@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But we made our prayer unto our God, and set a watch against them day and night, because of them.
+But we made our prayer to our God, and set a watch against them day and night, because of them.

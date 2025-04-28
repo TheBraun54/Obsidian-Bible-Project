@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But they hearkened not, nor inclined their ear, but walked in [their own] counsels [and] in the stubbornness of their evil heart, and went backward, and not forward.
+But they didn't listen nor turn their ear, but walked in [their own] counsels [and] in the stubbornness of their evil heart, and went backward, and not forward.

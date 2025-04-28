@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if so be that ye have heard of the dispensation of that grace of God which was given me to you-ward;
+if it is so that you have heard of the administration of that grace of God which was given me toward you;

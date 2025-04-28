@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel repented them for Benjamin their brother, and said, There is one tribe cut off from Israel this day.
+The children of Israel grieved for Benjamin their brother, and said, "There is one tribe cut off from Israel this day.

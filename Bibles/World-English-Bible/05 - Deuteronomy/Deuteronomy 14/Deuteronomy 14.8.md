@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the swine, because he parteth the hoof but cheweth not the cud, he is unclean unto you: of their flesh ye shall not eat, and their carcasses ye shall not touch.
+The pig, because it has a split hoof but doesn't chew the cud, is unclean to you: of their flesh you shall not eat, and their carcasses you shall not touch.

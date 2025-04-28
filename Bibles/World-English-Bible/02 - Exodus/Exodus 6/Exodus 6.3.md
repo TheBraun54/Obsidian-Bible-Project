@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I appeared unto Abraham, unto Isaac, and unto Jacob, as God Almighty; but by my name Jehovah I was not known to them.
+and I appeared to Abraham, to Isaac, and to Jacob, as God Almighty; but by my name Yahweh I was not known to them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-according as each hath received a gift, ministering it among yourselves, as good stewards of the manifold grace of God;
+As each has received a gift, employ it in serving one another, as good managers of the grace of God in its various forms.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when ye see the abomination of desolation standing where he ought not (let him that readeth understand), then let them that are in Judaea flee unto the mountains:
+But when you see the abomination of desolation, spoken of by Daniel the prophet, standing where it ought not (let the reader understand), then let those who are in Judea flee to the mountains,

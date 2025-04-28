@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus wast thou decked with gold and silver; and thy raiment was of fine linen, and silk, and broidered work; thou didst eat fine flour, and honey, and oil; and thou wast exceeding beautiful, and thou didst prosper unto royal estate.
+Thus you were decked with gold and silver; and your clothing was of fine linen, and silk, and embroidered work; you ate fine flour, and honey, and oil; and you were exceeding beautiful, and you prospered to royal estate.

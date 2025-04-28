@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said unto them even as Jesus had said: and they let them go.
+They said to them just as Jesus had said, and they let them go.

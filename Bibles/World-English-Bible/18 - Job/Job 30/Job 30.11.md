@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he hath loosed his cord, and afflicted me; And they have cast off the bridle before me.
+For he has untied his cord, and afflicted me; and they have thrown off restraint before me.

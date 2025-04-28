@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I sink in deep mire, where there is no standing: I am come into deep waters, where the floods overflow me.
+I sink in deep mire, where there is no foothold. I have come into deep waters, where the floods overflow me.

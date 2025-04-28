@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that I gave my brother Hanani, and Hananiah the governor of the castle, charge over Jerusalem; for he was a faithful man, and feared God above many.
+that I put my brother Hanani, and Hananiah the governor of the castle, in charge of Jerusalem; for he was a faithful man, and feared God above many.

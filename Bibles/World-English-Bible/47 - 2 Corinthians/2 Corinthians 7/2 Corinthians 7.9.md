@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I now rejoice, not that ye were made sorry, but that ye were made sorry unto repentance; for ye were made sorry after a godly sort, that ye might suffer loss by us in nothing.
+I now rejoice, not that you were made sorry, but that you were made sorry to repentance. For you were made sorry in a godly way, that you might suffer loss by us in nothing.

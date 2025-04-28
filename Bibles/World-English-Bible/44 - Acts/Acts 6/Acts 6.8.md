@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Stephen, full of grace and power, wrought great wonders and signs among the people.
+Stephen, full of faith and power, performed great wonders and signs among the people.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These were the potters, and the inhabitants of Netaim and Gederah: there they dwelt with the king for his work.
+These were the potters, and the inhabitants of Netaim and Gederah: there they lived with the king for his work.

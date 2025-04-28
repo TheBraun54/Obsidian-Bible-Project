@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for Mahlah, Tirzah, and Hoglah, and Milcah, and Noah, the daughters of Zelophehad, were married unto their father's brothers' sons.
+for Mahlah, Tirzah, and Hoglah, and Milcah, and Noah, the daughters of Zelophehad, were married to their father's brothers' sons.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-making request, if by any means now at length I may be prospered by the will of God to come unto you.
+requesting, if by any means now at last I may be prospered by the will of God to come to you.

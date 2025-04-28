@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on the morrow, that he took the coverlet, and dipped it in water, and spread it on his face, so that he died: and Hazael reigned in his stead.
+It happened on the next day, that he took a thick cloth, dipped it in water, and spread it on his face, so that he died. Then Hazael reigned in his place.

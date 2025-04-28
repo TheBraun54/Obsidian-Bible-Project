@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but as it is written, Things which eye saw not, and ear heard not, And [which] entered not into the heart of man, Whatsoever things God prepared for them that love him.
+But as it is written, "Things which an eye didn't see, and an ear didn't hear, which didn't enter into the heart of man, these God has prepared for those who love him."

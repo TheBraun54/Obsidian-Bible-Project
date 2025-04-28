@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How are the mighty fallen, And the weapons of war perished!
+How are the mighty fallen, and the weapons of war perished!"

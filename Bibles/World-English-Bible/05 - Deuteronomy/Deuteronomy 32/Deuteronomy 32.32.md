@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For their vine is of the vine of Sodom, And of the fields of Gomorrah: Their grapes are grapes of gall, Their clusters are bitter:
+For their vine is of the vine of Sodom, of the fields of Gomorrah. Their grapes are grapes of gall, Their clusters are bitter.

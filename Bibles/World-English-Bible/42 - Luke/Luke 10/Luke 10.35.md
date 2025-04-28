@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the morrow he took out two shillings, and gave them to the host, and said, Take care of him; and whatsoever thou spendest more, I, when I come back again, will repay thee.
+On the next day, when he departed, he took out two denarii, and gave them to the host, and said to him, 'Take care of him. Whatever you spend beyond that, I will repay you when I return.'

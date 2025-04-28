@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he clave to Jehovah; he departed not from following him, but kept his commandments, which Jehovah commanded Moses.
+For he joined with Yahweh; he didn't depart from following him, but kept his commandments, which Yahweh commanded Moses.

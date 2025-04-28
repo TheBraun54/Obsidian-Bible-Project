@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall burn thy houses with fire, and execute judgments upon thee in the sight of many women; and I will cause thee to cease from playing the harlot, and thou shalt also give no hire any more.
+They shall burn your houses with fire, and execute judgments on you in the sight of many women; and I will cause you to cease from playing the prostitute, and you shall also give no hire any more.

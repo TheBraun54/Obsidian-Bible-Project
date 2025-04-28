@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore my wrath and mine anger was poured forth, and was kindled in the cities of Judah and in the streets of Jerusalem; and they are wasted and desolate, as it is this day.
+Therefore my wrath and my anger was poured forth, and was kindled in the cities of Judah and in the streets of Jerusalem; and they are wasted and desolate, as it is this day.

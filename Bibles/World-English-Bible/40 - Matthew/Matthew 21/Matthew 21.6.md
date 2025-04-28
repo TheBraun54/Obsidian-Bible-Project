@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the disciples went, and did even as Jesus appointed them,
+The disciples went, and did just as Jesus commanded them,

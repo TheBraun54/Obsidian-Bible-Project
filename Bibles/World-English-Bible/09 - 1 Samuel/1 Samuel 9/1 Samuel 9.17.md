@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Samuel saw Saul, Jehovah said unto him, Behold, the man of whom I spake to thee! this same shall have authority over my people.
+When Samuel saw Saul, Yahweh said to him, "Behold, the man of whom I spoke to you! this same shall have authority over my people."

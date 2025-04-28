@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they all would have made us afraid, saying, Their hands shall be weakened from the work, that it be not done. But now, [O God], strengthen thou my hands.
+For they all would have made us afraid, saying, "Their hands will be weakened from the work, that it not be done. But now, [God], strengthen my hands."

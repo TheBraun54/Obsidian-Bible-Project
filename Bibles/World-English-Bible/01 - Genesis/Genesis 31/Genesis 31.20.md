@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob stole away unawares to Laban the Syrian, in that he told him not that he fled.
+Jacob deceived Laban the Syrian, in that he didn't tell him that he was running away.

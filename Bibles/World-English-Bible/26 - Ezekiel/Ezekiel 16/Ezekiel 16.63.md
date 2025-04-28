@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that thou mayest remember, and be confounded, and never open thy mouth any more, because of thy shame, when I have forgiven thee all that thou hast done, saith the Lord Jehovah.
+that you may remember, and be confounded, and never open your mouth any more, because of your shame, when I have forgiven you all that you have done, says the Lord Yahweh.

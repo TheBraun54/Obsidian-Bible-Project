@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But other of the apostles saw I none, save James the Lord's brother.
+But of the other apostles I saw no one, except James, the Lord's brother.

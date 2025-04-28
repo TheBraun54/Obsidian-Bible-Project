@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-until thy brother's anger turn away from thee, and he forget that which thou hast done to him: then I will send, and fetch thee from thence: why should I be bereaved of you both in one day?
+until your brother's anger turn away from you, and he forgets what you have done to him. Then I will send, and get you from there. Why should I be bereaved of you both in one day?"

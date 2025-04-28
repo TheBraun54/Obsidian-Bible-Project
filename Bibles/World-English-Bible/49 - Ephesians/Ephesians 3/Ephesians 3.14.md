@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this cause I bow my knees unto the Father,
+For this cause, I bow my knees to the Father of our Lord Jesus Christ,

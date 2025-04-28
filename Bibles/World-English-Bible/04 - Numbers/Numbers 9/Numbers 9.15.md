@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And on the day that the tabernacle was reared up the cloud covered the tabernacle, even the tent of the testimony: and at even it was upon the tabernacle as it were the appearance of fire, until morning.
+On the day that the tabernacle was raised up, the cloud covered the tabernacle, even the Tent of the Testimony: and at evening it was over the tabernacle as it were the appearance of fire, until morning.

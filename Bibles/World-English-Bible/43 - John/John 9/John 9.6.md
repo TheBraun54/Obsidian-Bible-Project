@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When he had thus spoken, he spat on the ground, and made clay of the spittle, and anointed his eyes with the clay,
+When he had said this, he spat on the ground, made mud with the saliva, anointed the blind man's eyes with the mud,

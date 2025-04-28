@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the salvation of the righteous is of Jehovah; He is their stronghold in the time of trouble.
+But the salvation of the righteous is from Yahweh. He is their stronghold in the time of trouble.

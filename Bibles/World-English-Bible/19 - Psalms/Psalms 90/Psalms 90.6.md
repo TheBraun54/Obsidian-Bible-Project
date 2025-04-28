@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the morning it flourisheth, and groweth up; In the evening it is cut down, and withereth.
+In the morning it sprouts and springs up. By evening, it is withered and dry.

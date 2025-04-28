@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Philip findeth Nathanael, and saith unto him, We have found him, of whom Moses in the law, and the prophets, wrote, Jesus of Nazareth, the son of Joseph.
+Philip found Nathanael, and said to him, "We have found him, of whom Moses in the law, and the prophets, wrote: Jesus of Nazareth, the son of Joseph."

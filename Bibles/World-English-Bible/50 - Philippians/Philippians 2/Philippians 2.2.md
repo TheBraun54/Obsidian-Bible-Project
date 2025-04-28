@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-make full my joy, that ye be of the same mind, having the same love, being of one accord, of one mind;
+make my joy full, by being like-minded, having the same love, being of one accord, of one mind;

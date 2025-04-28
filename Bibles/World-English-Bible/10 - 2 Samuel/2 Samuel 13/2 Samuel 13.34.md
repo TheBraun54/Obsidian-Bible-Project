@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Absalom fled. And the young man that kept the watch lifted up his eyes, and looked, and, behold, there came much people by the way of the hill-side behind him.
+But Absalom fled. The young man who kept the watch lifted up his eyes, and looked, and behold, many people were coming by way of the hillside behind him.

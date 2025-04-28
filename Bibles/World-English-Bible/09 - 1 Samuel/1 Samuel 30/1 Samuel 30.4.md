@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then David and the people that were with him lifted up their voice and wept, until they had no more power to weep.
+Then David and the people who were with him lifted up their voice and wept, until they had no more power to weep.

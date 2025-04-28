@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even when I remember I am troubled, And horror taketh hold on my flesh.
+When I remember, I am troubled. Horror takes hold of my flesh.

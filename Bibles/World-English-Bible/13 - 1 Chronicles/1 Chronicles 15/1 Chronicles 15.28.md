@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus all Israel brought up the ark of the covenant of Jehovah with shouting, and with sound of the cornet, and with trumpets, and with cymbals, sounding aloud with psalteries and harps.
+Thus all Israel brought up the ark of the covenant of Yahweh with shouting, and with sound of the cornet, and with trumpets, and with cymbals, sounding aloud with stringed instruments and harps.

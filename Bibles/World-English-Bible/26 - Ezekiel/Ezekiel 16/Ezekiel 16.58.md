@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast borne thy lewdness and thine abominations, saith Jehovah.
+You have borne your lewdness and your abominations, says Yahweh.

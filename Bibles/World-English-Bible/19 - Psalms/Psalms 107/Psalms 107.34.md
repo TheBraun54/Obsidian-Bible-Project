@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A fruitful land into a salt desert, For the wickedness of them that dwell therein.
+and a fruitful land into a salt waste, for the wickedness of those who dwell in it.

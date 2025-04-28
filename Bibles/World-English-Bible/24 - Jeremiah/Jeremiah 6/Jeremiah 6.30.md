@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Refuse silver shall men them, because Jehovah hath rejected them.
+Men will call them rejected silver, because Yahweh has rejected them."

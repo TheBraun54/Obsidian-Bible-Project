@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will feed his flock like a shepherd, he will gather the lambs in his arm, and carry them in his bosom, [and] will gently lead those that have their young.
+He will feed his flock like a shepherd. He will gather the lambs in his arm, and carry them in his bosom. He will gently lead those who have their young.

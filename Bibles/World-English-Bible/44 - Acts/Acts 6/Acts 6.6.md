@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whom they set before the apostles: and when they had prayed, they laid their hands upon them.
+whom they set before the apostles. When they had prayed, they laid their hands on them.

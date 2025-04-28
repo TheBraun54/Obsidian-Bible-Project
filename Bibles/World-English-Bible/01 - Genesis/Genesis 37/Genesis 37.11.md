@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his brethren envied him; but his father kept the saying in mind.
+His brothers envied him, but his father kept this saying in mind.

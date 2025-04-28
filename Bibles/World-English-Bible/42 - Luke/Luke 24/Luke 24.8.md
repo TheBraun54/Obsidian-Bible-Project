@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they remembered his words,
+They remembered his words,

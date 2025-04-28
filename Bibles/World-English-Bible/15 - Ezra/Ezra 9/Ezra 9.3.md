@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when I heard this thing, I rent my garment and my robe, and plucked off the hair of my head and of my beard, and sat down confounded.
+When I heard this thing, I tore my garment and my robe, and plucked off the hair of my head and of my beard, and sat down confounded.

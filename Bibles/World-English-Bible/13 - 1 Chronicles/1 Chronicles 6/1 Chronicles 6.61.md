@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto the rest of the sons of Kohath [were given] by lot, out of the family of the tribe, out of the half-tribe, the half of Manasseh, ten cities.
+To the rest of the sons of Kohath [were given] by lot, out of the family of the tribe, out of the half-tribe, the half of Manasseh, ten cities.

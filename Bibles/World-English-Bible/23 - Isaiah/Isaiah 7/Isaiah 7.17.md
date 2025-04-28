@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will bring upon thee, and upon thy people, and upon thy father's house, days that have not come, from the day that Ephraim departed from Judah--[ even] the king of Assyria.
+Yahweh will bring on you, on your people, and on your father's house, days that have not come, from the day that Ephraim departed from Judah; even the king of Assyria.

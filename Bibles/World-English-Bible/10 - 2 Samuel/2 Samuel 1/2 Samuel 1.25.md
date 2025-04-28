@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How are the mighty fallen in the midst of the battle! Jonathan is slain upon thy high places.
+How are the mighty fallen in the midst of the battle! Jonathan is slain on your high places.

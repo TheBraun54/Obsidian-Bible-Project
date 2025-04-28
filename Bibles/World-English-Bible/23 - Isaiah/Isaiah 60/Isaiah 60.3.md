@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And nations shall come to thy light, and kings to the brightness of thy rising.
+Nations shall come to your light, and kings to the brightness of your rising.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I was daily with you in the temple teaching, and ye took me not: but [this is done] that the scriptures might be fulfilled.
+I was daily with you in the temple teaching, and you didn't arrest me. But this is so that the Scriptures might be fulfilled."

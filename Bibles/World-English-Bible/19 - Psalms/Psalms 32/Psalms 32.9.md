@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be ye not as the horse, or as the mule, which have no understanding; Whose trappings must be bit and bridle to hold them in, [Else] they will not come near unto thee.
+Don't be like the horse, or like the mule, which have no understanding, who are controlled by bit and bridle, or else they will not come near to you.

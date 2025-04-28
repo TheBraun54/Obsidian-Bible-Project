@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the men of Israel assembled themselves unto king Solomon at the feast, in the month Ethanim, which is the seventh month.
+All the men of Israel assembled themselves to king Solomon at the feast, in the month Ethanim, which is the seventh month.

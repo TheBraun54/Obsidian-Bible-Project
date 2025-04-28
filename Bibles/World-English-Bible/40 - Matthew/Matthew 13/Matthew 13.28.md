@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, An enemy hath done this. And the servants say unto him, Wilt thou then that we go and gather them up?
+"He said to them, 'An enemy has done this.' "The servants asked him, 'Do you want us to go and gather them up?'

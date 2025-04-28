@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah alone did lead him, And there was no foreign god with him.
+Yahweh alone led him. There was no foreign god with him.

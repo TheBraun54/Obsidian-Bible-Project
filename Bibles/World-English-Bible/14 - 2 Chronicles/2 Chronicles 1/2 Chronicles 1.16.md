@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the horses which Solomon had were brought out of Egypt; the king's merchants received them in droves, each drove at a price.
+The horses which Solomon had were brought out of Egypt and from Kue; the king's merchants purchased them from Kue.

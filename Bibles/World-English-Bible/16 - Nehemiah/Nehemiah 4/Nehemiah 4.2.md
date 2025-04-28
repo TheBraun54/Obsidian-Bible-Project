@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he spake before his brethren and the army of Samaria, and said, What are these feeble Jews doing? will they fortify themselves? will they sacrifice? will they make an end in a day? will they revive the stones out of the heaps of rubbish, seeing they are burned?
+He spoke before his brothers and the army of Samaria, and said, "What are these feeble Jews doing? Will they fortify themselves? Will they sacrifice? Will they finish in a day? Will they revive the stones out of the heaps of rubbish, since they are burned?"

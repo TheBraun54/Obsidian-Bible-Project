@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he said unto them, I must preach the good tidings of the kingdom of God to the other cities also: for therefore was I sent.
+But he said to them, "I must preach the good news of the Kingdom of God to the other cities also. For this reason I have been sent."

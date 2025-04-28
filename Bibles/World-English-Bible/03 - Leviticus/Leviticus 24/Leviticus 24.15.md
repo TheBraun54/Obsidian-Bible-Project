@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt speak unto the children of Israel, saying, Whosoever curseth his God shall bear his sin.
+You shall speak to the children of Israel, saying, 'Whoever curses his God shall bear his sin.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the court which is without the temple leave without, and measure it not; for it hath been given unto the nations: and the holy city shall they tread under foot forty and two months.
+Leave out the court which is outside of the temple, and don't measure it, for it has been given to the nations. They will tread the holy city under foot for forty-two months.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover Hezekiah the king and the princes commanded the Levites to sing praises unto Jehovah with the words of David, and of Asaph the seer. And they sang praises with gladness, and they bowed their heads and worshipped.
+Moreover Hezekiah the king and the princes commanded the Levites to sing praises to Yahweh with the words of David, and of Asaph the seer. They sang praises with gladness, and they bowed their heads and worshiped.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that say, Stand by thyself, come not near to me, for I am holier than thou. These are a smoke in my nose, a fire that burneth all the day.
+who say, Stand by yourself, don't come near to me, for I am holier than you. These are a smoke in my nose, a fire that burns all the day.

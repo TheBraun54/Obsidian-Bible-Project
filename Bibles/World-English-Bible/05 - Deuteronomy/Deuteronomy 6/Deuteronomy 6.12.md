@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then beware lest thou forget Jehovah, who brought thee forth out of the land of Egypt, out of the house of bondage.
+then beware lest you forget Yahweh, who brought you forth out of the land of Egypt, out of the house of bondage.

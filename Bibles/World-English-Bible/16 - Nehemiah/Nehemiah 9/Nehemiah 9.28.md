@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But after they had rest, they did evil again before thee; therefore leftest thou them in the hand of their enemies, so that they had the dominion over them: yet when they returned, and cried unto thee, thou heardest from heaven; and many times didst thou deliver them according to thy mercies,
+But after they had rest, they did evil again before you; therefore left you them in the hand of their enemies, so that they had the dominion over them; yet when they returned, and cried to you, you heard from heaven; and many times you delivered them according to your mercies,

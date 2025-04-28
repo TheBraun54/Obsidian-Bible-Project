@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The bloodthirsty hate him that is perfect; And as for the upright, they seek his life.
+The bloodthirsty hate a man of integrity; and they seek the life of the upright.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore, brethren, give the more diligence to make your calling and election sure: for if ye do these things, ye shall never stumble:
+Therefore, brothers, be more diligent to make your calling and election sure. For if you do these things, you will never stumble.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took the five loaves and the two fishes, and looking up to heaven, he blessed them, and brake; and gave to the disciples to set before the multitude.
+He took the five loaves and the two fish, and looking up to the sky, he blessed them, and broke them, and gave them to the disciples to set before the multitude.

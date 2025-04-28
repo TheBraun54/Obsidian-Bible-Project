@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said, By myself have I sworn, saith Jehovah, because thou hast done this thing, and hast not withheld thy son, thine only son,
+and said, "I have sworn by myself, says Yahweh, because you have done this thing, and have not withheld your son, your only son,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he called for Moses and Aaron by night, and said, Rise up, get you forth from among my people, both ye and the children of Israel; and go, serve Jehovah, as ye have said.
+He called for Moses and Aaron by night, and said, "Rise up, get out from among my people, both you and the children of Israel; and go, serve Yahweh, as you have said!

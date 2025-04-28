@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the time that thou wast broken by the seas in the depths of the waters, thy merchandise and all thy company did fall in the midst of thee.
+In the time that you were broken by the seas in the depths of the waters, your merchandise and all your company did fall in the midst of you.

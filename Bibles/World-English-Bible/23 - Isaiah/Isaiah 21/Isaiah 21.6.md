@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus hath the Lord said unto me, Go, set a watchman: let him declare what he seeth:
+For the Lord said to me, "Go, set a watchman. Let him declare what he sees.

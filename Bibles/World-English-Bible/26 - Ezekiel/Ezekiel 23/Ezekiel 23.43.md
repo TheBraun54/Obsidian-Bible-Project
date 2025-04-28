@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said I of her that was old in adulteries, Now will they play the harlot with her, and she [with them] .
+Then I said of her who was old in adulteries, Now will they play the prostitute with her, and she [with them].

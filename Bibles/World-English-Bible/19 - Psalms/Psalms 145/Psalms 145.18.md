@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is nigh unto all them that call upon him, To all that call upon him in truth.
+Yahweh is near to all those who call on him, to all who call on him in truth.

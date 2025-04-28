@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What is it then, brethren? When ye come together, each one hath a psalm, hath a teaching, hath a revelation, hath a tongue, hath an interpretation. Let all things be done unto edifying.
+What is it then, brothers? When you come together, each one of you has a psalm, has a teaching, has a revelation, has another language, has an interpretation. Let all things be done to build each other up.

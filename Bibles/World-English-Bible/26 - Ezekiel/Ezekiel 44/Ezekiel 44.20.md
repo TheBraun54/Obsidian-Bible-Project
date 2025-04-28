@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither shall they shave their heads, nor suffer their locks to grow long; they shall only cut off the hair of their heads.
+Neither shall they shave their heads, nor allow their locks to grow long; they shall only cut off the hair of their heads.

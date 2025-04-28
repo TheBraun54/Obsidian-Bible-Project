@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David was greatly distressed; for the people spake of stoning him, because the soul of all the people was grieved, every man for his sons and for his daughters: but David strengthened himself in Jehovah his God.
+David was greatly distressed; for the people spoke of stoning him, because the soul of all the people was grieved, every man for his sons and for his daughters: but David strengthened himself in Yahweh his God.

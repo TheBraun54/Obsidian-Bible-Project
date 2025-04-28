@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And no man putteth a piece of undressed cloth upon an old garment; for that which should fill it up taketh from the garment, and a worse rent is made.
+No one puts a piece of unshrunk cloth on an old garment; for the patch would tear away from the garment, and a worse hole is made.

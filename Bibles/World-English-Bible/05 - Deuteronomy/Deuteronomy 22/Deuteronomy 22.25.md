@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if the man find the damsel that is betrothed in the field, and the man force her, and lie with her; then the man only that lay with her shall die:
+But if the man find the lady who is pledged to be married in the field, and the man force her, and lie with her; then the man only who lay with her shall die:

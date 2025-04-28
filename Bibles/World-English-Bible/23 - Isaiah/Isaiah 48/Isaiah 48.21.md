@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they thirsted not when he led them through the deserts; he caused the waters to flow out of the rock for them; he clave the rock also, and the waters gushed out.
+They didn't thirst when he led them through the deserts; he caused the waters to flow out of the rock for them; he split the rock also, and the waters gushed out.

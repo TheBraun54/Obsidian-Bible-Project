@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Elisha had spoken unto the woman, whose son he had restored to life, saying, Arise, and go thou and thy household, and sojourn wheresoever thou canst sojourn: for Jehovah hath called for a famine; and it shall also come upon the land seven years.
+Now Elisha had spoken to the woman, whose son he had restored to life, saying, "Arise, and go, you and your household, and stay for a while wherever you can; for Yahweh has called for a famine. It shall also come on the land seven years."

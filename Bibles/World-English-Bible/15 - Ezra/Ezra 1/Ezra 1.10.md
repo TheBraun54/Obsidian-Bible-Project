@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thirty bowls of gold, silver bowls of a second sort four hundred and ten, and other vessels a thousand.
+thirty bowls of gold, silver bowls of a second sort four hundred and ten, and other vessels one thousand.

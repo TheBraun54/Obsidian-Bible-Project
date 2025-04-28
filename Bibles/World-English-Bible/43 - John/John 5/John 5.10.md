@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the Jews said unto him that was cured, It is the sabbath, and it is not lawful for thee to take up thy bed.
+So the Jews said to him who was cured, "It is the Sabbath. It is not lawful for you to carry the mat."

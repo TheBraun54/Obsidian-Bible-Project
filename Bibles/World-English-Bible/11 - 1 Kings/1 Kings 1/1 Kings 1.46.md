@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And also Solomon sitteth on the throne of the kingdom.
+Also, Solomon sits on the throne of the kingdom.

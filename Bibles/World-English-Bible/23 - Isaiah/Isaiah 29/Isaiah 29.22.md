@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith Jehovah, who redeemed Abraham, concerning the house of Jacob: Jacob shall not now be ashamed, neither shall his face now wax pale.
+Therefore thus says Yahweh, who redeemed Abraham, concerning the house of Jacob: "Jacob shall no longer be ashamed, neither shall his face grow pale.

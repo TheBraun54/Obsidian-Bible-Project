@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jeroboam's wife did so, and arose, and went to Shiloh, and came to the house of Ahijah. Now Ahijah could not see; for his eyes were set by reason of his age.
+Jeroboam's wife did so, and arose, and went to Shiloh, and came to the house of Ahijah. Now Ahijah could not see; for his eyes were set by reason of his age.

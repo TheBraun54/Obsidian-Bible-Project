@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel taketh the censer; and he filled it with the fire of the altar, and cast it upon the earth: and there followed thunders, and voices, and lightnings, and an earthquake.
+The angel took the censer, and he filled it with the fire of the altar, and threw it on the earth. There followed thunders, sounds, lightnings, and an earthquake.

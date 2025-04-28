@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They said therefore unto him, How then were thine eyes opened?
+They therefore were asking him, "How were your eyes opened?"

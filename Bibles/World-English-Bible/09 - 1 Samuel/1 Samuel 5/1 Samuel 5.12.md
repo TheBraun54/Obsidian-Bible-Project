@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men that died not were smitten with the tumors; and the cry of the city went up to heaven.
+The men who didn't die were struck with the tumors; and the cry of the city went up to heaven.

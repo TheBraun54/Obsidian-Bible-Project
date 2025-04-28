@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Rehoboam went to Shechem: for all Israel were come to Shechem to make him king.
+Rehoboam went to Shechem: for all Israel were come to Shechem to make him king.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now there were certain Greeks among those that went up to worship at the feast:
+Now there were certain Greeks among those that went up to worship at the feast.

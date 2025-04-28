@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Benjamin returned at that time; and they gave them the women whom they had saved alive of the women of Jabesh-gilead: and yet so they sufficed them not.
+Benjamin returned at that time; and they gave them the women whom they had saved alive of the women of Jabesh Gilead: and yet so they weren't enough for them.

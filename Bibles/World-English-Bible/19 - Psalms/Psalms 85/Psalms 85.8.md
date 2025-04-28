@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will hear what God Jehovah will speak; For he will speak peace unto his people, and to his saints: But let them not turn again to folly.
+I will hear what God, Yahweh, will speak, for he will speak peace to his people, his saints; but let them not turn again to folly.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the waters were healed unto this day, according to the word of Elisha which he spake.
+So the waters were healed to this day, according to the word of Elisha which he spoke.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he shall look on the plague on the seventh day: if the plague be spread in the garment, either in the warp, or in the woof, or in the skin, whatever service skin is used for; the plague is a fretting leprosy; it is unclean.
+He shall examine the plague on the seventh day. If the plague has spread in the garment, either in the warp, or in the woof, or in the skin, whatever use the skin is used for, the plague is a destructive mildew. It is unclean.

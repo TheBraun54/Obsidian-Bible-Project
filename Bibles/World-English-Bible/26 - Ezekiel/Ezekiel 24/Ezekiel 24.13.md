@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In thy filthiness is lewdness: because I have cleansed thee and thou wast not cleansed, thou shalt not be cleansed from thy filthiness any more, till I have caused my wrath toward thee to rest. [
+In your filthiness is lewdness: because I have cleansed you and you weren't cleansed, you shall not be cleansed from your filthiness any more, until I have caused my wrath toward you to rest.

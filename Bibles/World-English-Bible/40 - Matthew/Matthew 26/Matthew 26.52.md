@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then saith Jesus unto him, Put up again thy sword into its place: for all they that take the sword shall perish with the sword.
+Then Jesus said to him, "Put your sword back into its place, for all those who take the sword will die by the sword.

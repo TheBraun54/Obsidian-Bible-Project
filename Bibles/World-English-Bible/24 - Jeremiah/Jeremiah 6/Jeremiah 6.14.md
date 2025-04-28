@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have healed also the hurt of my people slightly, saying, Peace, peace; when there is no peace.
+They have healed also the hurt of my people superficially, saying, 'Peace, peace!' when there is no peace.

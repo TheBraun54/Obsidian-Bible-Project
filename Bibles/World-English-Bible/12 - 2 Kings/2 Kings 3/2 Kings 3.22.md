@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they rose up early in the morning, and the sun shone upon the water, and the Moabites saw the water over against them as red as blood:
+They rose up early in the morning, and the sun shone on the water, and the Moabites saw the water over against them as red as blood.

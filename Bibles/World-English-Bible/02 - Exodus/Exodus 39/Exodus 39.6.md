@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they wrought the onyx stones, inclosed in settings of gold, graven with the engravings of a signet, according to the names of the children of Israel.
+They worked the onyx stones, enclosed in settings of gold, engraved with the engravings of a signet, according to the names of the children of Israel.

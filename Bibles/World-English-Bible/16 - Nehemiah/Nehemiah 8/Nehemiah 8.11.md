@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the Levites stilled all the people, saying, Hold your peace, for the day is holy; neither be ye grieved.
+So the Levites stilled all the people, saying, "Hold your peace, for the day is holy; neither be grieved."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Princes shall come out of Egypt; Ethiopia shall haste to stretch out her hands unto God.
+Princes shall come out of Egypt. Ethiopia shall hurry to stretch out her hands to God.

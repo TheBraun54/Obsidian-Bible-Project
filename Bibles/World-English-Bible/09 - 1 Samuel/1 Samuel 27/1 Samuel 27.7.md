@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the number of the days that David dwelt in the country of the Philistines was a full year and four months.
+The number of the days that David lived in the country of the Philistines was a full year and four months.

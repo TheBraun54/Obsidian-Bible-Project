@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now he hath made me weary: Thou hast made desolate all my company.
+But now, God, you have surely worn me out. You have made desolate all my company.

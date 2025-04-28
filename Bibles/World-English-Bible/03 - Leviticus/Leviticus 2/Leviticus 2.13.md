@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every oblation of thy meal-offering shalt thou season with salt; neither shalt thou suffer the salt of the covenant of thy God to be lacking from thy meal-offering: with all thine oblations thou shalt offer salt.
+Every offering of your meal offering you shall season with salt; neither shall you allow the salt of the covenant of your God to be lacking from your meal offering. With all your offerings you shall offer salt.

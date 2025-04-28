@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mine eyes anticipated the night-watches, That I might meditate on thy word.
+My eyes stay open through the night watches, that I might meditate on your word.

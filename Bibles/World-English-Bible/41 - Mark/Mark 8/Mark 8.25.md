@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then again he laid his hands upon his eyes; and he looked stedfastly, and was restored, and saw all things clearly.
+Then again he laid his hands on his eyes. He looked intently, and was restored, and saw everyone clearly.

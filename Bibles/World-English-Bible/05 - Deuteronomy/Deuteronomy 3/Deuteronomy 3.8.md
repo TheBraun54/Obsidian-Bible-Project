@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we took the land at that time out of the hand of the two kings of the Amorites that were beyond the Jordan, from the valley of the Arnon unto mount Hermon;
+We took the land at that time out of the hand of the two kings of the Amorites who were beyond the Jordan, from the valley of the Arnon to Mount Hermon;

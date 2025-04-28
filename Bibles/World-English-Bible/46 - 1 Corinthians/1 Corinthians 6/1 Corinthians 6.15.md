@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Know ye not that your bodies are members of Christ? shall I then take away the members of Christ, and make them members of a harlot? God forbid.
+Don't you know that your bodies are members of Christ? Shall I then take the members of Christ, and make them members of a prostitute? May it never be!

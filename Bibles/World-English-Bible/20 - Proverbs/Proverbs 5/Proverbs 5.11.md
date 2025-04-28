@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou mourn at thy latter end, When thy flesh and thy body are consumed,
+You will groan at your latter end, when your flesh and your body are consumed,

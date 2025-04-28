@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And you, be ye fruitful, and multiply; bring forth abundantly in the earth, and multiply therein.
+Be fruitful and multiply. Bring forth abundantly in the earth, and multiply in it."

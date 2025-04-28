@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And our father said, Go again, buy us a little food.
+Our father said, 'Go again, buy us a little food.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God bringeth him forth out of Egypt; He hath as it were the strength of the wild-ox: He shall eat up the nations his adversaries, And shall break their bones in pieces, And smite [them] through with his arrows.
+God brings him out of Egypt. He has as it were the strength of the wild ox. He shall eat up the nations his adversaries, shall break their bones in pieces, and pierce them with his arrows.

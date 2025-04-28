@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jehovah brought us forth out of Egypt with a mighty hand, and with an outstretched arm, and with great terribleness, and with signs, and with wonders;
+and Yahweh brought us forth out of Egypt with a mighty hand, and with an outstretched arm, and with great terror, and with signs, and with wonders;

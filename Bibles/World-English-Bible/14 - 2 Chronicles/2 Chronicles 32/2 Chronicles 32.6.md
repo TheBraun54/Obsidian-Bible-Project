@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he set captains of war over the people, and gathered them together to him in the broad place at the gate of the city, and spake comfortably to them, saying,
+He set captains of war over the people, and gathered them together to him in the broad place at the gate of the city, and spoke comfortably to them, saying,

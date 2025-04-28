@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brought the bullock of the sin-offering: and Aaron and his sons laid their hands upon the head of the bullock of the sin-offering.
+He brought the bull of the sin offering, and Aaron and his sons laid their hands on the head of the bull of the sin offering.

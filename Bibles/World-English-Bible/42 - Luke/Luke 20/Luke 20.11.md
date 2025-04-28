@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sent yet another servant: and him also they beat, and handled him shamefully, and sent him away empty.
+He sent yet another servant, and they also beat him, and treated him shamefully, and sent him away empty.

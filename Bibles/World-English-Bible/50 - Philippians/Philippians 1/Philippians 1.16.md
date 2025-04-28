@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the one [do it] of love, knowing that I am set for the defence of the gospel;
+The former insincerely preach Christ from selfish ambition, thinking that they add affliction to my chains;

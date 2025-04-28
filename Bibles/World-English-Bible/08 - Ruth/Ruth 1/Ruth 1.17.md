@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-where thou diest, will I die, and there will I be buried: Jehovah do so to me, and more also, if aught but death part thee and me.
+where you die, will I die, and there will I be buried. Yahweh do so to me, and more also, if anything but death part you and me."

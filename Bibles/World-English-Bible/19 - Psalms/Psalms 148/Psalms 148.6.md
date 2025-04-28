@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath also established them for ever and ever: He hath made a decree which shall not pass away.
+He has also established them forever and ever. He has made a decree which will not pass away.

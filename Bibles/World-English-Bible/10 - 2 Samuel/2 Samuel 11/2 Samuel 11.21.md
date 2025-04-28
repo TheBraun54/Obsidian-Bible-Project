@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who smote Abimelech the son of Jerubbesheth? did not a woman cast an upper millstone upon him from the wall, so that he died at Thebez? why went ye so nigh the wall? then shalt thou say, Thy servant Uriah the Hittite is dead also.
+who struck Abimelech the son of Jerubbesheth? Didn't a woman cast an upper millstone on him from the wall, so that he died at Thebez? Why did you go so near the wall?' then you shall say, 'Your servant Uriah the Hittite is dead also.'"

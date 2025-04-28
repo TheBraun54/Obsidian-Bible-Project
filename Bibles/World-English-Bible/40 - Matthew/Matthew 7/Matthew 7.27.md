@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the rain descended, and the floods came, and the winds blew, and smote upon that house; and it fell: and great was the fall thereof.
+The rain came down, the floods came, and the winds blew, and beat on that house; and it fell--and great was its fall."

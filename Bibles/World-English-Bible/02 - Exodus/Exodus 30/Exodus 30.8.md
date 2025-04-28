@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Aaron lighteth the lamps at even, he shall burn it, a perpetual incense before Jehovah throughout your generations.
+When Aaron lights the lamps at evening, he shall burn it, a perpetual incense before Yahweh throughout your generations.

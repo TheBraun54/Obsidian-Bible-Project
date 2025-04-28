@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if we hope for that which we see not, [then] do we with patience wait for it.
+But if we hope for that which we don't see, we wait for it with patience.

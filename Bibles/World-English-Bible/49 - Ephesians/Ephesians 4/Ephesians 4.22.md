@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that ye put away, as concerning your former manner of life, the old man, that waxeth corrupt after the lusts of deceit;
+that you put away, as concerning your former way of life, the old man, that grows corrupt after the lusts of deceit;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if what I would not, that I do, it is no more I that do it, but sin which dwelleth in me.
+But if what I don't desire, that I do, it is no more I that do it, but sin which dwells in me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take of them of the captivity, even of Heldai, of Tobijah, and of Jedaiah; and come thou the same day, and go into the house of Josiah the son of Zephaniah, whither they are come from Babylon;
+"Take of them of the captivity, even of Heldai, of Tobijah, and of Jedaiah; and come the same day, and go into the house of Josiah the son of Zephaniah, where they have come from Babylon.

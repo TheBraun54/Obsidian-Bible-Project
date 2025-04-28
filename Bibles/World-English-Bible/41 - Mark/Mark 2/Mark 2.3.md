@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they come, bringing unto him a man sick of the palsy, borne of four.
+Four people came, carrying a paralytic to him.

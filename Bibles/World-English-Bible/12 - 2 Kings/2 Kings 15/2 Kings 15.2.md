@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sixteen years old was he when he began to reign; and he reigned two and fifty years in Jerusalem: and his mother's name was Jecoliah of Jerusalem.
+Sixteen years old was he when he began to reign; and he reigned fifty-two years in Jerusalem: and his mother's name was Jecoliah of Jerusalem.

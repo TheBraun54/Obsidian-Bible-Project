@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I saw all labor and every skilful work, that for this a man is envied of his neighbor. This also is vanity and a striving after wind.
+Then I saw all the labor and achievement that is the envy of a man's neighbor. This also is vanity and a striving after wind.

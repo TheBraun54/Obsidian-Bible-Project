@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then set it empty upon the coals thereof, that it may be hot, and the brass thereof may burn, and that the filthiness of it may be molten in it, that the rust of it may be consumed.
+Then set it empty on its coals, that it may be hot, and its brass may burn, and that its filthiness may be molten in it, that its rust may be consumed.

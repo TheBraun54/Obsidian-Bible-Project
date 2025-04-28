@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on the morrow, that Moses went into the tent of the testimony; and, behold, the rod of Aaron for the house of Levi was budded, and put forth buds, and produced blossoms, and bare ripe almonds.
+It happened on the next day, that Moses went into the tent of the testimony; and behold, the rod of Aaron for the house of Levi was budded, and put forth buds, and produced blossoms, and bore ripe almonds.

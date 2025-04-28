@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then men shall say, Because they forsook the covenant of Jehovah, the God of their fathers, which he made with them when he brought them forth out of the land of Egypt,
+Then men shall say, "Because they forsook the covenant of Yahweh, the God of their fathers, which he made with them when he brought them forth out of the land of Egypt,

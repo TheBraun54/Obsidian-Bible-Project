@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She is empty, and void, and waste; and the heart melteth, and the knees smite together, and anguish is in all loins, and the faces of them all are waxed pale.
+She is empty, void, and waste. The heart melts, the knees knock together, their bodies and faces have grown pale.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make the boards for the tabernacle, twenty boards for the south side southward.
+You shall make the boards for the tabernacle, twenty boards for the south side southward.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that is far off shall die of the pestilence; and he that is near shall fall by the sword; and he that remaineth and is besieged shall die by the famine: thus will I accomplish my wrath upon them.
+He who is far off shall die of the pestilence; and he who is near shall fall by the sword; and he who remains and is besieged shall die by the famine: thus will I accomplish my wrath on them.

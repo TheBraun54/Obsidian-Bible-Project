@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then will thou delight in the sacrifices of righteousness, In burnt-offering and in whole burnt-offering: Then will they offer bullocks upon thine altar.
+Then you will delight in the sacrifices of righteousness, in burnt offerings and in whole burnt offerings. Then they will offer bulls on your altar. For the Chief Musician. A contemplation by David, when Doeg the Edomite came and told Saul, "David has come to Abimelech's house."

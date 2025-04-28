@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Gad and the children of Reuben spake unto Moses, saying, Thy servants will do as my lord commandeth.
+The children of Gad and the children of Reuben spoke to Moses, saying, "Your servants will do as my lord commands.

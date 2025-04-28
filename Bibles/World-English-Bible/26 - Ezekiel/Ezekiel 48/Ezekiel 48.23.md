@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as for the rest of the tribes: from the east side unto the west side, Benjamin, one [portion] .
+As for the rest of the tribes: from the east side to the west side, Benjamin, one [portion].

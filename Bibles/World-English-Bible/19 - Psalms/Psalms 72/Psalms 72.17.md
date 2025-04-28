@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His name shall endure for ever; His name shall be continued as long as the sun: And men shall be blessed in him; All nations shall call him happy.
+His name endures forever. His name continues as long as the sun. Men shall be blessed by him. All nations will call him blessed.

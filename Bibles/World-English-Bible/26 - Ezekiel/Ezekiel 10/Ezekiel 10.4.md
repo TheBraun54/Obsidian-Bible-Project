@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the glory of Jehovah mounted up from the cherub, [and stood] over the threshold of the house; and the house was filled with the cloud, and the court was full of the brightness of Jehovah's glory.
+The glory of Yahweh mounted up from the cherub, [and stood] over the threshold of the house; and the house was filled with the cloud, and the court was full of the brightness of Yahweh's glory.

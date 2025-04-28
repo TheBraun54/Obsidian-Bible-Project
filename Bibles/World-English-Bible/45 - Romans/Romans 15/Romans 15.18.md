@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I will not dare to speak of any things save those which Christ wrought through me, for the obedience of the Gentiles, by word and deed,
+For I will not dare to speak of any things except those which Christ worked through me, for the obedience of the Gentiles, by word and deed,

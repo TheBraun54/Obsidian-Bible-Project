@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore Jehovah said unto Solomon, Forasmuch as this is done of thee, and thou hast not kept my covenant and my statutes, which I have commanded thee, I will surely rend the kingdom from thee, and will give it to thy servant.
+Therefore Yahweh said to Solomon, "Because this is done by you, and you have not kept my covenant and my statutes, which I have commanded you, I will surely tear the kingdom from you, and will give it to your servant.

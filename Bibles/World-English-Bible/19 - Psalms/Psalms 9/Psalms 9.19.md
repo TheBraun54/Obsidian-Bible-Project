@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise, O Jehovah; Let not man prevail: Let the nations be judged in thy sight.
+Arise, Yahweh! Don't let man prevail. Let the nations be judged in your sight.

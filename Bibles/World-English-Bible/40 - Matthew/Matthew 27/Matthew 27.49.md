@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the rest said, Let be; let us see whether Elijah cometh to save him.
+The rest said, "Let him be. Let's see whether Elijah comes to save him."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Art thou greater than our father Abraham, who died? and the prophets died: whom makest thou thyself?
+Are you greater than our father, Abraham, who died? The prophets died. Who do you make yourself out to be?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath redeemed my soul in peace from the battle that was against me; For they were many [that strove] with me.
+He has redeemed my soul in peace from the battle that was against me, although there are many who oppose me.

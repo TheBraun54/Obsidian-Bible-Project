@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the father of circumcision to them who not only are of the circumcision, but who also walk in the steps of that faith of our father Abraham which he had in uncircumcision.
+He is the father of circumcision to those who not only are of the circumcision, but who also walk in the steps of that faith of our father Abraham, which he had in uncircumcision.

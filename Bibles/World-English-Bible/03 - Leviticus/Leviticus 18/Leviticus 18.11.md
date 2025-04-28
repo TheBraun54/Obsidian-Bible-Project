@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The nakedness of thy father's wife's daughter, begotten of thy father, she is thy sister, thou shalt not uncover her nakedness.
+"'You shall not uncover the nakedness of your father's wife's daughter, conceived by your father, since she is your sister.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah make his face to shine upon thee, and be gracious unto thee:
+Yahweh make his face to shine on you, and be gracious to you.

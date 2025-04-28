@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and if the peoples of the land bring wares or any grain on the sabbath day to sell, that we would not buy of them on the sabbath, or on a holy day; and that we would forego the seventh year, and the exaction of every debt.
+and if the peoples of the land bring wares or any grain on the Sabbath day to sell, that we would not buy of them on the Sabbath, or on a holy day; and that we would forego the seventh year, and the exaction of every debt.

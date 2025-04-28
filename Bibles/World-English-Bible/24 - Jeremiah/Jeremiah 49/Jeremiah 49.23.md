@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of Damascus. Hamath is confounded, and Arpad; for they have heard evil tidings, they are melted away: there is sorrow on the sea; it cannot be quiet.
+Of Damascus. Hamath is confounded, and Arpad; for they have heard evil news, they are melted away: there is sorrow on the sea; it can't be quiet.

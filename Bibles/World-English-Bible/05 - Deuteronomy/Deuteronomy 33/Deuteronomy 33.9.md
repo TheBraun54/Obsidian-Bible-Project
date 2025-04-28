@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who said of his father, and of his mother, I have not seen him; Neither did he acknowledge his brethren, Nor knew he his own children: For they have observed thy word, And keep thy covenant.
+who said of his father, and of his mother, 'I have not seen him;' Neither did he acknowledge his brothers, Nor did he know his own children: For they have observed your word, and keep your covenant.

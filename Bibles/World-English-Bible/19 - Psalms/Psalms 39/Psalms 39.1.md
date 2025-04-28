@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician, for Jeduthun. A Psalm of David]. I said, I will take heed to my ways, That I sin not with my tongue: I will keep my mouth with a bridle, While the wicked is before me.
+I said, "I will watch my ways, so that I don't sin with my tongue. I will keep my mouth with a bridle while the wicked is before me."

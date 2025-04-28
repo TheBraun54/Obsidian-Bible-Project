@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that diligently seeketh good seeketh favor; But he that searcheth after evil, it shall come unto him.
+He who diligently seeks good seeks favor, but he who searches after evil, it shall come to him.

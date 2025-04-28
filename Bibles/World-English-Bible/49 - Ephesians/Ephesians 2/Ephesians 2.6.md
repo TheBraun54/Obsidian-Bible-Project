@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and raised us up with him, and made us to sit with him in the heavenly [places], in Christ Jesus:
+and raised us up with him, and made us to sit with him in the heavenly places in Christ Jesus,

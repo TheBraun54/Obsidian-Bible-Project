@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His underparts are [like] sharp potsherds: He spreadeth [as it were] a threshing-wain upon the mire.
+His undersides are like sharp potsherds, leaving a trail in the mud like a threshing sledge.

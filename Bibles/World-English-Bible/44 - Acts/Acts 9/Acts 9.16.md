@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for I will show him how many things he must suffer for my name's sake.
+For I will show him how many things he must suffer for my name's sake."

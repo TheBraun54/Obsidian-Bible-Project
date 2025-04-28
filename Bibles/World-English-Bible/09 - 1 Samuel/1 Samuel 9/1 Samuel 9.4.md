@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he passed through the hill-country of Ephraim, and passed through the land of Shalishah, but they found them not: then they passed through the land of Shaalim, and there they were not: and he passed through the land of the Benjamites, but they found them not.
+He passed through the hill country of Ephraim, and passed through the land of Shalishah, but they didn't find them: then they passed through the land of Shaalim, and there they weren't there: and he passed through the land of the Benjamites, but they didn't find them.

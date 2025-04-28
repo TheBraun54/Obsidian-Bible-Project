@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To deliver thee from the strange woman, Even from the foreigner that flattereth with her words;
+To deliver you from the strange woman, even from the foreigner who flatters with her words;

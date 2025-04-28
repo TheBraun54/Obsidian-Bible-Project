@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall count unto you from the morrow after the sabbath, from the day that ye brought the sheaf of the wave-offering; seven sabbaths shall there be complete:
+"'You shall count from the next day after the Sabbath, from the day that you brought the sheaf of the wave offering; seven Sabbaths shall be completed:

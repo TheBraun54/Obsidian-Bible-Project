@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as they sat at the table, that the word of Jehovah came unto the prophet that brought him back;
+It happened, as they sat at the table, that the word of Yahweh came to the prophet who brought him back;

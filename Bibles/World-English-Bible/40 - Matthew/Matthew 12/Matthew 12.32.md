@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whosoever shall speak a word against the Son of man, it shall be forgiven him; but whosoever shall speak against the Holy Spirit, it shall not be forgiven him, neither in this world, nor in that which is to come.
+Whoever speaks a word against the Son of Man, it will be forgiven him; but whoever speaks against the Holy Spirit, it will not be forgiven him, neither in this age, nor in that which is to come.

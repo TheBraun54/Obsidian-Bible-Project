@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-An evil-doer giveth heed to wicked lips; [And] a liar giveth ear to a mischievous tongue.
+An evildoer heeds wicked lips. A liar gives ear to a mischievous tongue.

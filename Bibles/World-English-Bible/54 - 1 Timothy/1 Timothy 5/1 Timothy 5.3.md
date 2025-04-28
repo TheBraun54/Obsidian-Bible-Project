@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Honor widows that are widows indeed.
+Honor widows who are widows indeed.

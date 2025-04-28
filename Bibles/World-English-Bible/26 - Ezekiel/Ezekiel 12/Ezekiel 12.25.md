@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I am Jehovah; I will speak, and the word that I shall speak shall be performed; it shall be no more deferred: for in your days, O rebellious house, will I speak the word, and will perform it, saith the Lord Jehovah.
+For I am Yahweh; I will speak, and the word that I shall speak shall be performed; it shall be no more deferred: for in your days, rebellious house, will I speak the word, and will perform it, says the Lord Yahweh.

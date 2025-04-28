@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, before he had done speaking, that, behold, Rebekah came out, who was born to Bethuel the son of Milcah, the wife of Nahor, Abraham's brother, with her pitcher upon her shoulder.
+It happened, before he had finished speaking, that behold, Rebekah came out, who was born to Bethuel the son of Milcah, the wife of Nahor, Abraham's brother, with her pitcher on her shoulder.

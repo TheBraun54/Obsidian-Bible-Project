@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will send forth the rod of thy strength out of Zion: Rule thou in the midst of thine enemies.
+Yahweh will send forth the rod of your strength out of Zion. Rule in the midst of your enemies.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ought not this woman, being a daughter of Abraham, whom Satan had bound, lo, [these] eighteen years, to have been loosed from this bond on the day of the sabbath?
+Ought not this woman, being a daughter of Abraham, whom Satan had bound eighteen long years, be freed from this bondage on the Sabbath day?"

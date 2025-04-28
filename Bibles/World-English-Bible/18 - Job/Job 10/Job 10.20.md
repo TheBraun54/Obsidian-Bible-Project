@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Are not my days few? cease then, And let me alone, that I may take comfort a little,
+Aren't my days few? Cease then. Leave me alone, that I may find a little comfort,

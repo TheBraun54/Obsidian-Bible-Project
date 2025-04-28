@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for you, hearken ye not to your prophets, nor to your diviners, nor to your dreams, nor to your soothsayers, nor to your sorcerers, that speak unto you, saying, Ye shall not serve the king of Babylon:
+But as for you, don't you listen to your prophets, nor to your diviners, nor to your dreams, nor to your soothsayers, nor to your sorcerers, who speak to you, saying, You shall not serve the king of Babylon:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob beheld the countenance of Laban, and, behold, it was not toward him as beforetime.
+Jacob saw the expression on Laban's face, and, behold, it was not toward him as before.

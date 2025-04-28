@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He stirreth up the sea with his power, And by his understanding he smiteth through Rahab.
+He stirs up the sea with his power, and by his understanding he strikes through Rahab.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah did according to the word of Moses; and the frogs died out of the houses, out of the courts, and out of the fields.
+Yahweh did according to the word of Moses, and the frogs died out of the houses, out of the courts, and out of the fields.

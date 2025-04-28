@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye, brethren, are not in darkness, that that day should overtake you as a thief:
+But you, brothers, aren't in darkness, that the day should overtake you like a thief.

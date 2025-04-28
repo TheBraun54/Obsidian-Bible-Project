@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto Joseph were born two sons before the year of famine came, whom Asenath, the daughter of Poti-phera priest of On, bare unto him.
+To Joseph were born two sons before the year of famine came, whom Asenath, the daughter of Potiphera priest of On, bore to him.

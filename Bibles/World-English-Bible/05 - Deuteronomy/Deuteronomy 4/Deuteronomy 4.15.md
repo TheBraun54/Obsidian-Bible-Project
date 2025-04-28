@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take ye therefore good heed unto yourselves; for ye saw no manner of form on the day that Jehovah spake unto you in Horeb out of the midst of the fire.
+Take therefore good heed to yourselves; for you saw no kind of form on the day that Yahweh spoke to you in Horeb out of the midst of the fire.

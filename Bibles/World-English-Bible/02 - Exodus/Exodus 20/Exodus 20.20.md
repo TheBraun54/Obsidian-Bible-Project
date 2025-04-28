@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto the people, Fear not: for God is come to prove you, and that his fear may be before you, that ye sin not.
+Moses said to the people, "Don't be afraid, for God has come to test you, and that his fear may be before you, that you won't sin."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Israel came to buy among those that came: for the famine was in the land of Canaan.
+The sons of Israel came to buy among those who came, for the famine was in the land of Canaan.

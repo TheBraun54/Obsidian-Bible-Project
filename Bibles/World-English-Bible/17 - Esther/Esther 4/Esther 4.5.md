@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then called Esther for Hathach, one of the king's chamberlains, whom he had appointed to attend upon her, and charged him to go to Mordecai, to know what this was, and why it was.
+Then Esther called for Hathach, one of the king's eunuchs, whom he had appointed to attend her, and commanded him to go to Mordecai, to find out what this was, and why it was.

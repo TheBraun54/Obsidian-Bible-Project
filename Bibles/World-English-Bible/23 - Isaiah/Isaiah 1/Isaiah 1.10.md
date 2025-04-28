@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear the word of Jehovah, ye rulers of Sodom; give ear unto the law of our God, ye people of Gomorrah.
+Hear the word of Yahweh, you rulers of Sodom! Listen to the law of our God, you people of Gomorrah!

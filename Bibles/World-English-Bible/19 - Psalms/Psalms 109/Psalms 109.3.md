@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have compassed me about also with words of hatred, And fought against me without a cause.
+They have also surrounded me with words of hatred, and fought against me without a cause.

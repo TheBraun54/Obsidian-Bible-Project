@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover the Levites: Jeshua, Binnui, Kadmiel, Sherebiah, Judah, [and] Mattaniah, who was over the thanksgiving, he and his brethren.
+Moreover the Levites: Jeshua, Binnui, Kadmiel, Sherebiah, Judah, [and] Mattaniah, who was over the thanksgiving, he and his brothers.

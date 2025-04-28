@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And John answered and said, Master, we saw one casting out demons in thy name; and we forbade him, because he followeth not with us.
+John answered, "Master, we saw someone casting out demons in your name, and we forbade him, because he doesn't follow with us."

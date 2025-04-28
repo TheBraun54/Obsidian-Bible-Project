@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, Ye shall not go up, nor fight against your brethren: return every man to his house; for this thing is of me. So they hearkened unto the words of Jehovah, and returned from going against Jeroboam.
+'Thus says Yahweh, "You shall not go up, nor fight against your brothers! Return every man to his house; for this thing is of me."'" So they listened to the words of Yahweh, and returned from going against Jeroboam.

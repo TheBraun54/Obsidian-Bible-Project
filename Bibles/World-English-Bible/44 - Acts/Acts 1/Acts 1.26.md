@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they gave lots for them; and the lot fell upon Matthias; and he was numbered with the eleven apostles.
+They drew lots for them, and the lot fell on Matthias, and he was numbered with the eleven apostles.

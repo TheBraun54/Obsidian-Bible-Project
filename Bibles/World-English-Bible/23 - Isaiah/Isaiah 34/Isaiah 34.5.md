@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For my sword hath drunk its fill in heaven: behold, it shall come down upon Edom, and upon the people of my curse, to judgment.
+For my sword has drunk its fill in the sky. Behold, it will come down on Edom, and on the people of my curse, for judgment.

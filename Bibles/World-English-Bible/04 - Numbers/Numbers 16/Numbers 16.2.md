@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they rose up before Moses, with certain of the children of Israel, two hundred and fifty princes of the congregation, called to the assembly, men of renown;
+and they rose up before Moses, with certain of the children of Israel, two hundred fifty princes of the congregation, called to the assembly, men of renown;

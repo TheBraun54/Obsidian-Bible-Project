@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Moses numbered, as Jehovah commanded him, all the first-born among the children of Israel.
+Moses numbered, as Yahweh commanded him, all the firstborn among the children of Israel.

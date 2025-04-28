@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the priest gave him holy [bread] ; for there was no bread there but the showbread, that was taken from before Jehovah, to put hot bread in the day when it was taken away.
+So the priest gave him holy [bread]; for there was no bread there but the show bread, that was taken from before Yahweh, to put hot bread in the day when it was taken away.

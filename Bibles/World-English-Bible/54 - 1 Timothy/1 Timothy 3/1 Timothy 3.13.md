@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they that have served well as deacons gain to themselves a good standing, and great boldness in the faith which is in Christ Jesus.
+For those who have served well gain for themselves a good standing, and great boldness in the faith which is in Christ Jesus.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah visited Sarah as he had said, and Jehovah did unto Sarah as he had spoken.
+Yahweh visited Sarah as he had said, and Yahweh did to Sarah as he had spoken.

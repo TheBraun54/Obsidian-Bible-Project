@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he that speaketh in a tongue speaketh not unto men, but unto God; for no man understandeth; but in the spirit he speaketh mysteries.
+For he who speaks in another language speaks not to men, but to God; for no one understands; but in the Spirit he speaks mysteries.

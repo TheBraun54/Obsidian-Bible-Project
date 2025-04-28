@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because the mind of the flesh is enmity against God; for it is not subject to the law of God, neither indeed can it be:
+because the mind of the flesh is hostile towards God; for it is not subject to God's law, neither indeed can it be.

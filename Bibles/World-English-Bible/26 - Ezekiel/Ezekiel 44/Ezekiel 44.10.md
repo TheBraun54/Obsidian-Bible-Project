@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the Levites that went far from me, when Israel went astray, that went astray from me after their idols, they shall bear their iniquity.
+But the Levites who went far from me, when Israel went astray, who went astray from me after their idols, they shall bear their iniquity.

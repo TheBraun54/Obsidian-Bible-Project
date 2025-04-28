@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses was not able to enter into the tent of meeting, because the cloud abode thereon, and the glory of Jehovah filled the tabernacle.
+Moses wasn't able to enter into the Tent of Meeting, because the cloud stayed on it, and Yahweh's glory filled the tabernacle.

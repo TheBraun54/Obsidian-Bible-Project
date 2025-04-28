@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Run ye to and fro through the streets of Jerusalem, and see now, and know, and seek in the broad places thereof, if ye can find a man, if there be any that doeth justly, that seeketh truth; and I will pardon her.
+"Run back and forth through the streets of Jerusalem, and see now, and know, and seek in the broad places of it, if you can find a man, if there are any who does justly, who seeks truth; and I will pardon her.

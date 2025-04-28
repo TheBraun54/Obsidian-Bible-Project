@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he maketh sore, and bindeth up; He woundeth, and his hands make whole.
+For he wounds, and binds up. He injures, and his hands make whole.

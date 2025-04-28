@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Declare ye this in the house of Jacob, and publish it in Judah, saying,
+"Declare this in the house of Jacob, and publish it in Judah, saying,

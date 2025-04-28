@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said, The glory is departed from Israel; for the ark of God is taken.
+She said, "The glory has departed from Israel; for the ark of God is taken."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt observe the feast of weeks, [even] of the first-fruits of wheat harvest, and the feast of ingathering at the year's end.
+"You shall observe the feast of weeks with the first fruits of wheat harvest, and the feast of harvest at the year's end.

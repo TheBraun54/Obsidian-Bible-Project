@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as he was now drawing nigh, [even] at the descent of the mount of Olives, the whole multitude of the disciples began to rejoice and praise God with a loud voice for all the mighty works which they had seen;
+As he was now getting near, at the descent of the Mount of Olives, the whole multitude of the disciples began to rejoice and praise God with a loud voice for all the mighty works which they had seen,

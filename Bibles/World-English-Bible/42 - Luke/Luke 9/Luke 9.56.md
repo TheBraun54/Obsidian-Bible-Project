@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went to another village.
+For the Son of Man didn't come to destroy men's lives, but to save them." They went to another village.

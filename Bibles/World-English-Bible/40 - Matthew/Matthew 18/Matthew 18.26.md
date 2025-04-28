@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The servant therefore fell down and worshipped him, saying, Lord, have patience with me, and I will pay thee all.
+The servant therefore fell down and kneeled before him, saying, 'Lord, have patience with me, and I will repay you all!'

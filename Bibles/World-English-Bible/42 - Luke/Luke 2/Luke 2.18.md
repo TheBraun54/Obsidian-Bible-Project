@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all that heard it wondered at the things which were spoken unto them by the shepherds.
+All who heard it wondered at the things which were spoken to them by the shepherds.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he received a cup, and when he had given thanks, he said, Take this, and divide it among yourselves:
+He received a cup, and when he had given thanks, he said, "Take this, and share it among yourselves,

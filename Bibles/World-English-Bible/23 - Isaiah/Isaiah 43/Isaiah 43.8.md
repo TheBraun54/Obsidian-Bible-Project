@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bring forth the blind people that have eyes, and the deaf that have ears.
+Bring out the blind people who have eyes, and the deaf who have ears.

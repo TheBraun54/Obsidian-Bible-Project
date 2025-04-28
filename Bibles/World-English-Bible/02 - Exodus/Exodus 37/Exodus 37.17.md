@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the candlestick of pure gold: of beaten work made he the candlestick, even its base, and its shaft; its cups, it knops, and its flowers, were of one piece with it.
+He made the lampstand of pure gold. He made the lampstand of beaten work. Its base, its shaft, its cups, its buds, and its flowers were of one piece with it.

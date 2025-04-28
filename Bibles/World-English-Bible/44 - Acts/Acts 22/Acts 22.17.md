@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, that, when I had returned to Jerusalem, and while I prayed in the temple, I fell into a trance,
+"It happened that, when I had returned to Jerusalem, and while I prayed in the temple, I fell into a trance,

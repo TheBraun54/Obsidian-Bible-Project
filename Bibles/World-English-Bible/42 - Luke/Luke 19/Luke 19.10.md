@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the Son of man came to seek and to save that which was lost.
+For the Son of Man came to seek and to save that which was lost."

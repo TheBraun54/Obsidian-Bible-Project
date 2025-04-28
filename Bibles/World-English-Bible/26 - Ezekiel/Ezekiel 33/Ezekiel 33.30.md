@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as for thee, son of man, the children of thy people talk of thee by the walls and in the doors of the houses, and speak one to another, every one to his brother, saying, Come, I pray you, and hear what is the word that cometh forth from Jehovah.
+As for you, son of man, the children of your people talk of you by the walls and in the doors of the houses, and speak one to another, everyone to his brother, saying, Please come and hear what is the word that comes forth from Yahweh.

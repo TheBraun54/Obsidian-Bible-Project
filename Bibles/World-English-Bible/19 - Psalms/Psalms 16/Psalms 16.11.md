@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou wilt show me the path of life: In thy presence is fulness of joy; In thy right hand there are pleasures for evermore.
+You will show me the path of life. In your presence is fullness of joy. In your right hand there are pleasures forevermore. A Prayer by David.

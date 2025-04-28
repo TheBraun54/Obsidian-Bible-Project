@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thus saith Jehovah, Even the captives of the mighty shall be taken away, and the prey of the terrible shall be delivered; for I will contend with him that contendeth with thee, and I will save thy children.
+But thus says Yahweh, "Even the captives of the mighty shall be taken away, and the prey of the terrible shall be delivered; for I will contend with him who contends with you, and I will save your children.

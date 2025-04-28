@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whosoever believeth that Jesus is the Christ is begotten of God: and whosoever loveth him that begat loveth him also that is begotten of him.
+Whoever believes that Jesus is the Christ is born of God. Whoever loves the Father also loves the child who is born of him.

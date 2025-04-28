@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Jews therefore said, Forty and six years was this temple in building, and wilt thou raise it up in three days?
+The Jews therefore said, "It took forty-six years to build this temple! Will you raise it up in three days?"

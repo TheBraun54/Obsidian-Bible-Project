@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses built an altar, and called the name of it Jehovah-nissi;
+Moses built an altar, and called its name Yahweh our Banner.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The book of the generation of Jesus Christ, the son of David, the son of Abraham.
+The book of the genealogy of Jesus Christ, the son of David, the son of Abraham.

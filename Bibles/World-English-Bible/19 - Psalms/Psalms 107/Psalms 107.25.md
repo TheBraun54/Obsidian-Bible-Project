@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he commandeth, and raiseth the stormy wind, Which lifteth up the waves thereof.
+For he commands, and raises the stormy wind, which lifts up its waves.

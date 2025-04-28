@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover Abishai the son of Zeruiah smote of the Edomites in the Valley of Salt eighteen thousand.
+Moreover Abishai the son of Zeruiah struck of the Edomites in the Valley of Salt eighteen thousand.

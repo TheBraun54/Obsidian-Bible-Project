@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brake down the altars of the Baalim in his presence; and the sun-images that were on high above them he hewed down; and the Asherim, and the graven images, and the molten images, he brake in pieces, and made dust of them, and strewed it upon the graves [of them] that had sacrificed unto them.
+They broke down the altars of the Baals in his presence; and the incense altars that were on high above them he cut down; and the Asherim, and the engraved images, and the molten images, he broke in pieces, and made dust of them, and strewed it on the graves [of those] who had sacrificed to them.

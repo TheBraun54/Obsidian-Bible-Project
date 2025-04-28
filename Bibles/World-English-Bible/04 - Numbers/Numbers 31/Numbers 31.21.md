@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Eleazar the priest said unto the men of war that went to the battle, This is the statute of the law which Jehovah hath commanded Moses:
+Eleazar the priest said to the men of war who went to the battle, "This is the statute of the law which Yahweh has commanded Moses:

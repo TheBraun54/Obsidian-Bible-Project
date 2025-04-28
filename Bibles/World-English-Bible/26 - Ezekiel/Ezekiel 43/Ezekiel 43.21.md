@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt also take the bullock of the sin-offering, and it shall be burnt in the appointed place of the house, without the sanctuary.
+You shall also take the bull of the sin offering, and it shall be burnt in the appointed place of the house, outside of the sanctuary.

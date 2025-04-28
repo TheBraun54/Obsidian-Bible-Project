@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And very early on the first day of the week, they come to the tomb when the sun was risen.
+Very early on the first day of the week, they came to the tomb when the sun had risen.

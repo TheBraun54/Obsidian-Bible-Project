@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why do the nations rage, And the peoples meditate a vain thing?
+Why do the nations rage, and the peoples plot a vain thing?

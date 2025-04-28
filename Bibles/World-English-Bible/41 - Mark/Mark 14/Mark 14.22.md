@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as they were eating, he took bread, and when he had blessed, he brake it, and gave to them, and said, Take ye: this is my body.
+As they were eating, Jesus took bread, and when he had blessed, he broke it, and gave to them, and said, "Take, eat. This is my body."

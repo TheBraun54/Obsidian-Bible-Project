@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That they may know that thou alone, whose name is Jehovah, Art the Most High over all the earth.
+that they may know that you alone, whose name is Yahweh, are the Most High over all the earth. For the Chief Musician. On an instrument of Gath. A Psalm by the sons of Korah.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not far from me; For trouble is near; For there is none to help.
+Don't be far from me, for trouble is near. For there is none to help.

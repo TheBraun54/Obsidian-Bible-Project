@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Athaliah heard the noise of the people running and praising the king, she came to the people into the house of Jehovah:
+When Athaliah heard the noise of the people running and praising the king, she came to the people into the house of Yahweh:

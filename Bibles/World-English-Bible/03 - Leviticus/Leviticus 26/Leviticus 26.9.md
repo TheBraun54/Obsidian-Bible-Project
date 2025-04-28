@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will have respect unto you, and make you fruitful, and multiply you, and will establish my covenant with you.
+"'I will have respect for you, and make you fruitful, and multiply you, and will establish my covenant with you.

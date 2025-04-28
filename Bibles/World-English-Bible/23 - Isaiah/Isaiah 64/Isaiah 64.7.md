@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there is none that calleth upon thy name, that stirreth up himself to take hold of thee; for thou hast hid thy face from us, and hast consumed us by means of our iniquities.
+There is none who calls on your name, who stirs up himself to take hold of you; for you have hidden your face from us, and have consumed us by means of our iniquities.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-according to all that thou desiredst of Jehovah thy God in Horeb in the day of the assembly, saying, Let me not hear again the voice of Jehovah my God, neither let me see this great fire any more, that I die not.
+This is according to all that you desired of Yahweh your God in Horeb in the day of the assembly, saying, "Let me not hear again the voice of Yahweh my God, neither let me see this great fire any more, that I not die."

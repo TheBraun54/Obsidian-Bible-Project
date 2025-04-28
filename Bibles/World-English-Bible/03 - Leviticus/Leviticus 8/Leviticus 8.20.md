@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he cut the ram into its pieces; and Moses burnt the head, and the pieces, and the fat.
+He cut the ram into its pieces; and Moses burned the head, and the pieces, and the fat.

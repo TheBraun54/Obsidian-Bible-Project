@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From Aroer, which is on the edge of the valley of the Arnon, and [from] the city that is in the valley, even unto Gilead, there was not a city too high for us; Jehovah our God delivered up all before us:
+From Aroer, which is on the edge of the valley of the Arnon, and [from] the city that is in the valley, even to Gilead, there was not a city too high for us; Yahweh our God delivered up all before us:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then I beheld all the work of God, that man cannot find out the work that is done under the sun: because however much a man labor to seek it out, yet he shall not find it; yea moreover, though a wise man think to know it, yet shall he not be able to find it.
+then I saw all the work of God, that man can't find out the work that is done under the sun, because however much a man labors to seek it out, yet he won't find it. Yes even though a wise man thinks he can comprehend it, he won't be able to find it.

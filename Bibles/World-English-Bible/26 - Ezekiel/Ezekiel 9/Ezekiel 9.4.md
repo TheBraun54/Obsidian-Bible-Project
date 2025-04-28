@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto him, Go through the midst of the city, through the midst of Jerusalem, and set a mark upon the foreheads of the men that sigh and that cry over all the abominations that are done in the midst thereof.
+Yahweh said to him, Go through the midst of the city, through the midst of Jerusalem, and set a mark on the foreheads of the men that sigh and that cry over all the abominations that are done in its midst.

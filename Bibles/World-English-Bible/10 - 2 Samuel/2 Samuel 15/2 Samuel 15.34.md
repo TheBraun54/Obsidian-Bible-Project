@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but if thou return to the city, and say unto Absalom, I will be thy servant, O king; as I have been thy father's servant in time past, so will I now be thy servant; then wilt thou defeat for me the counsel of Ahithophel.
+but if you return to the city, and tell Absalom, 'I will be your servant, O king. As I have been your father's servant in time past, so will I now be your servant; then will you defeat for me the counsel of Ahithophel.'

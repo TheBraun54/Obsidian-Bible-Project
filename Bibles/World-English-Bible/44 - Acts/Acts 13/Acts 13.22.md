@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had removed him, he raised up David to be their king; to whom also he bare witness and said, I have found David the son of Jesse, a man after my heart, who shall do all my will.
+When he had removed him, he raised up David to be their king, to whom he also testified, 'I have found David the son of Jesse, a man after my heart, who will do all my will.'

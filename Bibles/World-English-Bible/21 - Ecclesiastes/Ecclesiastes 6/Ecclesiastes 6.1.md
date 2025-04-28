@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is an evil which I have seen under the sun, and it is heavy upon men:
+There is an evil which I have seen under the sun, and it is heavy on men:

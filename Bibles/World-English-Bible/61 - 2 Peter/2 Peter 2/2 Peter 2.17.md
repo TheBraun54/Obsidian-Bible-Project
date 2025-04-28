@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are springs without water, and mists driven by a storm; for whom the blackness of darkness hath been reserved.
+These are wells without water, clouds driven by a storm; for whom the blackness of darkness has been reserved forever.

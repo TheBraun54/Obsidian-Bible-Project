@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their poison is like the poison of a serpent: [They are] like the deaf adder that stoppeth her ear,
+Their poison is like the poison of a snake; like a deaf cobra that stops its ear,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had set the brands on fire, he let them go into the standing grain of the Philistines, and burnt up both the shocks and the standing grain, and also the oliveyards.
+When he had set the brands on fire, he let them go into the standing grain of the Philistines, and burnt up both the shocks and the standing grain, and also the olive groves.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Tell it not in Gath, weep not at all: at Beth-le-aphrah have I rolled myself in the dust.
+Don't tell it in Gath. Don't weep at all. At Beth Ophrah I have rolled myself in the dust.

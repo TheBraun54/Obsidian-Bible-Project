@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of Dan he said, Dan is a lion's whelp, That leapeth forth from Bashan.
+Of Dan he said, "Dan is a lion's cub that leaps out of Bashan."

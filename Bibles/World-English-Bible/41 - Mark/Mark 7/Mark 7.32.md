@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they bring unto him one that was deaf, and had an impediment in his speech; and they beseech him to lay his hand upon him.
+They brought to him one who was deaf and had an impediment in his speech. They begged him to lay his hand on him.

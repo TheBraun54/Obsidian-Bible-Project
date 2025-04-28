@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she sitteth at the door of her house, On a seat in the high places of the city,
+She sits at the door of her house, on a seat in the high places of the city,

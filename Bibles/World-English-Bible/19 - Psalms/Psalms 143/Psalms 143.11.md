@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Quicken me, O Jehovah, for thy name's sake: In thy righteousness bring my soul out of trouble.
+Revive me, Yahweh, for your name's sake. In your righteousness, bring my soul out of trouble.

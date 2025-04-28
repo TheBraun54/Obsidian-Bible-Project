@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For surely there is a reward; And thy hope shall not be cut off.
+Indeed surely there is a future hope, and your hope will not be cut off.

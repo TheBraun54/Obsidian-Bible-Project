@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed are the poor in spirit: for theirs is the kingdom of heaven.
+"Blessed are the poor in spirit, for theirs is the Kingdom of Heaven.

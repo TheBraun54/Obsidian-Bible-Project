@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And everything that she lieth upon in her impurity shall be unclean: everything also that she sitteth upon shall be unclean.
+"'Everything that she lies on in her impurity shall be unclean. Everything also that she sits on shall be unclean.

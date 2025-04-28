@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the voice of the trumpet waxed louder and louder, Moses spake, and God answered him by a voice.
+When the sound of the trumpet grew louder and louder, Moses spoke, and God answered him by a voice.

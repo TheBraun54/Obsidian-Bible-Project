@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Many waters cannot quench love, Neither can floods drown it: If a man would give all the substance of his house for love, He would utterly be contemned.
+Many waters can't quench love, neither can floods drown it. If a man would give all the wealth of his house for love, he would be utterly scorned. Friends

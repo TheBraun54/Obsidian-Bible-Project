@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they say unto him, We have here but five loaves, and two fishes.
+They told him, "We only have here five loaves and two fish."

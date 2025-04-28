@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast walked in the way of thy sister; therefore will I give her cup into thy hand.
+You have walked in the way of your sister; therefore will I give her cup into your hand.

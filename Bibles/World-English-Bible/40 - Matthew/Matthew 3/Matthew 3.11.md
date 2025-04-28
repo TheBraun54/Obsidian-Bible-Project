@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I indeed baptize you in water unto repentance: but he that cometh after me is mightier than I, whose shoes I am not worthy to bear: he shall baptize you in the Holy Spirit and [in] fire:
+I indeed baptize you in water for repentance, but he who comes after me is mightier than I, whose shoes I am not worthy to carry. He will baptize you in the Holy Spirit.

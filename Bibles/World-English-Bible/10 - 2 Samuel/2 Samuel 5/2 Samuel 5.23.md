@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when David inquired of Jehovah, he said, Thou shalt not go up: make a circuit behind them, and come upon them over against the mulberry-trees.
+When David inquired of Yahweh, he said, "You shall not go up. Circle around behind them, and attack them over against the mulberry trees.

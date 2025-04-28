@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When therefore the chief priests and the officers saw him, they cried out, saying, Crucify [him], crucify [him] ! Pilate saith unto them, Take him yourselves, and crucify him: for I find no crime in him.
+When therefore the chief priests and the officers saw him, they shouted, saying, "Crucify! Crucify!" Pilate said to them, "Take him yourselves, and crucify him, for I find no basis for a charge against him."

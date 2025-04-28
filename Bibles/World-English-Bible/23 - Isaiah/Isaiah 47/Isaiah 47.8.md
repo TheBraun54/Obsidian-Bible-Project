@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore hear this, thou that art given to pleasures, that sittest securely, that sayest in thy heart, I am, and there is none else besides me; I shall not sit as a widow, neither shall I know the loss of children:
+"Now therefore hear this, you who are given to pleasures, who sit securely, who say in your heart, I am, and there is none else besides me; I shall not sit as a widow, neither shall I know the loss of children:

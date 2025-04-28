@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But after no long time there beat down from it a tempestuous wind, which is called Euraquilo:
+But before long, a stormy wind beat down from shore, which is called Euroclydon.

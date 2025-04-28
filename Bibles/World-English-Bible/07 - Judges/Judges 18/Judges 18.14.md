@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then answered the five men that went to spy out the country of Laish, and said unto their brethren, Do ye know that there is in these houses an ephod, and teraphim, and a graven image, and a molten image? now therefore consider what ye have to do.
+Then the five men who went to spy out the country of Laish answered, and said to their brothers, "Do you know that there is in these houses an ephod, and teraphim, and an engraved image, and a molten image? Now therefore consider what you have to do."

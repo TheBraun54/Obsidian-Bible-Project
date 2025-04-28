@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-having blotted out the bond written in ordinances that was against us, which was contrary to us: and he hath taken it out of the way, nailing it to the cross;
+wiping out the handwriting in ordinances which was against us; and he has taken it out of the way, nailing it to the cross;

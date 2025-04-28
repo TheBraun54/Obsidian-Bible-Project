@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thick clouds are a covering to him, so that he seeth not; And he walketh on the vault of heaven.
+Thick clouds are a covering to him, so that he doesn't see. He walks on the vault of the sky.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At that season Herod the tetrarch heard the report concerning Jesus,
+At that time, Herod the tetrarch heard the report concerning Jesus,

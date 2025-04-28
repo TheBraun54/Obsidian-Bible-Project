@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the chief priests and the whole council sought witness against Jesus to put him to death; and found it not.
+Now the chief priests and the whole council sought witnesses against Jesus to put him to death, and found none.

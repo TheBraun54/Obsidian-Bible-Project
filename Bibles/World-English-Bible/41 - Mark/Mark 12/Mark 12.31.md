@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The second is this, Thou shalt love thy neighbor as thyself. There is none other commandment greater than these.
+The second is like this, 'You shall love your neighbor as yourself.' There is no other commandment greater than these."

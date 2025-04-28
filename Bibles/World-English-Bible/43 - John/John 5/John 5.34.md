@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the witness which I receive is not from man: howbeit I say these things, that ye may be saved.
+But the testimony which I receive is not from man. However, I say these things that you may be saved.

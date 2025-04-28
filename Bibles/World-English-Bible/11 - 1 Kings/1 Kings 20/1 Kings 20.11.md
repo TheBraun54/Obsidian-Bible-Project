@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Israel answered and said, Tell him, Let not him that girdeth on [his armor] boast himself as he that putteth it off.
+The king of Israel answered, "Tell him, 'Don't let him who puts on his armor brag like he who takes it off.'"

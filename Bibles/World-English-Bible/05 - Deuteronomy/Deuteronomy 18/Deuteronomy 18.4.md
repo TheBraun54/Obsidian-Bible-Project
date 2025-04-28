@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The first-fruits of thy grain, of thy new wine, and of thine oil, and the first of the fleece of thy sheep, shalt thou give him.
+The first fruits of your grain, of your new wine, and of your oil, and the first of the fleece of your sheep, you shall give him.

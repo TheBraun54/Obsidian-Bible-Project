@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Gideon said unto them, I will not rule over you, neither shall my son rule over you: Jehovah shall rule over you.
+Gideon said to them, "I will not rule over you, neither shall my son rule over you. Yahweh shall rule over you."

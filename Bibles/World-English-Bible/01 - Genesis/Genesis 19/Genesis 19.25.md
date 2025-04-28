@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he overthrew those cities, and all the Plain, and all the inhabitants of the cities, and that which grew upon the ground.
+He overthrew those cities, all the plain, all the inhabitants of the cities, and that which grew on the ground.

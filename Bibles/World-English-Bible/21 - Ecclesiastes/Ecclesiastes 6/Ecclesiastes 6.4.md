@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for it cometh in vanity, and departeth in darkness, and the name thereof is covered with darkness;
+for it comes in vanity, and departs in darkness, and its name is covered with darkness.

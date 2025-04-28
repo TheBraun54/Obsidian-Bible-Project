@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the creation was subjected to vanity, not of its own will, but by reason of him who subjected it, in hope
+For the creation was subjected to vanity, not of its own will, but because of him who subjected it, in hope

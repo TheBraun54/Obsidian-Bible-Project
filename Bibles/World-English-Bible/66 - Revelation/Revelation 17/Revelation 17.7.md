@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel said unto me, Wherefore didst thou wonder? I will tell thee the mystery of the woman, and of the beast that carrieth her, which hath the seven heads and the ten horns.
+The angel said to me, "Why do you wonder? I will tell you the mystery of the woman, and of the beast that carries her, which has the seven heads and the ten horns.

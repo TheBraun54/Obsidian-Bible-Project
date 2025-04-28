@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt cast four rings of gold for it, and put them in the four feet thereof; and two rings shall be on the one side of it, and two rings on the other side of it.
+You shall cast four rings of gold for it, and put them in its four feet. Two rings shall be on the one side of it, and two rings on the other side of it.

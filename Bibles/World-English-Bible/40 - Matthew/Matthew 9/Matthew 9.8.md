@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when the multitudes saw it, they were afraid, and glorified God, who had given such authority unto men.
+But when the multitudes saw it, they marveled and glorified God, who had given such authority to men.

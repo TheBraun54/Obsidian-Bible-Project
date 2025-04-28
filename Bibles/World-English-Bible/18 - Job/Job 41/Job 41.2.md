@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Canst thou put a rope into his nose? Or pierce his jaw through with a hook?
+Can you put a rope into his nose, or pierce his jaw through with a hook?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sleep of a laboring man is sweet, whether he eat little or much; but the fulness of the rich will not suffer him to sleep.
+The sleep of a laboring man is sweet, whether he eats little or much; but the abundance of the rich will not allow him to sleep.

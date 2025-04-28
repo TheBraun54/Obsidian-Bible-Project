@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to know the love of Christ which passeth knowledge, that ye may be filled unto all the fulness of God.
+and to know Christ's love which surpasses knowledge, that you may be filled with all the fullness of God.

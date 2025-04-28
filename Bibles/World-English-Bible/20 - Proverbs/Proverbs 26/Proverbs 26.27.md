@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso diggeth a pit shall fall therein; And he that rolleth a stone, it shall return upon him.
+Whoever digs a pit shall fall into it. Whoever rolls a stone, it will come back on him.

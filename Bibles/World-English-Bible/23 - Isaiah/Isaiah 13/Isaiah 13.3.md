@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have commanded my consecrated ones, yea, I have called my mighty men for mine anger, even my proudly exulting ones.
+I have commanded my consecrated ones; yes, I have called my mighty men for my anger, even my proudly exulting ones.

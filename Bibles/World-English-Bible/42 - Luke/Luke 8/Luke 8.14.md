@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And that which fell among the thorns, these are they that have heard, and as they go on their way they are choked with cares and riches and pleasures of [this] life, and bring no fruit to perfection.
+That which fell among the thorns, these are those who have heard, and as they go on their way they are choked with cares, riches, and pleasures of life, and bring no fruit to maturity.

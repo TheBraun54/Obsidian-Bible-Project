@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jarmuth with its suburbs, En-gannim with its suburbs; four cities.
+Jarmuth with its suburbs, En Gannim with its suburbs; four cities.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the righteous shall be recompensed in the earth: How much more the wicked and the sinner!
+Behold, the righteous shall be repaid in the earth; how much more the wicked and the sinner!

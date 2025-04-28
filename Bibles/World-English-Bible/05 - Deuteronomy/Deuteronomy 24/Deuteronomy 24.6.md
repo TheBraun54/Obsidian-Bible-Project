@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-No man shall take the mill or the upper millstone to pledge; for he taketh [a man's] life to pledge.
+No man shall take the mill or the upper millstone to pledge; for he takes [a man's] life to pledge.

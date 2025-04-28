@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the host was given over [to it] together with the continual [burnt-offering] through transgression; and it cast down truth to the ground, and it did [its pleasure] and prospered.
+The army was given over [to it] together with the continual [burnt offering] through disobedience; and it cast down truth to the ground, and it did [its pleasure] and prospered.

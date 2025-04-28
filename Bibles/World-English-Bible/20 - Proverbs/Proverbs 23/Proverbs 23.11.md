@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For their Redeemer is strong; He will plead their cause against thee.
+for their Defender is strong. He will plead their case against you.

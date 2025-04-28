@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mine enemies would swallow me up all the day long; For they are many that fight proudly against me.
+My enemies want to swallow me up all day long, for they are many who fight proudly against me.

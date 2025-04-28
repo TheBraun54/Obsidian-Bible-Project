@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God came unto Balaam, and said, What men are these with thee?
+God came to Balaam, and said, "Who are these men with you?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We are confounded, because we have heard reproach; confusion hath covered our faces: for strangers are come into the sanctuaries of Jehovah's house.
+We are confounded, because we have heard reproach; confusion has covered our faces: for strangers are come into the sanctuaries of Yahweh's house.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the border went up by the valley of the son of Hinnom unto the side of the Jebusite southward (the same is Jerusalem); and the border went up to the top of the mountain that lieth before the valley of Hinnom westward, which is at the uttermost part of the vale of Rephaim northward;
+The border went up by the valley of the son of Hinnom to the side of the Jebusite southward (the same is Jerusalem); and the border went up to the top of the mountain that lies before the valley of Hinnom westward, which is at the farthest part of the valley of Rephaim northward.

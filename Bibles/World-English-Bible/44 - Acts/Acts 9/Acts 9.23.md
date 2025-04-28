@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when many days were fulfilled, the Jews took counsel together to kill him:
+When many days were fulfilled, the Jews conspired together to kill him,

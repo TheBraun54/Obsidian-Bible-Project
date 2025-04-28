@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, none that wait for thee shall be put to shame: They shall be put to shame that deal treacherously without cause.
+Yes, no one who waits for you shall be shamed. They shall be shamed who deal treacherously without cause.

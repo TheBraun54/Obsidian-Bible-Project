@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall two men be in the field; one is taken, and one is left:
+Then two men will be in the field: one will be taken and one will be left;

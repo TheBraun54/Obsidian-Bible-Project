@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I said unto you, Dread not, neither be afraid of them.
+Then I said to you, "Don't dread, neither be afraid of them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the queen of Sheba heard of the fame of Solomon concerning the name of Jehovah, she came to prove him with hard questions.
+When the queen of Sheba heard of the fame of Solomon concerning the name of Yahweh, she came to prove him with hard questions.

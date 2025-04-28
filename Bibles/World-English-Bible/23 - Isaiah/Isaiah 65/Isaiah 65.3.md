@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-a people that provoke me to my face continually, sacrificing in gardens, and burning incense upon bricks;
+a people who provoke me to my face continually, sacrificing in gardens, and burning incense on bricks;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jacob dwelt in the land of his father's sojournings, in the land of Canaan.
+Jacob lived in the land of his father's travels, in the land of Canaan.

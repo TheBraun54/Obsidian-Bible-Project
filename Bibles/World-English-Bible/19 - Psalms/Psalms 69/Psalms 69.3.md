@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am weary with my crying; my throat is dried: Mine eyes fail while I wait for my God.
+I am weary with my crying. My throat is dry. My eyes fail, looking for my God.

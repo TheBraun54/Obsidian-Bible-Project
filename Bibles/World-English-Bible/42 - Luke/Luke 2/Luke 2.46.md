@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, after three days they found him in the temple, sitting in the midst of the teachers, both hearing them, and asking them questions:
+It happened after three days they found him in the temple, sitting in the midst of the teachers, both listening to them, and asking them questions.

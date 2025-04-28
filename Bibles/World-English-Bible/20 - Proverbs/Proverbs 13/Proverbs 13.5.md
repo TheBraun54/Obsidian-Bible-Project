@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A righteous man hateth lying; But a wicked man is loathsome, and cometh to shame.
+A righteous man hates lies, but a wicked man brings shame and disgrace.

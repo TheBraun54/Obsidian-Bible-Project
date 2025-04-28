@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus said unto him, No man, having put his hand to the plow, and looking back, is fit for the kingdom of God.
+But Jesus said to him, "No one, having put his hand to the plow, and looking back, is fit for the Kingdom of God."

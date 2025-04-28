@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that trust in their wealth, And boast themselves in the multitude of their riches;
+Those who trust in their wealth, and boast in the multitude of their riches--

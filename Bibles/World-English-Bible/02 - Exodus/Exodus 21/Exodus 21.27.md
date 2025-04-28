@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if he smite out his man-servant's tooth, or his maid-servant's tooth; he shall let him go free for his tooth's sake.
+If he strikes out his male servant's tooth, or his female servant's tooth, he shall let him go free for his tooth's sake.

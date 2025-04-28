@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the waters prevailed, and increased greatly upon the earth; and the ark went upon the face of the waters.
+The waters prevailed, and increased greatly on the earth; and the ship floated on the surface of the waters.

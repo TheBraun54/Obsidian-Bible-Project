@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou shalt hear tell concerning one of thy cities, which Jehovah thy God giveth thee to dwell there, saying,
+If you shall hear tell concerning one of your cities, which Yahweh your God gives you to dwell there, saying,

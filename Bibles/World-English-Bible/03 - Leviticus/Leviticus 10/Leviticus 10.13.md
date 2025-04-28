@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ye shall eat it in a holy place, because it is thy portion, and thy sons' portion, of the offerings of Jehovah made by fire: for so I am commanded.
+and you shall eat it in a holy place, because it is your portion, and your sons' portion, of the offerings of Yahweh made by fire: for so I am commanded.

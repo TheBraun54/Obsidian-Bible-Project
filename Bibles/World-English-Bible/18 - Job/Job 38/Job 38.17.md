@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have the gates of death been revealed unto thee? Or hast thou seen the gates of the shadow of death?
+Have the gates of death been revealed to you? Or have you seen the gates of the shadow of death?

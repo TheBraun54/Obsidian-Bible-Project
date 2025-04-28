@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not offer the blood of my sacrifice with leavened bread; neither shall the fat of my feast remain all night until the morning.
+"You shall not offer the blood of my sacrifice with leavened bread, neither shall the fat of my feast remain all night until the morning.

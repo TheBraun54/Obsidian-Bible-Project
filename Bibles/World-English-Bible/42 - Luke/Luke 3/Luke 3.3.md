@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he came into all the region round about the Jordan, preaching the baptism of repentance unto remission of sins;
+He came into all the region around the Jordan, preaching the baptism of repentance for remission of sins.

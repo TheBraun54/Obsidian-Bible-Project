@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-According to all these words, and according to all this vision, so did Nathan speak unto David.
+According to all these words, and according to all this vision, so Nathan spoke to David.

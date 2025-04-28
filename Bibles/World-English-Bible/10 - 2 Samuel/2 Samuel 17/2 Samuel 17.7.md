@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hushai said unto Absalom, The counsel that Ahithophel hath given this time is not good.
+Hushai said to Absalom, "The counsel that Ahithophel has given this time is not good."

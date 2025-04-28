@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, thou shalt call a nation that thou knowest not; and a nation that knew not thee shall run unto thee, because of Jehovah thy God, and for the Holy One of Israel; for he hath glorified thee.
+Behold, you shall call a nation that you don't know; and a nation that didn't know you shall run to you, because of Yahweh your God, and for the Holy One of Israel; for he has glorified you."

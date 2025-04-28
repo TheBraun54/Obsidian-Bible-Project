@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah gave Solomon wisdom, as he promised him; and there was peace between Hiram and Solomon; and they two made a league together.
+Yahweh gave Solomon wisdom, as he promised him; and there was peace between Hiram and Solomon; and they two made a treaty together.

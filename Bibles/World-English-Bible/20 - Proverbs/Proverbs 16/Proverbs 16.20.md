@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that giveth heed unto the word shall find good; And whoso trusteth in Jehovah, happy is he.
+He who heeds the Word finds prosperity. Whoever trusts in Yahweh is blessed.

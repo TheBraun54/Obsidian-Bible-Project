@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And forgive us our debts, as we also have forgiven our debtors.
+Forgive us our debts, as we also forgive our debtors.

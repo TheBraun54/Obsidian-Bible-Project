@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath taken away thy judgments, he hath cast out thine enemy: the King of Israel, even Jehovah, is in the midst of thee; thou shalt not fear evil any more.
+Yahweh has taken away your judgments. He has thrown out your enemy. The King of Israel, Yahweh, is in the midst of you. You will not be afraid of evil any more.

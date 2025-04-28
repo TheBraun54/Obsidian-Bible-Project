@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His glory is great in thy salvation: Honor and majesty dost thou lay upon him.
+His glory is great in your salvation. You lay honor and majesty on him.

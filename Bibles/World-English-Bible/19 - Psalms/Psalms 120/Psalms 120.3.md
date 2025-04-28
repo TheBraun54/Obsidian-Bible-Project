@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What shall be given unto thee, and what shall be done more unto thee, Thou deceitful tongue?
+What will be given to you, and what will be done more to you, you deceitful tongue?

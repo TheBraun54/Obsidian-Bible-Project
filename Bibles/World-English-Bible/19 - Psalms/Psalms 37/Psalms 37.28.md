@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah loveth justice, And forsaketh not his saints; They are preserved for ever: But the seed of the wicked shall be cut off.
+For Yahweh loves justice, and doesn't forsake his saints. They are preserved forever, but the children of the wicked shall be cut off.

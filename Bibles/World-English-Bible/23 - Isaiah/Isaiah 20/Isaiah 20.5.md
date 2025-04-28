@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall be dismayed and confounded, because of Ethiopia their expectation, and of Egypt their glory.
+They will be dismayed and confounded, because of Ethiopia their expectation, and of Egypt their glory.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear, O my son, and receive my sayings; And the years of thy life shall be many.
+Listen, my son, and receive my sayings. The years of your life will be many.

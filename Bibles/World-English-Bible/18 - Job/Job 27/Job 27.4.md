@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely my lips shall not speak unrighteousness, Neither shall my tongue utter deceit.
+surely my lips shall not speak unrighteousness, neither shall my tongue utter deceit.

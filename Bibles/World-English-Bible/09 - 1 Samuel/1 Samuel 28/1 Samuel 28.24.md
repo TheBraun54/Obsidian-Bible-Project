@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the woman had a fatted calf in the house; and she hasted, and killed it; and she took flour, and kneaded it, and did bake unleavened bread thereof:
+The woman had a fattened calf in the house. She hurried and killed it; and she took flour, and kneaded it, and baked unleavened bread of it.

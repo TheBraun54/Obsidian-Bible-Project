@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But in mine adversity they rejoiced, and gathered themselves together: The abjects gathered themselves together against me, and I knew [it] not; They did tear me, and ceased not:
+But in my adversity, they rejoiced, and gathered themselves together. The attackers gathered themselves together against me, and I didn't know it. They tore at me, and didn't cease.

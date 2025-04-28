@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast commanded [us] thy precepts, That we should observe them diligently.
+You have commanded your precepts, that we should fully obey them.

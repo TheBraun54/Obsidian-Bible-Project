@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I said, In the noontide of my days I shall go into the gates of Sheol: I am deprived of the residue of my years.
+I said, "In the middle of my life I go into the gates of Sheol. I am deprived of the residue of my years."

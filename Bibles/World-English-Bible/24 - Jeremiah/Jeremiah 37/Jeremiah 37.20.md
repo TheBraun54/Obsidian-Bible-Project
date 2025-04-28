@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now hear, I pray thee, O my lord the king: let my supplication, I pray thee, be presented before thee, that thou cause me not to return to the house of Jonathan the scribe, lest I die there.
+Now please hear, my lord the king: please let my supplication be presented before you, that you not cause me to return to the house of Jonathan the scribe, lest I die there.

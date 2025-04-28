@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all thy estimations shall be according to the shekel of the sanctuary: twenty gerahs shall be the shekel.
+All your valuations shall be according to the shekel of the sanctuary: twenty gerahs to the shekel.

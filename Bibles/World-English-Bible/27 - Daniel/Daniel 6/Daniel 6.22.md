@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My God hath sent his angel, and hath shut the lions' mouths, and they have not hurt me; forasmuch as before him innocency was found in me; and also before thee, O king, have I done no hurt.
+My God has sent his angel, and has shut the lions' mouths, and they have not hurt me; because as before him innocence was found in me; and also before you, O king, have I done no hurt.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I took my concubine, and cut her in pieces, and sent her throughout all the country of the inheritance of Israel; for they have committed lewdness and folly in Israel.
+I took my concubine, and cut her in pieces, and sent her throughout all the country of the inheritance of Israel; for they have committed lewdness and folly in Israel.

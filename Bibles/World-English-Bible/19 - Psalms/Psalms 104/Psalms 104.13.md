@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He watereth the mountains from his chambers: The earth is filled with the fruit of thy works.
+He waters the mountains from his rooms. The earth is filled with the fruit of your works.

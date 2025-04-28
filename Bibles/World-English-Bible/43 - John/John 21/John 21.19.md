@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now this he spake, signifying by what manner of death he should glorify God. And when he had spoken this, he saith unto him, Follow me.
+Now he said this, signifying by what kind of death he would glorify God. When he had said this, he said to him, "Follow me."

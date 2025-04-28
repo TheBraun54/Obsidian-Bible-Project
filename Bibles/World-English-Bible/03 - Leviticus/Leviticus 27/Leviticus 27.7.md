@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if it be from sixty years old and upward; if it be a male, then thy estimation shall be fifteen shekels, and for the female ten shekels.
+If the person is from sixty years old and upward; if it is a male, then your valuation shall be fifteen shekels, and for a female ten shekels.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore proclaim in the ears of the people, saying, Whosoever is fearful and trembling, let him return and depart from mount Gilead. And there returned of the people twenty and two thousand; and there remained ten thousand.
+Now therefore proclaim in the ears of the people, saying, 'Whoever is fearful and trembling, let him return and depart from Mount Gilead.'" Twenty-two thousand of the people returned, and ten thousand remained.

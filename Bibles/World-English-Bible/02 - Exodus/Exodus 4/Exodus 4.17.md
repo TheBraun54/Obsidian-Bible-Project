@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt take in thy hand this rod, wherewith thou shalt do the signs.
+You shall take this rod in your hand, with which you shall do the signs."

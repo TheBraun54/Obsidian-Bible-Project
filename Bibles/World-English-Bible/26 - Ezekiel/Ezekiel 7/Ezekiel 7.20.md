@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for the beauty of his ornament, he set it in majesty; but they made the images of their abominations [and] their detestable things therein: therefore have I made it unto them as an unclean thing.
+As for the beauty of his ornament, he set it in majesty; but they made the images of their abominations [and] their detestable things therein: therefore have I made it to them as an unclean thing.

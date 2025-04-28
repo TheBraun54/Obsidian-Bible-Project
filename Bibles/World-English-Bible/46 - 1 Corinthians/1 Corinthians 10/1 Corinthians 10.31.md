@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whether therefore ye eat, or drink, or whatsoever ye do, do all to the glory of God.
+Whether therefore you eat, or drink, or whatever you do, do all to the glory of God.

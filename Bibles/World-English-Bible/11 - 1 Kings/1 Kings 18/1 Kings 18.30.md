@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elijah said unto all the people, Come near unto me; and all the people came near unto him. And he repaired the altar of Jehovah that was thrown down.
+Elijah said to all the people, "Come near to me;" and all the people came near to him. He repaired the altar of Yahweh that was thrown down.

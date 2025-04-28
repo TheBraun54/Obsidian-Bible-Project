@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-so that he will not give to any of them of the flesh of his children whom he shall eat, because he hath nothing left him, in the siege and in the distress wherewith thine enemy shall distress thee in all thy gates.
+so that he will not give to any of them of the flesh of his children whom he shall eat, because he has nothing left him, in the siege and in the distress with which your enemy shall distress you in all your gates.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and was there until the death of Herod: that it might be fulfilled which was spoken by the Lord through the prophet, saying, Out of Egypt did I call my son.
+and was there until the death of Herod; that it might be fulfilled which was spoken by the Lord through the prophet, saying, "Out of Egypt I called my son."

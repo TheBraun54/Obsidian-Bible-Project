@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He draweth it forth, and it cometh out of his body; Yea, the glittering point cometh out of his gall: Terrors are upon him.
+He draws it forth, and it comes out of his body. Yes, the glittering point comes out of his liver. Terrors are on him.

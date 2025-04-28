@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wretched man that I am! who shall deliver me out of the body of this death?
+What a wretched man I am! Who will deliver me out of the body of this death?

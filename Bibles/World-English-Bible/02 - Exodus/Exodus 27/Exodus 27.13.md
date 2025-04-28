@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the breadth of the court on the east side eastward shall be fifty cubits.
+The breadth of the court on the east side eastward shall be fifty cubits.

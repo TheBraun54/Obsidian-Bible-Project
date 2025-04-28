@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for if God spared not the natural branches, neither will he spare thee.
+for if God didn't spare the natural branches, neither will he spare you.

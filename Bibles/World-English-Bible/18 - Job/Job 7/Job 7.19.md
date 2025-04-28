@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How long wilt thou not look away from me, Nor let me alone till I swallow down my spittle?
+How long will you not look away from me, nor leave me alone until I swallow down my spittle?

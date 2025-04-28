@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore thus saith Jehovah, the God of Israel, Behold, I bring such evil upon Jerusalem and Judah, that whosoever heareth of it, both his ears shall tingle.
+therefore thus says Yahweh, the God of Israel, 'Behold, I bring such evil on Jerusalem and Judah, that whoever hears of it, both his ears shall tingle.

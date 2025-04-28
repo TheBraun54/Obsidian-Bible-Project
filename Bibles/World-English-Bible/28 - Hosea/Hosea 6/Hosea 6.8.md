@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Gilead is a city of them that work iniquity; it is stained with blood.
+Gilead is a city of those who work iniquity; it is stained with blood.

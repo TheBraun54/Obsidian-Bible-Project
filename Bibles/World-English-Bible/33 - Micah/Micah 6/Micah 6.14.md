@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt eat, but not be satisfied; and thy humiliation shall be in the midst of thee: and thou shalt put away, but shalt not save; and that which thou savest will I give up to the sword.
+You shall eat, but not be satisfied. Your humiliation will be in your midst. You will store up, but not save; and that which you save I will give up to the sword.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And over the host of the tribe of the children of Simeon was Shelumiel the son of Zurishaddai.
+Shelumiel the son of Zurishaddai was over the army of the tribe of the children of Simeon.

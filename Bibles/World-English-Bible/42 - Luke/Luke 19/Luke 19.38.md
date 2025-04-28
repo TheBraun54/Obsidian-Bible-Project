@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, Blessed [is] the King that cometh in the name of the Lord: peace in heaven, and glory in the highest.
+saying, "Blessed is the King who comes in the name of the Lord! Peace in heaven, and glory in the highest!"

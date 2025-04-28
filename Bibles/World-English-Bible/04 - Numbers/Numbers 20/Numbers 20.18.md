@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Edom said unto him, Thou shalt not pass through me, lest I come out with the sword against thee.
+Edom said to him, "You shall not pass through me, lest I come out with the sword against you."

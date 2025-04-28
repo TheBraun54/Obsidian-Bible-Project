@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When they were at the great stone which is in Gibeon, Amasa came to meet them. And Joab was girded with his apparel of war that he had put on, and thereon was a girdle with a sword fastened upon his loins in the sheath thereof; and as he went forth it fell out.
+When they were at the great stone which is in Gibeon, Amasa came to meet them. Joab was clothed in his apparel of war that he had put on, and on it was a sash with a sword fastened on his waist in its sheath; and as he went forth it fell out.

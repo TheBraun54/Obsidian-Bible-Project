@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and having been made perfect, he became unto all them that obey him the author of eternal salvation;
+Having been made perfect, he became to all of those who obey him the author of eternal salvation,

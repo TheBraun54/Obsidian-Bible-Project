@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Psalm of David, to bring to remembrance]. O Jehovah, rebuke me not in thy wrath; Neither chasten me in thy hot displeasure.
+Yahweh, don't rebuke me in your wrath, neither chasten me in your hot displeasure.

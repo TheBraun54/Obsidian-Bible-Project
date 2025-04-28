@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wrath is not in me: would that the briers and thorns were against me in battle! I would march upon them, I would burn them together.
+Wrath is not in me, but if I should find briers and thorns, I would do battle! I would march on them and I would burn them together.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet I have set my king Upon my holy hill of Zion.
+"Yet I have set my King on my holy hill of Zion."

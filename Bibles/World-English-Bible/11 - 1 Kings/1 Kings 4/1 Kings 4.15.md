@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ahimaaz, in Naphtali (he also took Basemath the daughter of Solomon to wife);
+Ahimaaz, in Naphtali (he also took Basemath the daughter of Solomon as wife);

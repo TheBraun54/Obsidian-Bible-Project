@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-look ye out the best and meetest of your master's sons, and set him on his father's throne, and fight for your master's house.
+Select the best and fittest of your master's sons, set him on his father's throne, and fight for your master's house."

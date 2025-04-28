@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he increased his people greatly, And made them stronger than their adversaries.
+He increased his people greatly, and made them stronger than their adversaries.

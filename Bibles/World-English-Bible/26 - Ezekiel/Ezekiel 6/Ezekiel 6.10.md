@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall know that I am Jehovah: I have not said in vain that I would do this evil unto them.
+They shall know that I am Yahweh: I have not said in vain that I would do this evil to them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will make the land a desolation and an astonishment; and the pride of her power shall cease; and the mountains of Israel shall be desolate, so that none shall pass through.
+I will make the land a desolation and an astonishment; and the pride of her power shall cease; and the mountains of Israel shall be desolate, so that none shall pass through.

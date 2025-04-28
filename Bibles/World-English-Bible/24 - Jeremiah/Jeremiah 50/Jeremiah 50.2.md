@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Declare ye among the nations and publish, and set up a standard; publish, and conceal not: say, Babylon is taken, Bel is put to shame, Merodach is dismayed; her images are put to shame, her idols are dismayed.
+Declare among the nations and publish, and set up a standard; publish, and don't conceal: say, Babylon is taken, Bel is disappointed, Merodach is dismayed; her images are disappointed, her idols are dismayed.

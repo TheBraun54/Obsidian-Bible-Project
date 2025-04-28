@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came to the other side of the sea, into the country of the Gerasenes.
+They came to the other side of the sea, into the country of the Gadarenes.

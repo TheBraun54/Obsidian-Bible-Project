@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whosoever toucheth a dead person, the body of a man that hath died, and purifieth not himself, defileth the tabernacle of Jehovah; and that soul shall be cut off from Israel: because the water for impurity was not sprinkled upon him, he shall be unclean; his uncleanness is yet upon him.
+Whoever touches a dead person, the body of a man who has died, and doesn't purify himself, defiles the tabernacle of Yahweh; and that soul shall be cut off from Israel: because the water for impurity was not sprinkled on him, he shall be unclean; his uncleanness is yet on him.

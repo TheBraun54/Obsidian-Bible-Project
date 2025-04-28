@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Let him be; let no man move his bones. So they let his bones alone, with the bones of the prophet that came out of Samaria.
+He said, "Let him be! Let no man move his bones." So they let his bones alone, with the bones of the prophet who came out of Samaria.

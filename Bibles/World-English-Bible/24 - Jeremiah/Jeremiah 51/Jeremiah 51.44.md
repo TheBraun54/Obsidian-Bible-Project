@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will execute judgment upon Bel in Babylon, and I will bring forth out of his mouth that which he hath swallowed up; and the nations shall not flow any more unto him: yea, the wall of Babylon shall fall.
+I will execute judgment on Bel in Babylon, and I will bring forth out of his mouth that which he has swallowed up; and the nations shall not flow any more to him: yes, the wall of Babylon shall fall.

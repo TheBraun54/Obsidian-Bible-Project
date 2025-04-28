@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salute Prisca and Aquila my fellow-workers in Christ Jesus,
+Greet Prisca and Aquila, my fellow workers in Christ Jesus,

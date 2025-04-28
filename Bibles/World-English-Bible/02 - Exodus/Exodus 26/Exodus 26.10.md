@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make fifty loops on the edge of the one curtain that is outmost in the coupling, and fifty loops upon the edge of the curtain which is [outmost in] the second coupling.
+You shall make fifty loops on the edge of the one curtain that is outmost in the coupling, and fifty loops on the edge of the curtain which is outmost in the second coupling.

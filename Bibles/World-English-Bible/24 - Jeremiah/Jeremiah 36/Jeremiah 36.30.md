@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith Jehovah concerning Jehoiakim king of Judah: He shall have none to sit upon the throne of David; and his dead body shall be cast out in the day to the heat, and in the night to the frost.
+Therefore thus says Yahweh concerning Jehoiakim king of Judah: He shall have none to sit on the throne of David; and his dead body shall be cast out in the day to the heat, and in the night to the frost.

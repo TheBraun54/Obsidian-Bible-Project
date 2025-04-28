@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This dream I, king Nebuchadnezzar, have seen; and thou, O Belteshazzar, declare the interpretation, forasmuch as all the wise men of my kingdom are not able to make known unto me the interpretation; but thou art able; for the spirit of the holy gods is in thee.
+This dream I, king Nebuchadnezzar, have seen; and you, Belteshazzar, declare the interpretation, because all the wise men of my kingdom are not able to make known to me the interpretation; but you are able; for the spirit of the holy gods is in you.

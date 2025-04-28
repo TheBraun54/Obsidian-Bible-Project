@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have dealt corruptly with him, [they are] not his children, [it is] their blemish; [They are] a perverse and crooked generation.
+They have dealt corruptly with him, [they are] not his children, [it is] their blemish. [They are] a perverse and crooked generation.

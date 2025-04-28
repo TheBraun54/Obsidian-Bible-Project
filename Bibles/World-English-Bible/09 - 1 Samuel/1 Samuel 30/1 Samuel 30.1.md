@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when David and his men were come to Ziklag on the third day, that the Amalekites had made a raid upon the South, and upon Ziklag, and had smitten Ziklag, and burned it with fire,
+It happened, when David and his men were come to Ziklag on the third day, that the Amalekites had made a raid on the South, and on Ziklag, and had struck Ziklag, and burned it with fire,

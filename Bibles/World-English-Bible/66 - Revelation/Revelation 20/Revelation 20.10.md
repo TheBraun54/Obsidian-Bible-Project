@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the devil that deceived them was cast into the lake of fire and brimstone, where are also the beast and the false prophet; and they shall be tormented day and night for ever and ever.
+The devil who deceived them was thrown into the lake of fire and sulfur, where the beast and the false prophet are also. They will be tormented day and night forever and ever.

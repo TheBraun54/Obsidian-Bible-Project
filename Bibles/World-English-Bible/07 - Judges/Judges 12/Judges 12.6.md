@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then said they unto him, Say now Shibboleth; and he said Sibboleth; for he could not frame to pronounce it right: then they laid hold on him, and slew him at the fords of the Jordan. And there fell at that time of Ephraim forty and two thousand.
+then they said to him, "Now say 'Shibboleth;'" and he said "Sibboleth;" for he couldn't manage to pronounce it right: then they laid hold of him, and killed him at the fords of the Jordan. At that time, forty-two thousand of Ephraim fell.

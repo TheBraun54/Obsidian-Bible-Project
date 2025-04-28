@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But God will redeem my soul from the power of Sheol; For he will receive me. {{Selah
+But God will redeem my soul from the power of Sheol, for he will receive me. Selah.

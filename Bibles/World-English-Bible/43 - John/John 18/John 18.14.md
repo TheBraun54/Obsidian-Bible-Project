@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Caiaphas was he that gave counsel to the Jews, that it was expedient that one man should die for the people.
+Now it was Caiaphas who advised the Jews that it was expedient that one man should perish for the people.

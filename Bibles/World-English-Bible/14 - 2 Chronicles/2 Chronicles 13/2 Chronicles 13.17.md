@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abijah and his people slew them with a great slaughter: so there fell down slain of Israel five hundred thousand chosen men.
+Abijah and his people killed them with a great slaughter: so there fell down slain of Israel five hundred thousand chosen men.

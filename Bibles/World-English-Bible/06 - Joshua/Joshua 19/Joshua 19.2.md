@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they had for their inheritance Beer-sheba, or Sheba, and Moladah,
+They had for their inheritance Beersheba (or Sheba), Moladah,

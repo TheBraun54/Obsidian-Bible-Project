@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For though I am absent in the flesh, yet am I with you in the spirit, joying and beholding your order, and the stedfastness of your faith in Christ.
+For though I am absent in the flesh, yet am I with you in the spirit, rejoicing and seeing your order, and the steadfastness of your faith in Christ.

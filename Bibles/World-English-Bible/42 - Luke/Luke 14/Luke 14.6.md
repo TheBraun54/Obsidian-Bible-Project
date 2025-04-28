@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they could not answer again unto these things.
+They couldn't answer him regarding these things.

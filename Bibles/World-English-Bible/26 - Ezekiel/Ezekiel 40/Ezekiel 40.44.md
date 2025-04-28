@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And without the inner gate were chambers for the singers in the inner court, which was at the side of the north gate; and their prospect was toward the south; one at the side of the east gate having the prospect toward the north.
+Outside of the inner gate were rooms for the singers in the inner court, which was at the side of the north gate; and their prospect was toward the south; one at the side of the east gate having the prospect toward the north.

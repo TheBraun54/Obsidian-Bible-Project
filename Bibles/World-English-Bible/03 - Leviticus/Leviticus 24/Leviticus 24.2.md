@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Command the children of Israel, that they bring unto thee pure olive oil beaten for the light, to cause a lamp to burn continually.
+"Command the children of Israel, that they bring to you pure olive oil beaten for the light, to cause a lamp to burn continually.

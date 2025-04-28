@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In those days saw I in Judah some men treading wine-presses on the sabbath, and bringing in sheaves, and lading asses [therewith] ; as also wine, grapes, and figs, and all manner of burdens, which they brought into Jerusalem on the sabbath day: and I testified [against them] in the day wherein they sold victuals.
+In those days saw I in Judah some men treading winepresses on the Sabbath, and bringing in sheaves, and loading donkeys [therewith]; as also wine, grapes, and figs, and all kinds of burdens, which they brought into Jerusalem on the Sabbath day: and I testified [against them] in the day in which they sold food.

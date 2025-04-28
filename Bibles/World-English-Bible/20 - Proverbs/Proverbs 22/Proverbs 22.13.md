@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sluggard saith, There is a lion without: I shall be slain in the streets.
+The sluggard says, "There is a lion outside! I will be killed in the streets!"

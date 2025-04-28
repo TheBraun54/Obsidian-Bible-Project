@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they smote of the Philistines that day from Michmash to Aijalon. And the people were very faint;
+They struck of the Philistines that day from Michmash to Aijalon. The people were very faint;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I Jesus have sent mine angel to testify unto you these things for the churches. I am the root and the offspring of David, the bright, the morning star.
+I, Jesus, have sent my angel to testify these things to you for the assemblies. I am the root and the offspring of David; the Bright and Morning Star."

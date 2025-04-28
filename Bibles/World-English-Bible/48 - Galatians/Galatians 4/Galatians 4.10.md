@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye observe days, and months, and seasons, and years.
+You observe days, months, seasons, and years.

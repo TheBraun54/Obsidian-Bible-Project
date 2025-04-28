@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There shall no mischief happen to the righteous; But the wicked shall be filled with evil.
+No mischief shall happen to the righteous, but the wicked shall be filled with evil.

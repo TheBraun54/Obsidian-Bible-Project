@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the woman said, Let thy handmaid, I pray thee, speak a word unto my lord the king. And he said, Say on.
+Then the woman said, "Please let your handmaid speak a word to my lord the king." He said, "Say on."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the border turned about it on the north to Hannathon; and the goings out thereof were at the valley of Iphtah-el;
+The border turned around it on the north to Hannathon; and it ended at the valley of Iphtah El;

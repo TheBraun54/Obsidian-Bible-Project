@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How shall I curse, whom God hath not cursed? And how shall I defy, whom Jehovah hath not defied?
+How shall I curse whom God has not cursed? How shall I defy whom Yahweh has not defied?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye became imitators of us, and of the Lord, having received the word in much affliction, with joy of the Holy Spirit;
+You became imitators of us, and of the Lord, having received the word in much affliction, with joy of the Holy Spirit,

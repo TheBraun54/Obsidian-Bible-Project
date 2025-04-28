@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They lie all night naked without clothing, And have no covering in the cold.
+They lie all night naked without clothing, and have no covering in the cold.

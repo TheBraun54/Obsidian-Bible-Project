@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath purposed to destroy the wall of the daughter of Zion; He hath stretched out the line, he hath not withdrawn his hand from destroying; And he hath made the rampart and wall to lament; they languish together.
+Yahweh has purposed to destroy the wall of the daughter of Zion; He has stretched out the line, he has not withdrawn his hand from destroying; He has made the rampart and wall to lament; they languish together.

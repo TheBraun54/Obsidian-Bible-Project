@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all that dwell on the earth shall worship him, [every one] whose name hath not been written from the foundation of the world in the book of life of the Lamb that hath been slain.
+All who dwell on the earth will worship him, everyone whose name has not been written from the foundation of the world in the book of life of the Lamb who has been killed.

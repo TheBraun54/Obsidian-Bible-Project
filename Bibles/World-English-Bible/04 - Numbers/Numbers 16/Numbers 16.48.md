@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he stood between the dead and the living; and the plague was stayed.
+He stood between the dead and the living; and the plague was stayed.

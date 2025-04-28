@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For hereunto were ye called: because Christ also suffered for you, leaving you an example, that ye should follow his steps:
+For to this you were called, because Christ also suffered for us, leaving you an example, that you should follow his steps,

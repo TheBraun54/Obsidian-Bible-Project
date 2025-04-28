@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-QOPH. I have called with my whole heart; Answer me, O Jehovah: I will keep thy statutes.
+I have called with my whole heart. Answer me, Yahweh! I will keep your statutes.

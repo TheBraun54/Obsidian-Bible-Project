@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he charged them, and commanded [them] to tell this to no man;
+But he warned them, and commanded them to tell this to no one,

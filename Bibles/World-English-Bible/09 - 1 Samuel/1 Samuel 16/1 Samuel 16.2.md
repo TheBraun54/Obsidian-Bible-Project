@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samuel said, How can I go? if Saul hear it, he will kill me. And Jehovah said, Take a heifer with thee, and say, I am come to sacrifice to Jehovah.
+Samuel said, "How can I go? If Saul hears it, he will kill me." Yahweh said, "Take a heifer with you, and say, I have come to sacrifice to Yahweh.

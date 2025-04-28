@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My heart throbbeth, my strength faileth me: As for the light of mine eyes, it also is gone from me.
+My heart throbs. My strength fails me. As for the light of my eyes, it has also left me.

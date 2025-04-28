@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Make level the path of thy feet, And let all thy ways be established.
+Make the path of your feet level. Let all of your ways be established.

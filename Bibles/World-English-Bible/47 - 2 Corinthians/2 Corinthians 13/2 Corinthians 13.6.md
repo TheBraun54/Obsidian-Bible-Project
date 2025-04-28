@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I hope that ye shall know that we are not reprobate.
+But I hope that you will know that we aren't disqualified.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he said unto them, Thus it is written, that the Christ should suffer, and rise again from the dead the third day;
+He said to them, "Thus it is written, and thus it was necessary for the Christ to suffer and to rise from the dead the third day,

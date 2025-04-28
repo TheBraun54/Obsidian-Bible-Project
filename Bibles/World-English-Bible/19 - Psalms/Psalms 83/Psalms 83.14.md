@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As the fire that burneth the forest, And as the flame that setteth the mountains on fire,
+As the fire that burns the forest, as the flame that sets the mountains on fire,

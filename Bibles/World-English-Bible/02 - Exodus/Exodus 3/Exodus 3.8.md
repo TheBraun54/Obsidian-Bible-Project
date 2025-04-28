@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I am come down to deliver them out of the hand of the Egyptians, and to bring them up out of that land unto a good land and a large, unto a land flowing with milk and honey; unto the place of the Canaanite, and the Hittite, and the Amorite, and the Perizzite, and the Hivite, and the Jebusite.
+I have come down to deliver them out of the hand of the Egyptians, and to bring them up out of that land to a good and large land, to a land flowing with milk and honey; to the place of the Canaanite, the Hittite, the Amorite, the Perizzite, the Hivite, and the Jebusite.

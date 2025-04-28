@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Tamar his daughter-in-law bare him Perez and Zerah. All the sons of Judah were five.
+Tamar his daughter-in-law bore him Perez and Zerah. All the sons of Judah were five.

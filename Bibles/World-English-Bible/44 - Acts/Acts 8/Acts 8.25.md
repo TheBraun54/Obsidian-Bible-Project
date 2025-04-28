@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They therefore, when they had testified and spoken the word of the Lord, returned to Jerusalem, and preached the gospel to many villages of the Samaritans.
+They therefore, when they had testified and spoken the word of the Lord, returned to Jerusalem, and preached the Good News to many villages of the Samaritans.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus Jehovah saved Israel that day out of the hand of the Egyptians; and Israel saw the Egyptians dead upon the sea-shore.
+Thus Yahweh saved Israel that day out of the hand of the Egyptians; and Israel saw the Egyptians dead on the seashore.

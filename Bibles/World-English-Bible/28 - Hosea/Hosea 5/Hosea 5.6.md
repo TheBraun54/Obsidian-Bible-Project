@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall go with their flocks and with their herds to seek Jehovah; but they shall not find him: he hath withdrawn himself from them.
+They will go with their flocks and with their herds to seek Yahweh; but they won't find him. He has withdrawn himself from them.

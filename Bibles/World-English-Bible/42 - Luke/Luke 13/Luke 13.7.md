@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto the vinedresser, Behold, these three years I come seeking fruit on this fig tree, and find none: cut it down; why doth it also cumber the ground?
+He said to the vine dresser, 'Behold, these three years I have come looking for fruit on this fig tree, and found none. Cut it down. Why does it waste the soil?'

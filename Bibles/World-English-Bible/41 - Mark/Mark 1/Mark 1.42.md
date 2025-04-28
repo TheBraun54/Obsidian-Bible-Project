@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And straightway the leprosy departed from him, and he was made clean.
+When he had said this, immediately the leprosy departed from him, and he was made clean.

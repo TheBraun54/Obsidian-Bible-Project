@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not therefore like unto them: for your Father knoweth what things ye have need of, before ye ask him.
+Therefore don't be like them, for your Father knows what things you need, before you ask him.

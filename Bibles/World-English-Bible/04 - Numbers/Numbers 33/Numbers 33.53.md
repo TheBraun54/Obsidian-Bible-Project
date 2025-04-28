@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ye shall take possession of the land, and dwell therein; for unto you have I given the land to possess it.
+and you shall take possession of the land, and dwell therein; for I have given given the land to you to possess it.

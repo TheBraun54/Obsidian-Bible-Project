@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They are not in trouble as [other] men; Neither are they plagued like [other] men.
+They are free from burdens of men, neither are they plagued like other men.

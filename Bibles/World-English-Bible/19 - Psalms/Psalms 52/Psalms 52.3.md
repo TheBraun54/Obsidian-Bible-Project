@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou lovest evil more than good, And lying rather than to speak righteousness. {{Selah
+You love evil more than good, lying rather than speaking the truth. Selah.

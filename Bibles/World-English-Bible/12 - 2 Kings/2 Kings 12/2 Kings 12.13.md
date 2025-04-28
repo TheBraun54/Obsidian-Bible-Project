@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But there were not made for the house of Jehovah cups of silver, snuffers, basins, trumpets, any vessels of gold, or vessels of silver, of the money that was brought into the house of Jehovah;
+But there were not made for the house of Yahweh cups of silver, snuffers, basins, trumpets, any vessels of gold, or vessels of silver, of the money that was brought into the house of Yahweh;

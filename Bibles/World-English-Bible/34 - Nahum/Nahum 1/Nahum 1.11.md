@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is one gone forth out of thee, that deviseth evil against Jehovah, that counselleth wickedness.
+There is one gone forth out of you, who devises evil against Yahweh, who counsels wickedness.

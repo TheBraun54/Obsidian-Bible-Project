@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the twenty and sixth year of Asa king of Judah began Elah the son of Baasha to reign over Israel in Tirzah, [and reigned] two years.
+In the twenty-sixth year of Asa king of Judah began Elah the son of Baasha to reign over Israel in Tirzah, [and reigned] two years.

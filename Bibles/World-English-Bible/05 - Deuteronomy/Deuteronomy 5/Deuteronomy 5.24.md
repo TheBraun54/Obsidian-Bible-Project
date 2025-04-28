@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ye said, Behold, Jehovah our God hath showed us his glory and his greatness, and we have heard his voice out of the midst of the fire: we have seen this day that God doth speak with man, and he liveth.
+and you said, "Behold, Yahweh our God has shown us his glory and his greatness, and we have heard his voice out of the midst of the fire: we have seen this day that God does speak with man, and he lives.

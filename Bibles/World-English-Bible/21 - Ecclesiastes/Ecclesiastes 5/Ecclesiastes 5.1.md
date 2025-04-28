@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Keep thy foot when thou goest to the house of God; for to draw nigh to hear is better than to give the sacrifice of fools: for they know not that they do evil.
+Guard your steps when you go to God's house; for to draw near to listen is better than to give the sacrifice of fools, for they don't know that they do evil.

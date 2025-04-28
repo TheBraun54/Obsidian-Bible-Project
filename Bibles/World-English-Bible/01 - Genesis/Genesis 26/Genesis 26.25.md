@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he builded an altar there, and called upon the name of Jehovah, and pitched his tent there: and there Isaac's servants digged a well.
+He built an altar there, and called on the name of Yahweh, and pitched his tent there. There Isaac's servants dug a well.

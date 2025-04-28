@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they will tell it to the inhabitants of this land. They have heard that thou Jehovah art in the midst of this people; for thou Jehovah art seen face to face, and thy cloud standeth over them, and thou goest before them, in a pillar of cloud by day, and in a pillar of fire by night.
+and they will tell it to the inhabitants of this land. They have heard that you Yahweh are in the midst of this people; for you Yahweh are seen face to face, and your cloud stands over them, and you go before them, in a pillar of cloud by day, and in a pillar of fire by night.

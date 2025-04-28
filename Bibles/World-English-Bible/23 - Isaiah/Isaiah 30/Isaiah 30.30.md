@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah will cause his glorious voice to be heard, and will show the lighting down of his arm, with the indignation of [his] anger, and the flame of a devouring fire, with a blast, and tempest, and hailstones.
+Yahweh will cause his glorious voice to be heard, and will show the descent of his arm, with the indignation of his anger, and the flame of a devouring fire, with a blast, storm, and hailstones.

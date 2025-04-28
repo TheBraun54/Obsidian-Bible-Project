@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast abhorred the covenant of thy servant: Thou hast profaned his crown [by casting it] to the ground.
+You have renounced the covenant of your servant. You have defiled his crown in the dust.

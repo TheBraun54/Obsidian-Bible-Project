@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will bring you forth out of the midst thereof, and deliver you into the hands of strangers, and will execute judgments among you.
+I will bring you forth out of its midst, and deliver you into the hands of strangers, and will execute judgments among you.

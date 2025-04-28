@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The mountains skipped like rams, The little hills like lambs.
+The mountains skipped like rams, the little hills like lambs.

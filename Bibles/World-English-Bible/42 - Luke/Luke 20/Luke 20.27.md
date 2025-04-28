@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came to him certain of the Sadducees, they that say that there is no resurrection;
+Some of the Sadducees came to him, those who deny that there is a resurrection.

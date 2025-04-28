@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise, O Jehovah, into thy resting-place; Thou, and the ark of thy strength.
+Arise, Yahweh, into your resting place; you, and the ark of your strength.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak unto Aaron and to his sons, that they separate themselves from the holy things of the children of Israel, which they hallow unto me, and that they profane not my holy name: I am Jehovah.
+"Tell Aaron and his sons to separate themselves from the holy things of the children of Israel, which they make holy to me, and that they not profane my holy name. I am Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, behold, Jehovah cometh forth out of his place to punish the inhabitants of the earth for their iniquity: the earth also shall disclose her blood, and shall no more cover her slain.
+For, behold, Yahweh comes forth out of his place to punish the inhabitants of the earth for their iniquity. The earth also will disclose her blood, and will no longer cover her slain.

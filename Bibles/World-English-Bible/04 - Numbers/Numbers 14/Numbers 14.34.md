@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After the number of the days in which ye spied out the land, even forty days, for every day a year, shall ye bear your iniquities, even forty years, and ye shall know my alienation.
+After the number of the days in which you spied out the land, even forty days, for every day a year, you will bear your iniquities, even forty years, and you will know my alienation.'

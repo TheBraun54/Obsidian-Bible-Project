@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath put down princes from [their] thrones, And hath exalted them of low degree.
+He has put down princes from their thrones. And has exalted the lowly.

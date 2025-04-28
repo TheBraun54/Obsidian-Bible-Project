@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in the name of our Lord Jesus, ye being gathered together, and my spirit, with the power of our Lord Jesus,
+In the name of our Lord Jesus Christ, you being gathered together, and my spirit, with the power of our Lord Jesus Christ,

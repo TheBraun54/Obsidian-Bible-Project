@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus answered and said unto him, It is written, Thou shalt worship the Lord thy God, and him only shalt thou serve.
+Jesus answered him, "Get behind me Satan! For it is written, 'You shall worship the Lord your God, and you shall serve him only.'"

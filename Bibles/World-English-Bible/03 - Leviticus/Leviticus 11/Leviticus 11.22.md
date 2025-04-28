@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even these of them ye may eat: the locust after its kind, and the bald locust after its kind, and the cricket after its kind, and the grasshopper after its kind.
+Even of these you may eat: any kind of locust, any kind of katydid, any kind of cricket, and any kind of grasshopper.

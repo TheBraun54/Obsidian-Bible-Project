@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall prepare a meal-offering, an ephah for a bullock, and an ephah for a ram, and a hin of oil to an ephah.
+He shall prepare a meal offering, an ephah for a bull, and an ephah for a ram, and a hin of oil to an ephah.

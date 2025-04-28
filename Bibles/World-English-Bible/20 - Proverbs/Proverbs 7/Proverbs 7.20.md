@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath taken a bag of money with him; He will come home at the full moon.
+He has taken a bag of money with him. He will come home at the full moon."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-yet because this widow troubleth me, I will avenge her, lest she wear me out by her continual coming.
+yet because this widow bothers me, I will defend her, or else she will wear me out by her continual coming.'"

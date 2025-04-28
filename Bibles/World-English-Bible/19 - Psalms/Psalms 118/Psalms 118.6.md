@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is on my side; I will not fear: What can man do unto me?
+Yahweh is on my side. I will not be afraid. What can man do to me?

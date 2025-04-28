@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, thou desirest truth in the inward parts; And in the hidden part thou wilt make me to know wisdom.
+Behold, you desire truth in the inward parts. You teach me wisdom in the inmost place.

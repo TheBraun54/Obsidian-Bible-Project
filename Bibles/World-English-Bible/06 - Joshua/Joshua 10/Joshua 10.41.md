@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua smote them from Kadesh-barnea even unto Gaza, and all the country of Goshen, even unto Gibeon.
+Joshua struck them from Kadesh Barnea even to Gaza, and all the country of Goshen, even to Gibeon.

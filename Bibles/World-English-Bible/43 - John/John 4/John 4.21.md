@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus saith unto her, Woman, believe me, the hour cometh, when neither in this mountain, nor in Jerusalem, shall ye worship the Father.
+Jesus said to her, "Woman, believe me, the hour comes, when neither in this mountain, nor in Jerusalem, will you worship the Father.

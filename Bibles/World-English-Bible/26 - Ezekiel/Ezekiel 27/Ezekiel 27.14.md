@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They of the house of Togarmah traded for thy wares with horses and war-horses and mules.
+They of the house of Togarmah traded for your wares with horses and war horses and mules.

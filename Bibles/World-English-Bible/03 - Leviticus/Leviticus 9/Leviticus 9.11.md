@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the flesh and the skin he burnt with fire without the camp.
+The flesh and the skin he burned with fire outside the camp.

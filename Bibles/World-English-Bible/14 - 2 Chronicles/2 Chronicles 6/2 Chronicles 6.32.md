@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover concerning the foreigner, that is not of thy people Israel, when he shall come from a far country for thy great name's sake, and thy mighty hand, and thine outstretched arm; when they shall come and pray toward this house:
+"Moreover concerning the foreigner, who is not of your people Israel, when he shall come from a far country for your great name's sake, and your mighty hand, and your outstretched arm; when they shall come and pray toward this house:

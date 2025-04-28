@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the ransomed of Jehovah shall return, and come with singing unto Zion; and everlasting joy shall be upon their heads: they shall obtain gladness and joy, and sorrow and sighing shall flee away.
+The Yahweh's ransomed ones will return, and come with singing to Zion; and everlasting joy will be on their heads. They will obtain gladness and joy, and sorrow and sighing will flee away."

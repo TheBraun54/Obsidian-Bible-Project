@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had left speaking, he said unto Simon, Put out into the deep, and let down your nets for a draught.
+When he had finished speaking, he said to Simon, "Put out into the deep, and let down your nets for a catch."

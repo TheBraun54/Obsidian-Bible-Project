@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I have seen folly in the prophets of Samaria; they prophesied by Baal, and caused my people Israel to err.
+I have seen folly in the prophets of Samaria; they prophesied by Baal, and caused my people Israel to err.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-get you out of the way, turn aside out of the path, cause the Holy One of Israel to cease from before us.
+Get out of the way. Turn aside from the path. Cause the Holy One of Israel to cease from before us."

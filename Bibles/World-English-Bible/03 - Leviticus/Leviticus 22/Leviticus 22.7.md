@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the sun is down, he shall be clean; and afterward he shall eat of the holy things, because it is his bread.
+When the sun is down, he shall be clean; and afterward he shall eat of the holy things, because it is his bread.

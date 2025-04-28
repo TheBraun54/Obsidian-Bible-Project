@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the vessels of the house of God, great and small, and the treasures of the house of Jehovah, and the treasures of the king, and of his princes, all these he brought to Babylon.
+All the vessels of the house of God, great and small, and the treasures of the house of Yahweh, and the treasures of the king, and of his princes, all these he brought to Babylon.

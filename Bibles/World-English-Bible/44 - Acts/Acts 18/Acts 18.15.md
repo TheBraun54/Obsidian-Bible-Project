@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but if they are questions about words and names and your own law, look to it yourselves; I am not minded to be a judge of these matters.
+but if they are questions about words and names and your own law, look to it yourselves. For I don't want to be a judge of these matters."

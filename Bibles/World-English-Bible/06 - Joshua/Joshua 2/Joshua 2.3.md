@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Jericho sent unto Rahab, saying, Bring forth the men that are come to thee, that are entered into thy house; for they are come to search out all the land.
+The king of Jericho sent to Rahab, saying, "Bring out the men who have come to you, who have entered into your house; for they have come to spy out all the land."

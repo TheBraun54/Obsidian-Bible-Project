@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy bars shall be iron and brass; And as thy days, so shall thy strength be.
+Your bars shall be iron and brass. As your days, so your strength will be.

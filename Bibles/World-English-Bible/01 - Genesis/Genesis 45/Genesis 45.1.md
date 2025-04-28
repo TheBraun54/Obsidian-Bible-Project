@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Joseph could not refrain himself before all them that stood by him; and he cried, Cause every man to go out from me. And there stood no man with him, while Joseph made himself known unto his brethren.
+Then Joseph couldn't control himself before all those who stood before him, and he cried, "Cause everyone to go out from me!" No one else stood with him, while Joseph made himself known to his brothers.

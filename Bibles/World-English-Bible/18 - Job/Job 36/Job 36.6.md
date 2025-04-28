@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He preserveth not the life of the wicked, But giveth to the afflicted [their] right.
+He doesn't preserve the life of the wicked, but gives to the afflicted their right.

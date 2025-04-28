@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It was foursquare; they made the breastplate double: a span was the length thereof, and a span the breadth thereof, being double.
+It was square. They made the breastplate double. Its length was a span, and its breadth a span, being double.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the devil taketh him into the holy city; and he set him on the pinnacle of the temple,
+Then the devil took him into the holy city. He set him on the pinnacle of the temple,

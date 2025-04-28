@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and before the throne, as it were a sea of glass like a crystal; and in the midst of the throne, and round about the throne, four living creatures full of eyes before and behind.
+Before the throne was something like a sea of glass, similar to crystal. In the midst of the throne, and around the throne were four living creatures full of eyes before and behind.

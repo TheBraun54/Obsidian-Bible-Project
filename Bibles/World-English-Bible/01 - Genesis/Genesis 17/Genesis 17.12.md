@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that is eight days old shall be circumcised among you, every male throughout your generations, he that is born in the house, or bought with money of any foreigner that is not of thy seed.
+He who is eight days old will be circumcised among you, every male throughout your generations, he who is born in the house, or bought with money from any foreigner who is not of your seed.

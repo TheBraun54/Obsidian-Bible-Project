@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I was at ease, and he brake me asunder; Yea, he hath taken me by the neck, and dashed me to pieces: He hath also set me up for his mark.
+I was at ease, and he broke me apart. Yes, he has taken me by the neck, and dashed me to pieces. He has also set me up for his target.

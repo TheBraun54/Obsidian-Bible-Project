@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cursed be he that wresteth the justice [due] to the sojourner, fatherless, and widow. And all the people shall say, Amen.
+'Cursed is he who wrests the justice [due] to the foreigner, fatherless, and widow.' All the people shall say, 'Amen.'

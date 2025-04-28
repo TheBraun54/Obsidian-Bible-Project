@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ahithophel said unto Absalom, Go in unto thy father's concubines, that he hath left to keep the house; and all Israel will hear that thou art abhorred of thy father: then will the hands of all that are with thee be strong.
+Ahithophel said to Absalom, "Go in to your father's concubines, that he has left to keep the house. Then all Israel will hear that you are abhorred by your father. Then the hands of all who are with you will be strong."

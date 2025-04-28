@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Luke, the beloved physician, and Demas salute you.
+Luke, the beloved physician, and Demas greet you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them be before Jehovah continually, That he may cut off the memory of them from the earth;
+Let them be before Yahweh continually, that he may cut off the memory of them from the earth;

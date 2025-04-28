@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And punishing them oftentimes in all the synagogues, I strove to make them blaspheme; and being exceedingly mad against them, I persecuted them even unto foreign cities.
+Punishing them often in all the synagogues, I tried to make them blaspheme. Being exceedingly enraged against them, I persecuted them even to foreign cities.

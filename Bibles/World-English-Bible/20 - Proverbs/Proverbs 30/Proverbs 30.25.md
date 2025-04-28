@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The ants are a people not strong, Yet they provide their food in the summer;
+the ants are not a strong people, yet they provide their food in the summer.

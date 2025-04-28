@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast rebuked the nations, thou hast destroyed the wicked; Thou hast blotted out their name for ever and ever.
+You have rebuked the nations. You have destroyed the wicked. You have blotted out their name forever and ever.

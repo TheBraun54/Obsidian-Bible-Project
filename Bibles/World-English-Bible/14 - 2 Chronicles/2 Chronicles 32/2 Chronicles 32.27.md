@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hezekiah had exceeding much riches and honor: and he provided him treasuries for silver, and for gold, and for precious stones, and for spices, and for shields, and for all manner of goodly vessels;
+Hezekiah had exceeding much riches and honor: and he provided him treasuries for silver, and for gold, and for precious stones, and for spices, and for shields, and for all kinds of goodly vessels;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Baalah, and Iim, and Ezem,
+Baalah, Iim, Ezem,

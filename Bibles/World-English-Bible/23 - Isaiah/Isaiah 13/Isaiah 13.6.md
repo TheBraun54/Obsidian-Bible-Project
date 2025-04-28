@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wail ye; for the day of Jehovah is at hand; as destruction from the Almighty shall it come.
+Wail; for the day of Yahweh is at hand! It will come as destruction from the Almighty.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when his disciples James and John saw [this], they said, Lord, wilt thou that we bid fire to come down from heaven, and consume them ?
+When his disciples, James and John, saw this, they said, "Lord, do you want us to command fire to come down from the sky, and destroy them, just as Elijah did?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Saul drew near to Samuel in the gate, and said, Tell me, I pray thee, where the seer's house is.
+Then Saul drew near to Samuel in the gate, and said, "Please tell me where the seer's house is."

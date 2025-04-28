@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Concerning this thing I besought the Lord thrice, that it might depart from me.
+Concerning this thing, I begged the Lord three times that it might depart from me.

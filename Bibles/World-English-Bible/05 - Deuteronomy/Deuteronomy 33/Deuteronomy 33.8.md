@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of Levi he said, Thy Thummim and thy Urim are with thy godly one, Whom thou didst prove at Massah, With whom thou didst strive at the waters of Meribah;
+Of Levi he said, "Your Thummim and your Urim are with your godly one, whom you proved at Massah, with whom you strove at the waters of Meribah;

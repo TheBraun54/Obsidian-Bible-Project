@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath put forth his hands against such as were at peace with him: He hath profaned his covenant.
+He raises his hands against his friends. He has violated his covenant.

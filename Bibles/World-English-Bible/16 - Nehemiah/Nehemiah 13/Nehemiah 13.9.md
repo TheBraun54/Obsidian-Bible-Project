@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then I commanded, and they cleansed the chambers: and thither brought I again the vessels of the house of God, with the meal-offerings and the frankincense.
+Then I commanded, and they cleansed the rooms: and there brought I again the vessels of the house of God, with the meal offerings and the frankincense.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The seeds rot under their clods; the garners are laid desolate, the barns are broken down; for the grain is withered.
+The seeds rot under their clods. The granaries are laid desolate. The barns are broken down, for the grain has withered.

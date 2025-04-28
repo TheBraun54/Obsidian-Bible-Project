@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Esther's maidens and her chamberlains came and told it her; and the queen was exceedingly grieved: and she sent raiment to clothe Mordecai, and to take his sackcloth from off him; but he received it not.
+Esther's maidens and her eunuchs came and told her this, and the queen was exceedingly grieved. She sent clothing to Mordecai, to replace his sackcloth; but he didn't receive it.

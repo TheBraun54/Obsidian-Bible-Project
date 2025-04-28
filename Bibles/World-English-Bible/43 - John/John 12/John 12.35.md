@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore said unto them, Yet a little while is the light among you. Walk while ye have the light, that darkness overtake you not: and he that walketh in the darkness knoweth not whither he goeth.
+Jesus therefore said to them, "Yet a little while the light is with you. Walk while you have the light, that darkness doesn't overtake you. He who walks in the darkness doesn't know where he is going.

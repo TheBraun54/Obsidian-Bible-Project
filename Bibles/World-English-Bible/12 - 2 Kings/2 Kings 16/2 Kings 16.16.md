@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus did Urijah the priest, according to all that king Ahaz commanded.
+Urijah the priest did so, according to all that king Ahaz commanded.

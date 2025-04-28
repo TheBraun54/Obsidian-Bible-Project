@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless there are good things found in thee, in that thou hast put away the Asheroth out of the land, and hast set thy heart to seek God.
+Nevertheless there are good things found in you, in that you have put away the Asheroth out of the land, and have set your heart to seek God."

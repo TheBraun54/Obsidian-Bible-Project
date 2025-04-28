@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As he saith also in Hosea, I will call that my people, which was not my people; And her beloved, that was not beloved.
+As he says also in Hosea, "I will call them 'my people,' which were not my people; and her 'beloved,' who was not beloved."

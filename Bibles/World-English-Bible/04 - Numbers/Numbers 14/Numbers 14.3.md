@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And wherefore doth Jehovah bring us unto this land, to fall by the sword? Our wives and our little ones will be a prey: were it not better for us to return into Egypt?
+Why does Yahweh bring us to this land, to fall by the sword? Our wives and our little ones will be a prey: wouldn't it be better for us to return into Egypt?"

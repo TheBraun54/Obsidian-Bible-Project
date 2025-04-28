@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the eyes of the wicked shall fail, And they shall have no way to flee; And their hope shall be the giving up of the ghost.
+But the eyes of the wicked shall fail. They shall have no way to flee. Their hope shall be the giving up of the spirit."

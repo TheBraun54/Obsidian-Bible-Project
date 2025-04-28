@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore, as through one man sin entered into the world, and death through sin; and so death passed unto all men, for that all sinned:--
+Therefore, as sin entered into the world through one man, and death through sin; and so death passed to all men, because all sinned.

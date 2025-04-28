@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All they that see me laugh me to scorn: They shoot out the lip, they shake the head, [saying] ,
+All those who see me mock me. They insult me with their lips. They shake their heads, saying,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe unto them that are with child and to them that give suck in those days! for there shall be great distress upon the land, and wrath unto this people.
+Woe to those who are pregnant and to those who nurse infants in those days! For there will be great distress in the land, and wrath to this people.

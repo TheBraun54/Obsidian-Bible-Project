@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-as it is written, He that [gathered] much had nothing over; and he that [gathered] little had no lack.
+As it is written, "He who gathered much had nothing left over, and he who gathered little had no lack."

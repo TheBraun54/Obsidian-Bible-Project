@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were exceeding sorrowful, and began to say unto him every one, Is it I, Lord?
+They were exceedingly sorrowful, and each began to ask him, "It isn't me, is it, Lord?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people served Jehovah all the days of Joshua, and all the days of the elders that outlived Joshua, who had seen all the great work of Jehovah that he had wrought for Israel.
+The people served Yahweh all the days of Joshua, and all the days of the elders who outlived Joshua, who had seen all the great work of Yahweh that he had worked for Israel.

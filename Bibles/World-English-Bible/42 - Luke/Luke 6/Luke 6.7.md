@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the scribes and the Pharisees watched him, whether he would heal on the sabbath; that they might find how to accuse him.
+The scribes and the Pharisees watched him, to see whether he would heal on the Sabbath, that they might find an accusation against him.

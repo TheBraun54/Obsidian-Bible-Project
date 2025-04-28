@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Else what shall they do that are baptized for the dead? If the dead are not raised at all, why then are they baptized for them?
+Or else what will they do who are baptized for the dead? If the dead aren't raised at all, why then are they baptized for the dead?

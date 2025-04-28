@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[[ A Psalm] of David. Maschil]. Blessed is he whose transgression is forgiven, Whose sin is covered.
+Blessed is he whose disobedience is forgiven, whose sin is covered.

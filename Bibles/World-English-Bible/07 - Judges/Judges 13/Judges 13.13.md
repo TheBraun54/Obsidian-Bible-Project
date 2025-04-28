@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel of Jehovah said unto Manoah, Of all that I said unto the woman let her beware.
+The angel of Yahweh said to Manoah, "Of all that I said to the woman let her beware.

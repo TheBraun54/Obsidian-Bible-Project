@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That which I see not teach thou me: If I have done iniquity, I will do it no more?
+Teach me that which I don't see. If I have done iniquity, I will do it no more'?

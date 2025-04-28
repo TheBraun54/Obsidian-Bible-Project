@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall fear thee while the sun endureth, And so long as the moon, throughout all generations.
+They shall fear you while the sun endures; and as long as the moon, throughout all generations.

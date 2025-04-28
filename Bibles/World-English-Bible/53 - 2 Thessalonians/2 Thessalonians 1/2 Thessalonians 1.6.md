@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if so be that it is righteous thing with God to recompense affliction to them that afflict you,
+Since it is a righteous thing with God to repay affliction to those who afflict you,

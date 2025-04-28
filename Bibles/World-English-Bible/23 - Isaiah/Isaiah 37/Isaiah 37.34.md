@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By the way that he came, by the same shall he return, and he shall not come unto this city, saith Jehovah.
+By the way that he came, by the same he shall return, and he shall not come to this city,' says Yahweh.

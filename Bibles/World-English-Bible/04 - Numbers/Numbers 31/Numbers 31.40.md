@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the persons were sixteen thousand; of whom Jehovah's tribute was thirty and two persons.
+The persons were sixteen thousand; of whom Yahweh's tribute was thirty-two persons.

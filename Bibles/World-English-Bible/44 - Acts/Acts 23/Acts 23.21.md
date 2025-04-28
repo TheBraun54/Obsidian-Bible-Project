@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Do not thou therefore yield unto them: for there lie in wait for him of them more than forty men, who have bound themselves under a curse, neither to eat nor to drink till they have slain him: and now are they ready, looking for the promise from thee.
+Therefore don't yield to them, for more than forty men lie in wait for him, who have bound themselves under a curse neither to eat nor to drink until they have killed him. Now they are ready, looking for the promise from you."

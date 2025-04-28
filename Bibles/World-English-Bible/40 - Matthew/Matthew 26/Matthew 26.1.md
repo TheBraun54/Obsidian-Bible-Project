@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when Jesus had finished all these words, he said unto his disciples,
+It happened, when Jesus had finished all these words, that he said to his disciples,

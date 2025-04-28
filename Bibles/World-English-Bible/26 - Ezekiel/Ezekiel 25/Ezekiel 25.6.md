@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith the Lord Jehovah: Because thou hast clapped thy hands, and stamped with the feet, and rejoiced with all the despite of thy soul against the land of Israel;
+For thus says the Lord Yahweh: Because you have clapped your hands, and stamped with the feet, and rejoiced with all the despite of your soul against the land of Israel;

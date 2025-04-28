@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in this confidence I was minded to come first unto you, that ye might have a second benefit;
+In this confidence, I was determined to come first to you, that you might have a second benefit;

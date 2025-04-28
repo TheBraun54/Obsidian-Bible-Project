@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if ye will not hearken unto us, to be circumcised; then will we take our daughter, and we will be gone.
+But if you will not listen to us, to be circumcised, then we will take our sister, and we will be gone."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to the intent that now unto the principalities and the powers in the heavenly [places] might be made known through the church the manifold wisdom of God,
+to the intent that now through the assembly the manifold wisdom of God might be made known to the principalities and the powers in the heavenly places,

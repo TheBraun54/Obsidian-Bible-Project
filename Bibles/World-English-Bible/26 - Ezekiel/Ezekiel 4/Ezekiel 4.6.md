@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And again, when thou hast accomplished these, thou shalt lie on thy right side, and shalt bear the iniquity of the house of Judah: forty days, each day for a year, have I appointed it unto thee.
+Again, when you have accomplished these, you shall lie on your right side, and shall bear the iniquity of the house of Judah: forty days, each day for a year, have I appointed it to you.

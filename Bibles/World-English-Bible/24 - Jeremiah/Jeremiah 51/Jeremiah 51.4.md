@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall fall down slain in the land of the Chaldeans, and thrust through in her streets.
+They shall fall down slain in the land of the Chaldeans, and thrust through in her streets.

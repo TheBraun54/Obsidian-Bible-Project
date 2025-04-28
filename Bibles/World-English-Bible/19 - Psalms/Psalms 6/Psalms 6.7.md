@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mine eye wasteth away because of grief; It waxeth old because of all mine adversaries.
+My eye wastes away because of grief. It grows old because of all my adversaries.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They wander as blind men in the streets, they are polluted with blood, So that men cannot touch their garments.
+They wander as blind men in the streets, they are polluted with blood, So that men can't touch their garments.

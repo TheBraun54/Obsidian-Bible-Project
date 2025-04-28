@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-no brawler, no striker; but gentle, not contentious, no lover of money;
+not a drinker, not violent, not greedy for money, but gentle, not quarrelsome, not covetous;

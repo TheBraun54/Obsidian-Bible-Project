@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He singeth before men, and saith, I have sinned, and perverted that which was right, And it profited me not:
+He sings before men, and says, 'I have sinned, and perverted that which was right, and it didn't profit me.

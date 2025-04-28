@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it passed along to Azmon, and went out at the brook of Egypt; and the goings out of the border were at the sea: this shall be your south border.
+and it passed along to Azmon, went out at the brook of Egypt; and the border ended at the sea. This shall be your south border.

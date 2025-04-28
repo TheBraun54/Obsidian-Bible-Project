@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they began to salute him, Hail, King of the Jews!
+They began to salute him, "Hail, King of the Jews!"

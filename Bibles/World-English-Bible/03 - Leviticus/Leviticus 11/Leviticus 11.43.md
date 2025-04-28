@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall not make yourselves abominable with any creeping thing that creepeth, neither shall ye make yourselves unclean with them, that ye should be defiled thereby.
+You shall not make yourselves abominable with any creeping thing that creeps, neither shall you make yourselves unclean with them, that you should be defiled thereby.

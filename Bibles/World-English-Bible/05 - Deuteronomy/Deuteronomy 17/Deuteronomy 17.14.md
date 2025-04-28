@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou art come unto the land which Jehovah thy God giveth thee, and shalt possess it, and shalt dwell therein, and shalt say, I will set a king over me, like all the nations that are round about me;
+When you are come to the land which Yahweh your God gives you, and shall possess it, and shall dwell therein, and shall say, "I will set a king over me, like all the nations that are around me;"

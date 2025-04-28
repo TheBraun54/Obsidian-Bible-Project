@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the families of Kiriath-jearim: The Ithrites, and the Puthites, and the Shumathites, and the Mishraites; of them came the Zorathites and the Eshtaolites.
+The families of Kiriath Jearim: The Ithrites, and the Puthites, and the Shumathites, and the Mishraites; of them came the Zorathites and the Eshtaolites.

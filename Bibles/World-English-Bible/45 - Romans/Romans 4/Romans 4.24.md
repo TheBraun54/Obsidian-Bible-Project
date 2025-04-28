@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but for our sake also, unto whom it shall be reckoned, who believe on him that raised Jesus our Lord from the dead,
+but for our sake also, to whom it will be accounted, who believe in him who raised Jesus, our Lord, from the dead,

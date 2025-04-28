@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he was at the place, he said unto them, Pray that ye enter not into temptation.
+When he was at the place, he said to them, "Pray that you don't enter into temptation."

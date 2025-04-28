@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it shall be unto you for a fringe, that ye may look upon it, and remember all the commandments of Jehovah, and do them; and that ye follow not after your own heart and your own eyes, after which ye use to play the harlot;
+and it shall be to you for a fringe, that you may look on it, and remember all the commandments of Yahweh, and do them; and that you not follow after your own heart and your own eyes, after which you use to play the prostitute;

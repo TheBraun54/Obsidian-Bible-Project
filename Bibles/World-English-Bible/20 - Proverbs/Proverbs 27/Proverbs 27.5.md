@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Better is open rebuke Than love that is hidden.
+Better is open rebuke than hidden love.

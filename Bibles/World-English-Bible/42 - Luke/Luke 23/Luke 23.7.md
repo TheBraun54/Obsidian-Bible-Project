@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he knew that he was of Herod's jurisdiction, he sent him unto Herod, who himself also was at Jerusalem in these days.
+When he found out that he was in Herod's jurisdiction, he sent him to Herod, who was also in Jerusalem during those days.

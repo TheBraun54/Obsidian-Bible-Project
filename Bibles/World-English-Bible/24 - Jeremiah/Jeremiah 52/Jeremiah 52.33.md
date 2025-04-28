@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and changed his prison garments. And [Jehoiachin] did eat bread before him continually all the days of his life:
+and changed his prison garments. [Jehoiachin] ate bread before him continually all the days of his life:

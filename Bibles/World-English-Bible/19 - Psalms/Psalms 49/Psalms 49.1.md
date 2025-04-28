@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. A Psalm of the sons of Korah]. Hear this, all ye peoples; Give ear, all ye inhabitants of the world,
+Hear this, all you peoples. Listen, all you inhabitants of the world,

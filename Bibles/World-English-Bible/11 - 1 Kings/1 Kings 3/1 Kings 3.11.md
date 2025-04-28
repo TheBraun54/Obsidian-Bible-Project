@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God said unto him, Because thou hast asked this thing, and hast not asked for thyself long life, neither hast asked riches for thyself, nor hast asked the life of thine enemies, but hast asked for thyself understanding to discern justice;
+God said to him, "Because you have asked this thing, and have not asked for yourself long life, neither have asked riches for yourself, nor have asked the life of your enemies, but have asked for yourself understanding to discern justice;

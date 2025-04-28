@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore go, and I will be with thy mouth, and teach thee what thou shalt speak.
+Now therefore go, and I will be with your mouth, and teach you what you shall speak."

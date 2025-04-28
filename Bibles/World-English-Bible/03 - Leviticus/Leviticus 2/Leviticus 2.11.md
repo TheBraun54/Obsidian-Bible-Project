@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-No meal-offering, which ye shall offer unto Jehovah, shall be made with leaven; for ye shall burn no leaven, nor any honey, as an offering made by fire unto Jehovah.
+"'No meal offering, which you shall offer to Yahweh, shall be made with yeast; for you shall burn no yeast, nor any honey, as an offering made by fire to Yahweh.

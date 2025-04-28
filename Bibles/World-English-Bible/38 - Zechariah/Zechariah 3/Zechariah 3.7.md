@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts: If thou wilt walk in my ways, and if thou wilt keep my charge, then thou also shalt judge my house, and shalt also keep my courts, and I will give thee a place of access among these that stand by.
+"Thus says Yahweh of Armies: 'If you will walk in my ways, and if you will follow my instructions, then you also shall judge my house, and shall also keep my courts, and I will give you a place of access among these who stand by.

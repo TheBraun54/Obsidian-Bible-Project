@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the men said unto Lot, Hast thou here any besides? son-in-law, and thy sons, and thy daughters, and whomsoever thou hast in the city, bring them out of the place:
+The men said to Lot, "Do you have anybody else here? Sons-in-law, your sons, your daughters, and whoever you have in the city, bring them out of the place:

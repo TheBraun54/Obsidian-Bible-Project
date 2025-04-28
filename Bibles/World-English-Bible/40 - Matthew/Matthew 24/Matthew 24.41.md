@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-two women [shall be] grinding at the mill; one is taken, and one is left.
+two women grinding at the mill, one will be taken and one will be left.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seeing it is hid from the eyes of all living, And kept close from the birds of the heavens.
+Seeing it is hidden from the eyes of all living, and kept close from the birds of the sky.

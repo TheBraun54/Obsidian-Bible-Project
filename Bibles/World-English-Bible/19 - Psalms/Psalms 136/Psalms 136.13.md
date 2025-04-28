@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To him that divided the Red Sea in sunder; For his lovingkindness [endureth] for ever;
+To him who divided the Red Sea apart; for his loving kindness endures forever;

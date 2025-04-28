@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the tongue also is a little member, and boasteth great things. Behold, how much wood is kindled by how small a fire!
+So the tongue is also a little member, and boasts great things. See how a small fire can spread to a large forest!

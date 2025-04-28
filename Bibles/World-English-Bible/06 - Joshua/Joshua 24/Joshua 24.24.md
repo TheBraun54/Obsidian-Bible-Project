@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people said unto Joshua, Jehovah our God will we serve, and unto his voice will we hearken.
+The people said to Joshua, "We will serve Yahweh our God, and we will listen to his voice."

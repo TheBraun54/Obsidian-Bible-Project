@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses entered into the midst of the cloud, and went up into the mount: and Moses was in the mount forty days and forty nights.
+Moses entered into the midst of the cloud, and went up on the mountain; and Moses was on the mountain forty days and forty nights.

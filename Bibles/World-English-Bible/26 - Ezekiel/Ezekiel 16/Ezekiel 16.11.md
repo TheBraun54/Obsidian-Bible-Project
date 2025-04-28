@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I decked thee with ornaments, and I put bracelets upon thy hands, and a chain on thy neck.
+I decked you with ornaments, and I put bracelets on your hands, and a chain on your neck.

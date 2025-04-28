@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he did that which was evil in the sight of Jehovah, according to all that his father had done.
+He did that which was evil in the sight of Yahweh, according to all that his father had done.

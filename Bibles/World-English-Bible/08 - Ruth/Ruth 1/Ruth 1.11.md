@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Naomi said, Turn again, my daughters: why will ye go with me? have I yet sons in my womb, that they may be your husbands?
+Naomi said, "Go back, my daughters. Why do you want to go with me? Do I still have sons in my womb, that they may be your husbands?

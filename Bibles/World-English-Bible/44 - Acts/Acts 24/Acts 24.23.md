@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he gave order to the centurion that he should be kept in charge, and should have indulgence; and not to forbid any of his friends to minister unto him.
+He ordered the centurion that Paul should be kept in custody, and should have some privileges, and not to forbid any of his friends to serve him or to visit him.

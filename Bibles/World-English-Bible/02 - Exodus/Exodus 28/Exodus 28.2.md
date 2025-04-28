@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make holy garments for Aaron thy brother, for glory and for beauty.
+You shall make holy garments for Aaron your brother, for glory and for beauty.

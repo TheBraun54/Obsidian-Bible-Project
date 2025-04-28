@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-doth not behave itself unseemly, seeketh not its own, is not provoked, taketh not account of evil;
+doesn't behave itself inappropriately, doesn't seek its own way, is not provoked, takes no account of evil;

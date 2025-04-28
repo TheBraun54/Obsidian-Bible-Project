@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore saith unto them, My time is not yet come; but your time is always ready.
+Jesus therefore said to them, "My time has not yet come, but your time is always ready.

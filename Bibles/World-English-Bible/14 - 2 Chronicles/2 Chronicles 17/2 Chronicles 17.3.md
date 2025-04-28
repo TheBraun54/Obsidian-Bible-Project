@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah was with Jehoshaphat, because he walked in the first ways of his father David, and sought not unto the Baalim,
+Yahweh was with Jehoshaphat, because he walked in the first ways of his father David, and didn't seek the Baals,

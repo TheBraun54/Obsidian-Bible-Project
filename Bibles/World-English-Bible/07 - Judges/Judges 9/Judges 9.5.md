@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went unto his father's house at Ophrah, and slew his brethren the sons of Jerubbaal, being threescore and ten persons, upon one stone: but Jotham the youngest son of Jerubbaal was left; for he hid himself.
+He went to his father's house at Ophrah, and killed his brothers the sons of Jerubbaal, being seventy persons, on one stone: but Jotham the youngest son of Jerubbaal was left; for he hid himself.

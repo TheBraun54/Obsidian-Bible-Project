@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they have taken of their daughters for themselves and for their sons, so that the holy seed have mingled themselves with the peoples of the lands: yea, the hand of the princes and rulers hath been chief in this trespass.
+For they have taken of their daughters for themselves and for their sons, so that the holy seed have mixed themselves with the peoples of the lands. Yes, the hand of the princes and rulers has been chief in this trespass."

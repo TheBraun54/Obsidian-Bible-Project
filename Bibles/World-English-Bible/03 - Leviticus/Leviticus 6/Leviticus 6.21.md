@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On a baking-pan it shall be made with oil; when it is soaked, thou shalt bring it in: in baken pieces shalt thou offer the meal-offering for a sweet savor unto Jehovah.
+It shall be made with oil in a griddle. When it is soaked, you shall bring it in. You shall offer the meal offering in baked pieces for a pleasant aroma to Yahweh.

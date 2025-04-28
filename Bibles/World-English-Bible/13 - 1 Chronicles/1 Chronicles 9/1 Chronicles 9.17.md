@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the porters: Shallum, and Akkub, and Talmon, and Ahiman, and their brethren (Shallum was the chief),
+The porters: Shallum, and Akkub, and Talmon, and Ahiman, and their brothers (Shallum was the chief),

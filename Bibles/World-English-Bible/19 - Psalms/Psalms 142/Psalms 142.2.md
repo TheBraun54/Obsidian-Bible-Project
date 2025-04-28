@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I pour out my complaint before him; I show before him my trouble.
+I pour out my complaint before him. I tell him my troubles.

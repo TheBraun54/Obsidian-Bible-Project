@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Our cattle also shall go with us; there shall not a hoof be left behind; for thereof must we take to serve Jehovah our God; and we know not with what we must serve Jehovah, until we come thither.
+Our livestock also shall go with us. Not a hoof shall be left behind, for of it we must take to serve Yahweh our God; and we don't know with what we must serve Yahweh, until we come there."

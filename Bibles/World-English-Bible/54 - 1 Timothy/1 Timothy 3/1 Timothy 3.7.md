@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover he must have good testimony from them that are without; lest he fall into reproach and the snare of the devil.
+Moreover he must have good testimony from those who are outside, to avoid falling into reproach and the snare of the devil.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and say, Thus saith the Lord Jehovah: Behold, I am against thee, O Sidon; and I will be glorified in the midst of thee; and they shall know that I am Jehovah, when I shall have executed judgments in her, and shall be sanctified in her.
+and say, Thus says the Lord Yahweh: Behold, I am against you, Sidon; and I will be glorified in the midst of you; and they shall know that I am Yahweh, when I shall have executed judgments in her, and shall be sanctified in her.

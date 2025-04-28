@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, that whosoever shall go out of the doors of thy house into the street, his blood shall be upon his head, and we shall be guiltless: and whosoever shall be with thee in the house, his blood shall be on our head, if any hand be upon him.
+It shall be that whoever goes out of the doors of your house into the street, his blood will be on his head, and we will be guiltless. Whoever is with you in the house, his blood shall be on our head, if any hand is on him.

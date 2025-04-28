@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he answered and said, It is written, Man shall not live by bread alone, but by every word that proceedeth out of the mouth of God.
+But he answered, "It is written, 'Man shall not live by bread alone, but by every word that proceeds out of the mouth of God.'"

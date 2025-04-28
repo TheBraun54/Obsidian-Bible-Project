@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He saith in his heart, God hath forgotten; He hideth his face; he will never see it.
+He says in his heart, "God has forgotten. He hides his face. He will never see it."

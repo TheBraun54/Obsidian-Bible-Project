@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made for it two golden rings under the crown thereof, upon the two ribs thereof, upon the two sides of it, for places for staves wherewith to bear it.
+He made two golden rings for it under its molding crown, on its two ribs, on its two sides, for places for poles with which to carry it.

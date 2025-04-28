@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The envy also of Ephraim shall depart, and they that vex Judah shall be cut off: Ephraim shall not envy Judah, and Judah shall not vex Ephraim.
+The envy also of Ephraim will depart, and those who persecute Judah will be cut off. Ephraim won't envy Judah, and Judah won't persecute Ephraim.

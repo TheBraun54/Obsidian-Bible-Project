@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I watch, and am become like a sparrow That is alone upon the house-top.
+I watch, and have become like a sparrow that is alone on the housetop.

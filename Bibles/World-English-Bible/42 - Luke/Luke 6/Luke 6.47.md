@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every one that cometh unto me, and heareth my words, and doeth them, I will show you to whom he is like:
+Everyone who comes to me, and hears my words, and does them, I will show you who he is like.

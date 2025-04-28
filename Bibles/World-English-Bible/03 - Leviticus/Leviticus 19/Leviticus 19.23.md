@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when ye shall come into the land, and shall have planted all manner of trees for food, then ye shall count the fruit thereof as their uncircumcision: three years shall they be as uncircumcised unto you; it shall not be eaten.
+"'When you come into the land, and have planted all kinds of trees for food, then you shall count their fruit as forbidden. Three years shall they be forbidden to you. It shall not be eaten.

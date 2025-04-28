@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For God speaketh once, Yea twice, [though man] regardeth it not.
+For God speaks once, yes twice, though man pays no attention.

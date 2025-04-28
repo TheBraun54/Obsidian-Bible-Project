@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Song of Ascents; of David]. Jehovah, my heart is not haughty, nor mine eyes lofty; Neither do I exercise myself in great matters, Or in things too wonderful for me.
+Yahweh, my heart isn't haughty, nor my eyes lofty; nor do I concern myself with great matters, or things too wonderful for me.

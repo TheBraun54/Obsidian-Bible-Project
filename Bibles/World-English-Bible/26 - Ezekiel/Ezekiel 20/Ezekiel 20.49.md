@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said I, Ah Lord Jehovah! they say of me, Is he not a speaker of parables?
+Then I said, Ah Lord Yahweh! they say of me, Isn't he a speaker of parables?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brought forth his people with joy, [And] his chosen with singing.
+He brought forth his people with joy, his chosen with singing.

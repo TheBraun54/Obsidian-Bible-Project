@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whosoever therefore shall humble himself as this little child, the same is the greatest in the kingdom of heaven.
+Whoever therefore humbles himself as this little child, the same is the greatest in the Kingdom of Heaven.

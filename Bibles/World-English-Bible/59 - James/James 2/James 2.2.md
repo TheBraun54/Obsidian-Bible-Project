@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if there come into your synagogue a man with a gold ring, in fine clothing, and there come in also a poor man in vile clothing;
+For if a man with a gold ring, in fine clothing, comes into your synagogue, and a poor man in filthy clothing also comes in;

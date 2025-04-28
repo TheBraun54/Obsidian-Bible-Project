@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the king of Syria was warring against Israel; and he took counsel with his servants, saying, In such and such a place shall be my camp.
+Now the king of Syria was warring against Israel; and he took counsel with his servants, saying, "My camp will be in such and such a place."

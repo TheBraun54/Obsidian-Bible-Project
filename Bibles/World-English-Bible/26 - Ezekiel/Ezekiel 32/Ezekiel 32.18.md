@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, wail for the multitude of Egypt, and cast them down, even her, and the daughters of the famous nations, unto the nether parts of the earth, with them that go down into the pit.
+Son of man, wail for the multitude of Egypt, and cast them down, even her, and the daughters of the famous nations, to the lower parts of the earth, with those who go down into the pit.

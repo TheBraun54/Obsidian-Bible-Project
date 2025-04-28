@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For what should a man give in exchange for his life?
+For what will a man give in exchange for his life?

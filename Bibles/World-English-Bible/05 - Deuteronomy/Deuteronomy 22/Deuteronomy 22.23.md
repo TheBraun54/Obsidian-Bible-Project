@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If there be a damsel that is a virgin betrothed unto a husband, and a man find her in the city, and lie with her;
+If there is a young lady who is a virgin pledged to be married to a husband, and a man find her in the city, and lie with her;

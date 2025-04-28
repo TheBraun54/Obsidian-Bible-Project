@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall wander up and down for food, And tarry all night if they be not satisfied.
+They shall wander up and down for food, and wait all night if they aren't satisfied.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Manoah took the kid with the meal-offering, and offered it upon the rock unto Jehovah: and [the angel] did wondrously, and Manoah and his wife looked on.
+So Manoah took the young goat with the meal offering, and offered it on the rock to Yahweh: and [the angel] did wondrously, and Manoah and his wife looked on.

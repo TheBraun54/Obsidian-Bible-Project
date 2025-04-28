@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the house of Israel I have seen a horrible thing: there whoredom is [found] in Ephraim, Israel is defiled.
+In the house of Israel I have seen a horrible thing. There is prostitution in Ephraim. Israel is defiled.

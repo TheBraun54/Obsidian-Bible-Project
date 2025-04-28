@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-or, Who shall descend into the abyss? (That is, to bring Christ up from the dead.)
+or, 'Who will descend into the abyss?' (that is, to bring Christ up from the dead.)"

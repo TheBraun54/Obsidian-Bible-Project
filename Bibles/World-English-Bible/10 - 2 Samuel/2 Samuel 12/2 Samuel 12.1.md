@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah sent Nathan unto David. And he came unto him, and said unto him, There were two men in one city; the one rich, and the other poor.
+Yahweh sent Nathan to David. He came to him, and said to him, "There were two men in one city; the one rich, and the other poor.

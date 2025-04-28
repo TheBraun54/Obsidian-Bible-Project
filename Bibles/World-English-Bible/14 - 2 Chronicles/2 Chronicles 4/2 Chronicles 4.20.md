@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the candlesticks with their lamps, to burn according to the ordinance before the oracle, of pure gold;
+and the lampstands with their lamps, to burn according to the ordinance before the oracle, of pure gold;

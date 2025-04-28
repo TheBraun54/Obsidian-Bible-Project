@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will go and return to my place, till they acknowledge their offence, and seek my face: in their affliction they will seek me earnestly.
+I will go and return to my place, until they acknowledge their offense, and seek my face. In their affliction they will seek me earnestly."

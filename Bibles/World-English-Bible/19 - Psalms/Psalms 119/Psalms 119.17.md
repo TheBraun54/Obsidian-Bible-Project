@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-GIMEL. Deal bountifully with thy servant, that I may live; So will I observe thy word.
+Do good to your servant. I will live and I will obey your word.

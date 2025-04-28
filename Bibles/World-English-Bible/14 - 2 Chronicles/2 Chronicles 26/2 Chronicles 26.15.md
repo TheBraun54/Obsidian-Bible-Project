@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made in Jerusalem engines, invented by skilful men, to be on the towers and upon the battlements, wherewith to shoot arrows and great stones. And his name spread far abroad; for he was marvellously helped, till he was strong.
+He made in Jerusalem engines, invented by skillful men, to be on the towers and on the battlements, with which to shoot arrows and great stones. His name spread far abroad; for he was marvelously helped, until he was strong.

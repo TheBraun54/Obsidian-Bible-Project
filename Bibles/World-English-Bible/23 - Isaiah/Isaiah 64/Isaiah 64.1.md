@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh that thou wouldest rend the heavens, that thou wouldest come down, that the mountains might quake at thy presence,
+Oh that you would tear the heavens, that you would come down, that the mountains might quake at your presence,

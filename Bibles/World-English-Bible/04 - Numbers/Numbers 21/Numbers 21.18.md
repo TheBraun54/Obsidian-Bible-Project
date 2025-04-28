@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The well, which the princes digged, Which the nobles of the people delved, With the sceptre, [and] with their staves. And from the wilderness [they journeyed] to Mattanah;
+the well, which the princes dug, which the nobles of the people dug, with the scepter, and with their poles." From the wilderness [they traveled] to Mattanah;

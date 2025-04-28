@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We therefore ought to welcome such, that we may be fellow-workers for the truth.
+We therefore ought to receive such, that we may be fellow workers for the truth.

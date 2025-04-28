@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said, I will turn aside now, and see this great sight, why the bush is not burnt.
+Moses said, "I will turn aside now, and see this great sight, why the bush is not burnt."

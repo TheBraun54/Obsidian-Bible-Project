@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a multitude was sitting about him; and they say unto him, Behold, thy mother and thy brethren without seek for thee.
+A multitude was sitting around him, and they told him, "Behold, your mother, your brothers, and your sisters are outside looking for you."

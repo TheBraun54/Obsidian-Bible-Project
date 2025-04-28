@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were in all about twelve men.
+They were about twelve men in all.

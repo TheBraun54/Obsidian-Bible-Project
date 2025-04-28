@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Out of his nostrils a smoke goeth, As of a boiling pot and [burning] rushes.
+Out of his nostrils a smoke goes, as of a boiling pot over a fire of reeds.

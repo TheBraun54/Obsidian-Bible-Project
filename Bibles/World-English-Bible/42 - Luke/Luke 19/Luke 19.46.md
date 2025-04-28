@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying unto them, It is written, And my house shall be a house of prayer: but ye have made it a den of robbers.
+saying to them, "It is written, 'My house is a house of prayer,' but you have made it a 'den of robbers'!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he began to speak boldly in the synagogue. But when Priscilla and Aquila heard him, they took him unto them, and expounded unto him the way of God more accurately.
+He began to speak boldly in the synagogue. But when Priscilla and Aquila heard him, they took him aside, and explained to him the way of God more accurately.

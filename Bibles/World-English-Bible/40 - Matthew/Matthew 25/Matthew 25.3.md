@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the foolish, when they took their lamps, took no oil with them:
+Those who were foolish, when they took their lamps, took no oil with them,

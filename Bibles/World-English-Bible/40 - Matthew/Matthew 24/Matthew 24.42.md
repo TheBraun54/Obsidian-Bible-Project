@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Watch therefore: for ye know not on what day your Lord cometh.
+Watch therefore, for you don't know in what hour your Lord comes.

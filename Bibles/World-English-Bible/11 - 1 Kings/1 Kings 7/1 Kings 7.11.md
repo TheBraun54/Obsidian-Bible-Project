@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And above were costly stones, even hewn stone, according to measure, and cedar-wood.
+Above were costly stones, even cut stone, according to measure, and cedar wood.

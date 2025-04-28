@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the man Elkanah, and all his house, went up to offer unto Jehovah the yearly sacrifice, and his vow.
+The man Elkanah, and all his house, went up to offer to Yahweh the yearly sacrifice, and his vow.

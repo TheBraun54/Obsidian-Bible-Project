@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto Aaron were born Nadab and Abihu, Eleazar and Ithamar.
+To Aaron were born Nadab and Abihu, Eleazar and Ithamar.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the Philistines had taken the ark of God, and they brought it from Eben-ezer unto Ashdod.
+Now the Philistines had taken the ark of God, and they brought it from Ebenezer to Ashdod.

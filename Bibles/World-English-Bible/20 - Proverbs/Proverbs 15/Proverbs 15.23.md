@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A man hath joy in the answer of his mouth; And a word in due season, how good is it!
+Joy comes to a man with the reply of his mouth. How good is a word at the right time!

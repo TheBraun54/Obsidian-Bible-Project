@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the instruments of the tabernacle in all the service thereof, and all the pins thereof, and all the pins of the court, shall be of brass.
+All the instruments of the tabernacle in all its service, and all its pins, and all the pins of the court, shall be of brass.

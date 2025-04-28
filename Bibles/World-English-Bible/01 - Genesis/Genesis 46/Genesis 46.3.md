@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, I am God, the God of thy father: fear not to go down into Egypt; for I will there make of thee a great nation:
+He said, "I am God, the God of your father. Don't be afraid to go down into Egypt, for there I will make of you a great nation.

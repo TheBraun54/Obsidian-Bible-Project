@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then sang Deborah and Barak the son of Abinoam on that day, saying,
+Then Deborah and Barak the son of Abinoam sang on that day, saying,

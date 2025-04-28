@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jehovah took me from following the flock, and Jehovah said unto me, Go, prophesy unto my people Israel.
+and Yahweh took me from following the flock, and Yahweh said to me, 'Go, prophesy to my people Israel.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will keep thy going out and thy coming in From this time forth and for evermore.
+Yahweh will keep your going out and your coming in, from this time forth, and forevermore. A Song of Ascents. By David.

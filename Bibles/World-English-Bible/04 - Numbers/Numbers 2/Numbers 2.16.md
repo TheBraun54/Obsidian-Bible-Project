@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All that were numbered of the camp of Reuben were a hundred thousand and fifty and one thousand and four hundred and fifty, according to their hosts. And they shall set forth second.
+"All who were numbered of the camp of Reuben were one hundred fifty-one thousand four hundred fifty, according to their armies. They shall set out second.

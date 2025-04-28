@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He said therefore to the multitudes that went out to be baptized of him, Ye offspring of vipers, who warned you to flee from the wrath to come?
+He said therefore to the multitudes who went out to be baptized by him, "You offspring of vipers, who warned you to flee from the wrath to come?

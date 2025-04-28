@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and a knop under two branches of one piece with it, and a knop under two branches of one piece with it, and a knop under two branches of one piece with it, for the six branches going out of the candlestick.
+and a bud under two branches of one piece with it, and a bud under two branches of one piece with it, and a bud under two branches of one piece with it, for the six branches going out of the lampstand.

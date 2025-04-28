@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they took counsel, and bought with them the potter's field, to bury strangers in.
+They took counsel, and bought the potter's field with them, to bury strangers in.

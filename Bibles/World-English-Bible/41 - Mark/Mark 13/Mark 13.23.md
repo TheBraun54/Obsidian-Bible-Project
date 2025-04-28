@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But take ye heed: behold, I have told you all things beforehand.
+But you watch. "Behold, I have told you all things beforehand.

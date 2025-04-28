@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Egypt said unto them, Wherefore do ye, Moses and Aaron, loose the people from their works? get you unto your burdens.
+The king of Egypt said to them, "Why do you, Moses and Aaron, take the people from their work? Get back to your burdens!"

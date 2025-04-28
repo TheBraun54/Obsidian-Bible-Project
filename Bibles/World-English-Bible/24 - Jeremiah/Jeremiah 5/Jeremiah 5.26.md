@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For among my people are found wicked men: they watch, as fowlers lie in wait; they set a trap, they catch men.
+For among my people are found wicked men. They watch, as fowlers lie in wait. They set a trap. They catch men.

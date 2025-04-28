@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Solomon held the feast at that time seven days, and all Israel with him, a very great assembly, from the entrance of Hamath unto the brook of Egypt.
+So Solomon held the feast at that time seven days, and all Israel with him, a very great assembly, from the entrance of Hamath to the brook of Egypt.

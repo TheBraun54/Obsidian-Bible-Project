@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Kings' daughters are among thy honorable women: At thy right hand doth stand the queen in gold of Ophir.
+Kings' daughters are among your honorable women. At your right hand the queen stands in gold of Ophir.

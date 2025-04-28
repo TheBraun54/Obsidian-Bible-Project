@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel did so as Joshua commanded, and took up twelve stones out of the midst of the Jordan, as Jehovah spake unto Joshua, according to the number of the tribes of the children of Israel; and they carried them over with them unto the place where they lodged, and laid them down there.
+The children of Israel did as Joshua commanded, and took up twelve stones out of the middle of the Jordan, as Yahweh spoke to Joshua, according to the number of the tribes of the children of Israel; and they carried them over with them to the place where they lodged, and laid them down there.

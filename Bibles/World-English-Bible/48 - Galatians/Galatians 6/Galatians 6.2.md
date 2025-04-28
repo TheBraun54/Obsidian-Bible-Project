@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bear ye one another's burdens, and so fulfil the law of Christ.
+Bear one another's burdens, and so fulfill the law of Christ.

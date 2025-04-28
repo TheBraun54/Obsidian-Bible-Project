@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And gave their land for a heritage, A heritage unto Israel his people.
+and gave their land for a heritage, a heritage to Israel, his people.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they took him, and cast him into the pit: and the pit was empty, there was no water in it.
+and they took him, and threw him into the pit. The pit was empty. There was no water in it.

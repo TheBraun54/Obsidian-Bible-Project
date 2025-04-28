@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I saw all the living that walk under the sun, that they were with the youth, the second, that stood up in his stead.
+I saw all the living who walk under the sun, that they were with the youth, the other, who succeeded him.

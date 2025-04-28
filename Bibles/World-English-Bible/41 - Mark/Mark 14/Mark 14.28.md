@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit, after I am raised up, I will go before you into Galilee.
+However, after I am raised up, I will go before you into Galilee."

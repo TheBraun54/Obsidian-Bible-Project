@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the people when they heard, and the publicans, justified God, being baptized with the baptism of John.
+When all the people and the tax collectors heard this, they declared God to be just, having been baptized with John's baptism.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou didst take of thy garments, and madest for thee high places decked with divers colors, and playedst the harlot upon them: [the like things] shall not come, neither shall it be [so] .
+You took of your garments, and made for yourselves high places decked with various colors, and played the prostitute on them: [the like things] shall not come, neither shall it be [so].

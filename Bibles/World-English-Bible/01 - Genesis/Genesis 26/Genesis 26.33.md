@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he called it Shibah: therefore the name of the city is Beer-sheba unto this day.
+He called it Shibah. Therefore the name of the city is Beersheba to this day.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel smote them not, because the princes of the congregation had sworn unto them by Jehovah, the God of Israel. And all the congregation murmured against the princes.
+The children of Israel didn't strike them, because the princes of the congregation had sworn to them by Yahweh, the God of Israel. All the congregation murmured against the princes.

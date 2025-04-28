@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Put them in mind to be in subjection to rulers, to authorities, to be obedient, to be ready unto every good work,
+Remind them to be in subjection to rulers and to authorities, to be obedient, to be ready for every good work,

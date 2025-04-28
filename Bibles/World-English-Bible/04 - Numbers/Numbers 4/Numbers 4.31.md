@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is the charge of their burden, according to all their service in the tent of meeting: the boards of the tabernacle, and the bars thereof, and the pillars thereof, and the sockets thereof,
+This is the duty of their burden, according to all their service in the Tent of Meeting: the tabernacle's boards, its bars, its pillars, its sockets,

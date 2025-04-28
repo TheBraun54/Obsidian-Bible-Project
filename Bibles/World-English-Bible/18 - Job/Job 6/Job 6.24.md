@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Teach me, and I will hold my peace; And cause me to understand wherein I have erred.
+"Teach me, and I will hold my peace. Cause me to understand wherein I have erred.

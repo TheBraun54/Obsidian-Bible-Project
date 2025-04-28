@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for they loved the glory [that is] of men more than the glory [that is] of God.
+for they loved men's praise more than God's praise.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall know that I am in the midst of Israel, and that I am Jehovah your God, and there is none else; and my people shall never be put to shame.
+You will know that I am in the midst of Israel, and that I am Yahweh, your God, and there is no one else; and my people will never again be disappointed.

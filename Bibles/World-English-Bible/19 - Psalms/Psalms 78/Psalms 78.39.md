@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he remembered that they were but flesh, A wind that passeth away, and cometh not again.
+He remembered that they were but flesh, a wind that passes away, and doesn't come again.

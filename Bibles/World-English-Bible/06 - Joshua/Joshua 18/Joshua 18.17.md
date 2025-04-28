@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it extended northward, and went out at En-shemesh, and went out to Geliloth, which is over against the ascent of Adummim; and it went down to the stone of Bohan the son of Reuben;
+It extended northward, went out at En Shemesh, and went out to Geliloth, which is over against the ascent of Adummim. It went down to the stone of Bohan the son of Reuben.

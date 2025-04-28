@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For their rock is not as our Rock, Even our enemies themselves being judges.
+For their rock is not as our Rock, even our enemies themselves being judges.

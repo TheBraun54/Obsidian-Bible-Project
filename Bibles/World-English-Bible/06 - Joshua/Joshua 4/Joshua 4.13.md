@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-about forty thousand ready armed for war passed over before Jehovah unto battle, to the plains of Jericho.
+About forty thousand men, ready and armed for war passed over before Yahweh to battle, to the plains of Jericho.

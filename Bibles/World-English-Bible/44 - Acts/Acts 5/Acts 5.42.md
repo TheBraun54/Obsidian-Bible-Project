@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every day, in the temple and at home, they ceased not to teach and to preach Jesus [as] the Christ.
+Every day, in the temple and at home, they never stopped teaching and preaching Jesus, the Christ.

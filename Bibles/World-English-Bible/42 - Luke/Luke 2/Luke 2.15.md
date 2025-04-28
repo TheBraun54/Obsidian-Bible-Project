@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when the angels went away from them into heaven, the shepherds said one to another, Let us now go even unto Bethlehem, and see this thing that is come to pass, which the Lord hath made known unto us.
+It happened, when the angels went away from them into the sky, that the shepherds said one to another, "Let's go to Bethlehem, now, and see this thing that has happened, which the Lord has made known to us."

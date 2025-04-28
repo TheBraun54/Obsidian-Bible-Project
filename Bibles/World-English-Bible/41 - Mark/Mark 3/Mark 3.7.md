@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus with his disciples withdrew to the sea: and a great multitude from Galilee followed; and from Judaea,
+Jesus withdrew to the sea with his disciples, and a great multitude followed him from Galilee, from Judea,

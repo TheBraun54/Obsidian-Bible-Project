@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was given them that they should not kill them, but that they should be tormented five months: and their torment was as the torment of a scorpion, when it striketh a man.
+They were given power not to kill them, but to torment them for five months. Their torment was like the torment of a scorpion, when it strikes a person.

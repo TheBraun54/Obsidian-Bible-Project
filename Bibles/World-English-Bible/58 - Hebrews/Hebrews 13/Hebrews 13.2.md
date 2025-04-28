@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Forget not to show love unto strangers: for thereby some have entertained angels unawares.
+Don't forget to show hospitality to strangers, for in doing so, some have entertained angels without knowing it.

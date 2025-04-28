@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that brought the tidings answered and said, Israel is fled before the Philistines, and there hath been also a great slaughter among the people, and thy two sons also, Hophni and Phinehas, are dead, and the ark of God is taken.
+He who brought the news answered, "Israel has fled before the Philistines, and there has been also a great slaughter among the people. Your two sons also, Hophni and Phinehas, are dead, and the ark of God has been captured."

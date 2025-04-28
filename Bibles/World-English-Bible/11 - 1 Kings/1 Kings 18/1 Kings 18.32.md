@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And with the stones he built an altar in the name of Jehovah; and he made a trench about the altar, as great as would contain two measures of seed.
+With the stones he built an altar in the name of Yahweh. He made a trench around the altar, large enough to contain two measures of seed.

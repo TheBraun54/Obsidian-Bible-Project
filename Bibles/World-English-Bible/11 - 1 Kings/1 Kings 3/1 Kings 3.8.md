@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thy servant is in the midst of thy people which thou hast chosen, a great people, that cannot be numbered nor counted for multitude.
+Your servant is in the midst of your people which you have chosen, a great people, that can't be numbered nor counted for multitude.

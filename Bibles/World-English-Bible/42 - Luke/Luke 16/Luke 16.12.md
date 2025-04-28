@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if ye have not been faithful in that which is another's, who will give you that which is your own?
+If you have not been faithful in that which is another's, who will give you that which is your own?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But who is able to build him a house, seeing heaven and the heaven of heavens cannot contain him? who am I then, that I should build him a house, save only to burn incense before him?
+But who is able to build him a house, since heaven and the heaven of heavens can't contain him? who am I then, that I should build him a house, except just to burn incense before him?

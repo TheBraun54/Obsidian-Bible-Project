@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it shall be for Aaron and his sons as [their] portion for ever from the children of Israel; for it is a heave-offering: and it shall be a heave-offering from the children of Israel of the sacrifices of their peace-offerings, even their heave-offering unto Jehovah.
+and it shall be for Aaron and his sons as their portion forever from the children of Israel; for it is a wave offering: and it shall be a wave offering from the children of Israel of the sacrifices of their peace offerings, even their wave offering to Yahweh.

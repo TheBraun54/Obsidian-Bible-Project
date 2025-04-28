@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh will say of the children of Israel, They are entangled in the land, the wilderness hath shut them in.
+Pharaoh will say of the children of Israel, 'They are entangled in the land. The wilderness has shut them in.'

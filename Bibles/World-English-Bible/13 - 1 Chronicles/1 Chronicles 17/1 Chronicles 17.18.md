@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What can David [say] yet more unto thee concerning the honor which is done to thy servant? for thou knowest thy servant.
+What can David say yet more to you concerning the honor which is done to your servant? For you know your servant.

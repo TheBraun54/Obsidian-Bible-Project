@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Philistine came on and drew near unto David; and the man that bare the shield went before him.
+The Philistine came on and drew near to David; and the man who bore the shield went before him.

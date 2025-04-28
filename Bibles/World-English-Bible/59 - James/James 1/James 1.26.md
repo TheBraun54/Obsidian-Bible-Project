@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If any man thinketh himself to be religious, while he bridleth not his tongue but deceiveth his heart, this man's religion is vain.
+If anyone among you thinks himself to be religious while he doesn't bridle his tongue, but deceives his heart, this man's religion is worthless.

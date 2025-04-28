@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the beast which I saw was like unto a leopard, and his feet were as [the feet] of a bear, and his mouth as the mouth of a lion: and the dragon gave him his power, and his throne, and great authority.
+The beast which I saw was like a leopard, and his feet were like those of a bear, and his mouth like the mouth of a lion. The dragon gave him his power, his throne, and great authority.

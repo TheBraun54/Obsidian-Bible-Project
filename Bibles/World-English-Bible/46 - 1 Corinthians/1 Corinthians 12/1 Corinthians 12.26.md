@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whether one member suffereth, all the members suffer with it; or [one] member is honored, all the members rejoice with it.
+When one member suffers, all the members suffer with it. Or when one member is honored, all the members rejoice with it.

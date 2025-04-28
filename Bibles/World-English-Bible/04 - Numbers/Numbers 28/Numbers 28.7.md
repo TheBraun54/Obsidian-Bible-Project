@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the drink-offering thereof shall be the fourth part of a hin for the one lamb: in the holy place shalt thou pour out a drink-offering of strong drink unto Jehovah.
+Its drink offering shall be the fourth part of a hin for the one lamb. You shall pour out a drink offering of strong drink to Yahweh in the holy place.

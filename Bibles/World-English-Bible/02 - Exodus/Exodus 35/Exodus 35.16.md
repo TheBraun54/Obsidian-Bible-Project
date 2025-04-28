@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the altar of burnt-offering, with its grating of brass, it staves, and all its vessels, the laver and its base;
+the altar of burnt offering, with its grating of brass, it poles, and all its vessels, the basin and its base;

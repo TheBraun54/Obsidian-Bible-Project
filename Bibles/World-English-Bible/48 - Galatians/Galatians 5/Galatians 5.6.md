@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For in Christ Jesus neither circumcision availeth anything, nor uncircumcision; but faith working through love.
+For in Christ Jesus neither circumcision amounts to anything, nor uncircumcision, but faith working through love.

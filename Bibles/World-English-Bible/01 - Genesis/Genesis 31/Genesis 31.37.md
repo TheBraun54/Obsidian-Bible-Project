@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whereas thou hast felt about all my stuff, what hast thou found of all thy household stuff? Set it here before my brethren and thy brethren, that they may judge betwixt us two.
+Now that you have felt around in all my stuff, what have you found of all your household stuff? Set it here before my relatives and your relatives, that they may judge between us two.

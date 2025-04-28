@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou answeredst them, O Jehovah our God: Thou wast a God that forgavest them, Though thou tookest vengeance of their doings.
+You answered them, Yahweh our God. You are a God who forgave them, although you took vengeance for their doings.

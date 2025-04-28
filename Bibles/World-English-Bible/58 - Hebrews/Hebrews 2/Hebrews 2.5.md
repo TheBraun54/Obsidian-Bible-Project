@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For not unto angels did he subject the world to come, whereof we speak.
+For he didn't subject the world to come, of which we speak, to angels.

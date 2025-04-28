@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither shalt thou go up by steps unto mine altar, that thy nakedness be not uncovered thereon.
+Neither shall you go up by steps to my altar, that your nakedness may not be exposed to it.'

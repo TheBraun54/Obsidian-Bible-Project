@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whosoever shall cause one of these little ones that believe on me to stumble, it were better for him if a great millstone were hanged about his neck, and he were cast into the sea.
+Whoever will cause one of these little ones who believe in me to stumble, it would be better for him if he was thrown into the sea with a millstone hung around his neck.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Against an elder receive not an accusation, except at [the mouth of] two or three witnesses.
+Don't receive an accusation against an elder, except at the word of two or three witnesses.

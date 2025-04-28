@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The nations raged, the kingdoms were moved: He uttered his voice, the earth melted.
+The nations raged. The kingdoms were moved. He lifted his voice, and the earth melted.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The opening of thy words giveth light; It giveth understanding unto the simple.
+The entrance of your words gives light. It gives understanding to the simple.

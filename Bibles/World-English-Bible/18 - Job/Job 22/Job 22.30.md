@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will deliver [even] him that is not innocent: Yea, he shall be delivered through the cleanness of thy hands.
+He will even deliver him who is not innocent. Yes, he shall be delivered through the cleanness of your hands."

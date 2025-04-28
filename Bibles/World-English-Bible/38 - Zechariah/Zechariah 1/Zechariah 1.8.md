@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I saw in the night, and, behold, a man riding upon a red horse, and he stood among the myrtle-trees that were in the bottom; and behind him there were horses, red, sorrel, and white.
+"I had a vision in the night, and behold, a man riding on a red horse, and he stood among the myrtle trees that were in a ravine; and behind him there were red, brown, and white horses.

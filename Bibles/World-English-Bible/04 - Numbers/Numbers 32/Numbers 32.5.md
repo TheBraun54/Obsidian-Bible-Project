@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, If we have found favor in thy sight, let this land be given unto thy servants for a possession; bring us not over the Jordan.
+They said, "If we have found favor in your sight, let this land be given to your servants for a possession; don't bring us over the Jordan."

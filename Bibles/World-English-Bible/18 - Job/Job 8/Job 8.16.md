@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He is green before the sun, And his shoots go forth over his garden.
+He is green before the sun. His shoots go forth over his garden.

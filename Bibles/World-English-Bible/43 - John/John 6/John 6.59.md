@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These things said he in the synagogue, as he taught in Capernaum.
+He said these things in the synagogue, as he taught in Capernaum.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is no darkness, nor thick gloom, Where the workers of iniquity may hide themselves.
+There is no darkness, nor thick gloom, where the workers of iniquity may hide themselves.

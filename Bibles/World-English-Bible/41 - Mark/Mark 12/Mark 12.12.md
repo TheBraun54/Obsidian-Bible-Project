@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they sought to lay hold on him; and they feared the multitude; for they perceived that he spake the parable against them: and they left him, and went away.
+They tried to seize him, but they feared the multitude; for they perceived that he spoke the parable against them. They left him, and went away.

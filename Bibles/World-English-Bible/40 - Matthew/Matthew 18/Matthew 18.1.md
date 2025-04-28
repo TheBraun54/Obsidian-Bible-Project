@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that hour came the disciples unto Jesus, saying, Who then is greatest in the kingdom of heaven?
+In that hour the disciples came to Jesus, saying, "Who then is greatest in the Kingdom of Heaven?"

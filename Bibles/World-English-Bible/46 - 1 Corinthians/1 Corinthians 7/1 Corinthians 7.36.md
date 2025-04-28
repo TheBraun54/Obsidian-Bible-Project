@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if any man thinketh that he behaveth himself unseemly toward his virgin [daughter], if she be past the flower of her age, and if need so requireth, let him do what he will; he sinneth not; let them marry.
+But if any man thinks that he is behaving inappropriately toward his virgin, if she is past the flower of her age, and if need so requires, let him do what he desires. He doesn't sin. Let them marry.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Lot chose him all the Plain of the Jordan; and Lot journeyed east: and they separated themselves the one from the other.
+So Lot chose the Plain of the Jordan for himself. Lot traveled east, and they separated themselves the one from the other.

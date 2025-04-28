@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the mitre of fine linen, and the goodly head-tires of fine linen, and the linen breeches of fine twined linen,
+and the turban of fine linen, and the linen headbands of fine linen, and the linen breeches of fine twined linen,

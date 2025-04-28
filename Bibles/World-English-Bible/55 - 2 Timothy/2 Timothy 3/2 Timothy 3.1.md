@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But know this, that in the last days grievous times shall come.
+But know this, that in the last days, grievous times will come.

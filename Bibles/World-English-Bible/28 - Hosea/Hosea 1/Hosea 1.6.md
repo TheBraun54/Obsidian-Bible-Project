@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she conceived again, and bare a daughter. And [Jehovah] said unto him, Call her name Lo-ruhamah; for I will no more have mercy upon the house of Israel, that I should in any wise pardon them.
+She conceived again, and bore a daughter. Then he said to him, "Call her name Lo-Ruhamah; for I will no longer have mercy on the house of Israel, that I should in any way pardon them.

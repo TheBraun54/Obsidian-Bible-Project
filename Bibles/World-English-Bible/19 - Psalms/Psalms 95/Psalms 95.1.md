@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh come, let us sing unto Jehovah; Let us make a joyful noise to the rock of our salvation.
+Oh come, let's sing to Yahweh. Let's shout aloud to the rock of our salvation!

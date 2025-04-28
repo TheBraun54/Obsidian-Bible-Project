@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By faith Joseph, when his end was nigh, made mention of the departure of the children of Israel; and gave commandment concerning his bones.
+By faith, Joseph, when his end was near, made mention of the departure of the children of Israel; and gave instructions concerning his bones.

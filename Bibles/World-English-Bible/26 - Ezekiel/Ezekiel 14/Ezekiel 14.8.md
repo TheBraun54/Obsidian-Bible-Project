@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will set my face against that man, and will make him an astonishment, for a sign and a proverb, and I will cut him off from the midst of my people; and ye shall know that I am Jehovah.
+and I will set my face against that man, and will make him an astonishment, for a sign and a proverb, and I will cut him off from the midst of my people; and you shall know that I am Yahweh.

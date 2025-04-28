@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore I will not refrain my mouth; I will speak in the anguish of my spirit; I will complain in the bitterness of my soul.
+"Therefore I will not keep silent. I will speak in the anguish of my spirit. I will complain in the bitterness of my soul.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And both the Pharisees and the scribes murmured, saying, This man receiveth sinners, and eateth with them.
+The Pharisees and the scribes murmured, saying, "This man welcomes sinners, and eats with them."

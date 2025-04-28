@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the yoke of his burden, and the staff of his shoulder, the rod of his oppressor, thou hast broken as in the day of Midian.
+For the yoke of his burden, and the staff of his shoulder, the rod of his oppressor, you have broken as in the day of Midian.

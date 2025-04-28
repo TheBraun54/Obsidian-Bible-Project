@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said to Abner, Art not thou a [valiant] man? and who is like to thee in Israel? wherefore then hast thou not kept watch over thy lord the king? for there came one of the people in to destroy the king thy lord.
+David said to Abner, "Aren't you a man? Who is like you in Israel? Why then have you not kept watch over your lord, the king? For one of the people came in to destroy the king your lord.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Paul stood up, and beckoning with the hand said, Men of Israel, and ye that fear God, hearken:
+Paul stood up, and beckoning with his hand said, "Men of Israel, and you who fear God, listen.

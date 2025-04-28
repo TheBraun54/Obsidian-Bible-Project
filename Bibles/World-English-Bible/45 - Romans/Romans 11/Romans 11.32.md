@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For God hath shut up all unto disobedience, that he might have mercy upon all.
+For God has shut up all to disobedience, that he might have mercy on all.

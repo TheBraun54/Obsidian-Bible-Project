@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the pavement was by the side of the gates, answerable unto the length of the gates, even the lower pavement.
+The pavement was by the side of the gates, answerable to the length of the gates, even the lower pavement.

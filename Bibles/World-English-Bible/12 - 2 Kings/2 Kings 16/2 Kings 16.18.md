@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the covered way for the sabbath that they had built in the house, and the king's entry without, turned he unto the house of Jehovah, because of the king of Assyria.
+The covered way for the Sabbath that they had built in the house, and the king's entry outside, turned he to the house of Yahweh, because of the king of Assyria.

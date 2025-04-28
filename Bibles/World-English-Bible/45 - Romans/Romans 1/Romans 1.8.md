@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-First, I thank my God through Jesus Christ for you all, that your faith is proclaimed throughout the whole world.
+First, I thank my God through Jesus Christ for all of you, that your faith is proclaimed throughout the whole world.

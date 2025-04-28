@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Settle it therefore in your hearts, not to meditate beforehand how to answer:
+Settle it therefore in your hearts not to meditate beforehand how to answer,

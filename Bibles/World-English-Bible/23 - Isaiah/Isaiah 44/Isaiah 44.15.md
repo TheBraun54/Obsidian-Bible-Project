@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall it be for a man to burn; and he taketh thereof, and warmeth himself; yea, he kindleth it, and baketh bread: yea, he maketh a god, and worshippeth it; he maketh it a graven image, and falleth down thereto.
+Then it will be for a man to burn; and he takes some of it, and warms himself. Yes, he burns it, and bakes bread. Yes, he makes a god, and worships it; he makes it an engraved image, and falls down to it.

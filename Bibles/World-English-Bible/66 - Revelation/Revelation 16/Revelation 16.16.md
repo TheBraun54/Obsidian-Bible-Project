@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they gathered them together into the place which is called in Hebrew Har-Magedon.
+He gathered them together into the place which is called in Hebrew, Megiddo.

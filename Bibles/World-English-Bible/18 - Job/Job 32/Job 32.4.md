@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Elihu had waited to speak unto Job, because they were elder than he.
+Now Elihu had waited to speak to Job, because they were elder than he.

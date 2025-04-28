@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now after these things the Lord appointed seventy others, and sent them two and two before his face into every city and place, whither he himself was about to come.
+Now after these things, the Lord also appointed seventy others, and sent them two by two ahead of him into every city and place, where he was about to come.

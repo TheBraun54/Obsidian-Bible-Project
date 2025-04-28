@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as they spake these things, he himself stood in the midst of them, and saith unto them, Peace [be] unto you.
+As they said these things, Jesus himself stood among them, and said to them, "Peace be to you."

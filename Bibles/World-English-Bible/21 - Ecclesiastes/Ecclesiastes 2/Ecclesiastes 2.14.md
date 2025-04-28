@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wise man's eyes are in his head, and the fool walketh in darkness: and yet I perceived that one event happeneth to them all.
+The wise man's eyes are in his head, and the fool walks in darkness--and yet I perceived that one event happens to them all.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt anoint the altar of burnt-offering, and all its vessels, and sanctify the altar: and the altar shall be most holy.
+You shall anoint the altar of burnt offering, with all its vessels, and sanctify the altar: and the altar will be most holy.

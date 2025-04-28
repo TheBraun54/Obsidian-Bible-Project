@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel journeyed from Rameses to Succoth, about six hundred thousand on foot that were men, besides children.
+The children of Israel traveled from Rameses to Succoth, about six hundred thousand on foot who were men, besides children.

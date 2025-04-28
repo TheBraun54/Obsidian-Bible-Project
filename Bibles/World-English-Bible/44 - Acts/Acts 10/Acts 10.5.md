@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now send men to Joppa, and fetch one Simon, who is surnamed Peter:
+Now send men to Joppa, and get Simon, who is surnamed Peter.

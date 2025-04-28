@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they said unto Jephthah, Come and be our chief, that we may fight with the children of Ammon.
+and they said to Jephthah, "Come and be our chief, that we may fight with the children of Ammon."

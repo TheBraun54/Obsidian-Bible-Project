@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they of Ashdod arose early on the morrow, behold, Dagon was fallen upon his face to the ground before the ark of Jehovah. And they took Dagon, and set him in his place again.
+When they of Ashdod arose early on the next day, behold, Dagon was fallen on his face to the ground before the ark of Yahweh. They took Dagon, and set him in his place again.

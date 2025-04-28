@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He is unto me as a bear lying in wait, as a lion in secret places.
+He is to me as a bear lying in wait, as a lion in secret places.

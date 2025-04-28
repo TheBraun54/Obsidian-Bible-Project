@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And to the angel of the church in Thyatira write: These things saith the Son of God, who hath his eyes like a flame of fire, and his feet are like unto burnished brass:
+"To the angel of the assembly in Thyatira write: "The Son of God, who has his eyes like a flame of fire, and his feet are like burnished brass, says these things:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My son, attend to my words; Incline thine ear unto my sayings.
+My son, attend to my words. Turn your ear to my sayings.

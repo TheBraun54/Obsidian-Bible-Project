@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Enter not into the path of the wicked, And walk not in the way of evil men.
+Don't enter into the path of the wicked. Don't walk in the way of evil men.

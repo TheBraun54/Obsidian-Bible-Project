@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he will himself show you a large upper room furnished [and] ready: and there make ready for us.
+He will himself show you a large upper room furnished and ready. Get ready for us there."

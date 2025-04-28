@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel that I saw standing upon the sea and upon the earth lifted up his right hand to heaven,
+The angel who I saw standing on the sea and on the land lifted up his right hand to the sky,

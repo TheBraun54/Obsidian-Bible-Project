@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua the son of Nun, the servant of Jehovah, died, being a hundred and ten years old.
+Joshua the son of Nun, the servant of Yahweh, died, being one hundred ten years old.

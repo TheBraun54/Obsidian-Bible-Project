@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But certain also of the strolling Jews, exorcists, took upon them to name over them that had the evil spirits the name of the Lord Jesus, saying, I adjure you by Jesus whom Paul preacheth.
+But some of the itinerant Jews, exorcists, took on themselves to invoke over those who had the evil spirits the name of the Lord Jesus, saying, "We adjure you by Jesus whom Paul preaches."

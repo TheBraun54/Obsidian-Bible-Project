@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and in the uppermost basket there was of all manner of baked food for Pharaoh; and the birds did eat them out of the basket upon my head.
+In the uppermost basket there was all kinds of baked food for Pharaoh, and the birds ate them out of the basket on my head."

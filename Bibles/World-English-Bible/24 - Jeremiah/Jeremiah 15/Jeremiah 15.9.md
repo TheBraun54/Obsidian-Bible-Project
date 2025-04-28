@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She that hath borne seven languisheth; she hath given up the ghost; her sun is gone down while it was yet day; she hath been put to shame and confounded: and the residue of them will I deliver to the sword before their enemies, saith Jehovah.
+She who has borne seven languishes; she has given up the spirit; her sun is gone down while it was yet day; she has been disappointed and confounded: and the residue of them will I deliver to the sword before their enemies, says Yahweh.

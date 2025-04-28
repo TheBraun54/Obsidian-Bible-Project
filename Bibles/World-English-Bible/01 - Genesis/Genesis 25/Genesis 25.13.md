@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and these are the names of the sons of Ishmael, by their names, according to their generations: the first-born of Ishmael, Nebaioth; and Kedar, and Adbeel, and Mibsam,
+These are the names of the sons of Ishmael, by their names, according to the order of their birth: the firstborn of Ishmael, Nebaioth, then Kedar, Adbeel, Mibsam,

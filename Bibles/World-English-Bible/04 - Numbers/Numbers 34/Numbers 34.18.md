@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall take one prince of every tribe, to divide the land for inheritance.
+You shall take one prince of every tribe, to divide the land for inheritance.

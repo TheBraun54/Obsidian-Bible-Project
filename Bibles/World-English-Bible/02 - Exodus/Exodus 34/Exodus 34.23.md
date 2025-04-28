@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Three times in the year shall all thy males appear before the Lord Jehovah, the God of Israel.
+Three times in the year all your males shall appear before the Lord Yahweh, the God of Israel.

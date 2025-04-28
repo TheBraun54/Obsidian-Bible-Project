@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, Arise, and go thy way: thy faith hath made thee whole.
+Then he said to him, "Get up, and go your way. Your faith has healed you."

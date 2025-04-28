@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he that glorieth, let him glory in the Lord.
+But "he who boasts, let him boast in the Lord."

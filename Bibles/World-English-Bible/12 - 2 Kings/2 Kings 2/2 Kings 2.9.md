@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when they were gone over, that Elijah said unto Elisha, Ask what I shall do for thee, before I am taken from thee. And Elisha said, I pray thee, let a double portion of thy spirit be upon me.
+It happened, when they had gone over, that Elijah said to Elisha, "Ask what I shall do for you, before I am taken from you." Elisha said, "Please let a double portion of your spirit be on me."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither shalt thou steal.
+"Neither shall you steal.

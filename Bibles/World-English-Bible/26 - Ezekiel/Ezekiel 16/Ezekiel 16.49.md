@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, this was the iniquity of thy sister Sodom: pride, fulness of bread, and prosperous ease was in her and in her daughters; neither did she strengthen the hand of the poor and needy.
+Behold, this was the iniquity of your sister Sodom: pride, fullness of bread, and prosperous ease was in her and in her daughters; neither did she strengthen the hand of the poor and needy.

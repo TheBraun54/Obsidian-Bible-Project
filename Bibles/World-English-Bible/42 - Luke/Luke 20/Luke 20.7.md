@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they answered, that they knew not whence [it was] .
+They answered that they didn't know where it was from.

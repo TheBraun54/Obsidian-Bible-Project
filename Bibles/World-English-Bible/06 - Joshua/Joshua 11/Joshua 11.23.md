@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Joshua took the whole land, according to all that Jehovah spake unto Moses; and Joshua gave it for an inheritance unto Israel according to their divisions by their tribes. And the land had rest from war.
+So Joshua took the whole land, according to all that Yahweh spoke to Moses; and Joshua gave it for an inheritance to Israel according to their divisions by their tribes. The land had rest from war.

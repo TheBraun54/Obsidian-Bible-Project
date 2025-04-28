@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said to him, Wilt thou bring me down to this troop? And he said, Swear unto me by God, that thou wilt neither kill me, nor deliver me up into the hands of my master, and I will bring thee down to this troop.
+David said to him, "Will you bring me down to this troop?" He said, "Swear to me by God that you will neither kill me, nor deliver me up into the hands of my master, and I will bring you down to this troop."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for thee, stand thou here by me, and I will speak unto thee all the commandment, and the statutes, and the ordinances, which thou shalt teach them, that they may do them in the land which I give them to possess it.
+But as for you, stand here by me, and I will tell you all the commandment, and the statutes, and the ordinances, which you shall teach them, that they may do them in the land which I give them to possess it."

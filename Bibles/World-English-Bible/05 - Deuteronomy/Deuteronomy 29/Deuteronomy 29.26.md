@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and went and served other gods, and worshipped them, gods that they knew not, and that he had not given unto them:
+and went and served other gods, and worshiped them, gods that they didn't know, and that he had not given to them:

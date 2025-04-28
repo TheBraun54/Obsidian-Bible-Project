@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye have a custom, that I should release unto you one at the passover: will ye therefore that I release unto you the King of the Jews?
+But you have a custom, that I should release someone to you at the Passover. Therefore do you want me to release to you the King of the Jews?"

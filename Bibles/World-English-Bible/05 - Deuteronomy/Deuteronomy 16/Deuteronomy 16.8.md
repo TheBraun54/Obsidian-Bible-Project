@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Six days thou shalt eat unleavened bread; and on the seventh day shall be a solemn assembly to Jehovah thy God; thou shalt do no work [therein] .
+Six days you shall eat unleavened bread; and on the seventh day shall be a solemn assembly to Yahweh your God; you shall do no work [therein].

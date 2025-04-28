@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or those eighteen, upon whom the tower in Siloam fell, and killed them, think ye that they were offenders above all the men that dwell in Jerusalem?
+Or those eighteen, on whom the tower in Siloam fell, and killed them; do you think that they were worse offenders than all the men who dwell in Jerusalem?

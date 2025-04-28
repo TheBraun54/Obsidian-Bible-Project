@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when she had weaned Lo-ruhamah, she conceived, and bare a son.
+Now when she had weaned Lo-Ruhamah, she conceived, and bore a son.

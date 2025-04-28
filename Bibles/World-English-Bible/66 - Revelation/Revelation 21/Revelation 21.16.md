@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the city lieth foursquare, and the length thereof is as great as the breadth: and he measured the city with the reed, twelve thousand furlongs: the length and the breadth and the height thereof are equal.
+The city lies foursquare, and its length is as great as its breadth. He measured the city with the reed, Twelve thousand twelve stadia. Its length, breadth, and height are equal.

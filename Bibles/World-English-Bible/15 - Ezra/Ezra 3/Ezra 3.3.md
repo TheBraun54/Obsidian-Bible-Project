@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they set the altar upon its base; for fear was upon them because of the peoples of the countries: and they offered burnt-offerings thereon unto Jehovah, even burnt-offerings morning and evening.
+They set the altar on its base; for fear was on them because of the peoples of the countries: and they offered burnt offerings thereon to Yahweh, even burnt offerings morning and evening.

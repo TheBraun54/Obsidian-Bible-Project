@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And before the chambers was a walk of ten cubits' breadth inward, a way of one cubit; and their doors were toward the north.
+Before the rooms was a walk of ten cubits' breadth inward, a way of one cubit; and their doors were toward the north.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The crown of the wise is their riches; [But] the folly of fools is [only] folly.
+The crown of the wise is their riches, but the folly of fools crowns them with folly.

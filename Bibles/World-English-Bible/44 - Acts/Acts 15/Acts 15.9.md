@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he made no distinction between us and them, cleansing their hearts by faith.
+He made no distinction between us and them, cleansing their hearts by faith.

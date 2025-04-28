@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah answered me, and said, Write the vision, and make it plain upon tablets, that he may run that readeth it.
+Yahweh answered me, "Write the vision, and make it plain on tablets, that he who runs may read it.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he set the altar of burnt-offering at the door of the tabernacle of the tent of meeting, and offered upon it the burnt-offering and the meal-offering; as Jehovah commanded Moses.
+He set the altar of burnt offering at the door of the tabernacle of the Tent of Meeting, and offered on it the burnt offering and the meal offering, as Yahweh commanded Moses.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the thin ears swallowed up the seven good ears: and I told it unto the magicians; but there was none that could declare it to me.
+The thin heads of grain swallowed up the seven good heads of grain. I told it to the magicians, but there was no one who could explain it to me."

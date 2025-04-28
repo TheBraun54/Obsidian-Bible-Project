@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I am come down from heaven, not to do mine own will, but the will of him that sent me.
+For I have come down from heaven, not to do my own will, but the will of him who sent me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that doeth not any of those [duties], but even hath eaten upon the mountains, and defiled his neighbor's wife,
+and who does not any of those [duties], but even has eaten on the mountains, and defiled his neighbor's wife,

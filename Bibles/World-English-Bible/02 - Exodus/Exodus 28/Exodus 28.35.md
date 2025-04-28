@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be upon Aaron to minister: and the sound thereof shall be heard when he goeth in unto the holy place before Jehovah, and when he cometh out, that he die not.
+It shall be on Aaron to minister: and its sound shall be heard when he goes in to the holy place before Yahweh, and when he comes out, that he not die.

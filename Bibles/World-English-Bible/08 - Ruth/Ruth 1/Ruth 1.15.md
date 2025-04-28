@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she said, Behold, thy sister-in-law is gone back unto her people, and unto her god: return thou after thy sister-in-law.
+She said, "Behold, your sister-in-law has gone back to her people, and to her god. Follow your sister-in-law."

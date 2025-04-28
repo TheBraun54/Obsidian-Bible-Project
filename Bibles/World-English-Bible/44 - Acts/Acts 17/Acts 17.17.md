@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he reasoned in the synagogue with Jews and the devout persons, and in the marketplace every day with them that met him.
+So he reasoned in the synagogue with the Jews and the devout persons, and in the marketplace every day with those who met him.

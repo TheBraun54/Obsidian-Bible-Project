@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, thou shalt be as he that lieth down in the midst of the sea, Or as he that lieth upon the top of a mast.
+Yes, you will be as he who lies down in the midst of the sea, or as he who lies on top of the rigging:

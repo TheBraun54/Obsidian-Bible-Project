@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Reuben the first-born of Israel (for he was the first-born; but, forasmuch as he defiled his father's couch, his birthright was given unto the sons of Joseph the son of Israel; and the genealogy is not to be reckoned after the birthright.
+The sons of Reuben the firstborn of Israel (for he was the firstborn; but, because he defiled his father's couch, his birthright was given to the sons of Joseph the son of Israel; and the genealogy is not to be reckoned after the birthright.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My son, if thy heart be wise, My heart will be glad, even mine:
+My son, if your heart is wise, then my heart will be glad, even mine:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If they break my statutes, And keep not my commandments;
+if they break my statutes, and don't keep my commandments;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover there were at my table, of the Jews and the rulers, a hundred and fifty men, besides those that came unto us from among the nations that were round about us.
+Moreover there were at my table, of the Jews and the rulers, one hundred fifty men, besides those who came to us from among the nations that were around us.

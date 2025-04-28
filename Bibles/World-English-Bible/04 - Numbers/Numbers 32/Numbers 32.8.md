@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus did your fathers, when I sent them from Kadesh-barnea to see the land.
+Your fathers did so when I sent them from Kadesh Barnea to see the land.

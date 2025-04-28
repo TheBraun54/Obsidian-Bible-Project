@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let love be without hypocrisy. Abhor that which is evil; cleave to that which is good.
+Let love be without hypocrisy. Abhor that which is evil. Cling to that which is good.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jezreel, and Jokdeam, and Zanoah,
+Jezreel, Jokdeam, Zanoah,

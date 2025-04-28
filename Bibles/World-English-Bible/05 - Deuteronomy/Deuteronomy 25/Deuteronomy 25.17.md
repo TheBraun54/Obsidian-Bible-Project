@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember what Amalek did unto thee by the way as ye came forth out of Egypt;
+Remember what Amalek did to you by the way as you came forth out of Egypt;

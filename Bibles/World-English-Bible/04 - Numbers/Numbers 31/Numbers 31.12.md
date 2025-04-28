@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brought the captives, and the prey, and the spoil, unto Moses, and unto Eleazar the priest, and unto the congregation of the children of Israel, unto the camp at the plains of Moab, which are by the Jordan at Jericho.
+They brought the captives, and the prey, and the spoil, to Moses, and to Eleazar the priest, and to the congregation of the children of Israel, to the camp at the plains of Moab, which are by the Jordan at Jericho.

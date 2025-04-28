@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I am Jehovah thy God, who stirreth up the sea, so that the waves thereof roar: Jehovah of hosts is his name.
+For I am Yahweh your God, who stirs up the sea, so that its waves roar: Yahweh of Armies is his name.

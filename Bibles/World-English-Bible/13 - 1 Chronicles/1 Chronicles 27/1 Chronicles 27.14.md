@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The eleventh [captain] for the eleventh month was Benaiah the Pirathonite, of the children of Ephraim: and in his course were twenty and four thousand.
+The eleventh [captain] for the eleventh month was Benaiah the Pirathonite, of the children of Ephraim: and in his division were twenty-four thousand.

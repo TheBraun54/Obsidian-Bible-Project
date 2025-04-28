@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But let us, since we are of the day, be sober, putting on the breastplate of faith and love; and for a helmet, the hope of salvation.
+But let us, since we belong to the day, be sober, putting on the breastplate of faith and love, and, for a helmet, the hope of salvation.

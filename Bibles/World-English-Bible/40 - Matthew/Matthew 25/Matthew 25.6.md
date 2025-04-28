@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But at midnight there is a cry, Behold, the bridegroom! Come ye forth to meet him.
+But at midnight there was a cry, 'Behold! The bridegroom is coming! Come out to meet him!'

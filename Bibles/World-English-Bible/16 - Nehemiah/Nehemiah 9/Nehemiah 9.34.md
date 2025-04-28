@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-neither have our kings, our princes, our priests, nor our fathers, kept thy law, nor hearkened unto thy commandments and thy testimonies wherewith thou didst testify against them.
+neither have our kings, our princes, our priests, nor our fathers, kept your law, nor listened to your commandments and your testimonies with which you testified against them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But what went ye out to see? a man clothed in soft raiment? Behold, they that are gorgeously apparelled, and live delicately, are in kings' courts.
+But what did you go out to see? A man clothed in soft clothing? Behold, those who are gorgeously dressed, and live delicately, are in kings' courts.

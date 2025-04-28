@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thou shalt surely let the dam go, but the young thou mayest take unto thyself; that it may be well with thee, and that thou mayest prolong thy days.
+you shall surely let the hen go, but the young you may take to yourself; that it may be well with you, and that you may prolong your days.

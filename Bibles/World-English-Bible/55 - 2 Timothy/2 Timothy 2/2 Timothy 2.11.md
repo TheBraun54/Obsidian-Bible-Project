@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Faithful is the saying: For if we died with him, we shall also live with him:
+This saying is faithful: "For if we died with him, we will also live with him.

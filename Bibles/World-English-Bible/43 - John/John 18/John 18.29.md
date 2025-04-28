@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pilate therefore went out unto them, and saith, What accusation bring ye against this man?
+Pilate therefore went out to them, and said, "What accusation do you bring against this man?"

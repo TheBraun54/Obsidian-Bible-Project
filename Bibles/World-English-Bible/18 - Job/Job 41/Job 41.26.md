@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If one lay at him with the sword, it cannot avail; Nor the spear, the dart, nor the pointed shaft.
+If one attacks him with the sword, it can't prevail; nor the spear, the dart, nor the pointed shaft.

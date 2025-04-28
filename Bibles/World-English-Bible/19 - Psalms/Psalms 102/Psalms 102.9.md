@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I have eaten ashes like bread, And mingled my drink with weeping,
+For I have eaten ashes like bread, and mixed my drink with tears,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now it was the Preparation of the passover: it was about the sixth hour. And he saith unto the Jews, Behold, your King!
+Now it was the Preparation Day of the Passover, at about the sixth hour. He said to the Jews, "Behold, your King!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For which of you, desiring to build a tower, doth not first sit down and count the cost, whether he have [wherewith] to complete it?
+For which of you, desiring to build a tower, doesn't first sit down and count the cost, to see if he has enough to complete it?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will cut off, to the man that doeth this, him that waketh and him that answereth, out of the tents of Jacob, and him that offereth an offering unto Jehovah of hosts.
+Yahweh will cut off, to the man who does this, him who wakes and him who answers, out of the tents of Jacob, and him who offers an offering to Yahweh of Armies.

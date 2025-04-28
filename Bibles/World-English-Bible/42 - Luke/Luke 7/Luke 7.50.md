@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto the woman, Thy faith hath saved thee; go in peace.
+He said to the woman, "Your faith has saved you. Go in peace."

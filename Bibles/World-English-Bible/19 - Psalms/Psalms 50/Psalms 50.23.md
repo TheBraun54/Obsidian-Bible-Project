@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso offereth the sacrifice of thanksgiving glorifieth me; And to him that ordereth his way [aright] Will I show the salvation of God.
+Whoever offers the sacrifice of thanksgiving glorifies me, and prepares his way so that I will show God's salvation to him." For the Chief Musician. A Psalm by David, when Nathan the prophet came to him, after he had gone in to Bathsheba.

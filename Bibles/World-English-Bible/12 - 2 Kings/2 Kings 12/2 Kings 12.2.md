@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehoash did that which was right in the eyes of Jehovah all his days wherein Jehoiada the priest instructed him.
+Jehoash did that which was right in the eyes of Yahweh all his days in which Jehoiada the priest instructed him.

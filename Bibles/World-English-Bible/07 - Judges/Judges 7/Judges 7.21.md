@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they stood every man in his place round about the camp; and all the host ran; and they shouted, and put [them] to flight.
+They stood every man in his place around the camp; and all the army ran; and they shouted, and put [them] to flight.

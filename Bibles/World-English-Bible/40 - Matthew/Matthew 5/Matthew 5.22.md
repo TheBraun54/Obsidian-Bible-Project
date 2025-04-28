@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I say unto you, that every one who is angry with his brother shall be in danger of the judgment; and whosoever shall say to his brother, Raca, shall be in danger of the council; and whosoever shall say, Thou fool, shall be in danger of the hell of fire.
+But I tell you, that everyone who is angry with his brother without a cause shall be in danger of the judgment; and whoever shall say to his brother, 'Raca!' shall be in danger of the council; and whoever shall say, 'You fool!' shall be in danger of the fire of Gehenna.

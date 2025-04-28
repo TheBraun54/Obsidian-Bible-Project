@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak, I pray you, in the ears of all the men of Shechem, Whether is better for you, that all the sons of Jerubbaal, who are threescore and ten persons, rule over you, or that one rule over you? remember also that I am your bone and your flesh.
+"Please speak in the ears of all the men of Shechem, 'Is it better for you that all the sons of Jerubbaal, who are seventy persons, rule over you, or that one rule over you?' Remember also that I am your bone and your flesh."

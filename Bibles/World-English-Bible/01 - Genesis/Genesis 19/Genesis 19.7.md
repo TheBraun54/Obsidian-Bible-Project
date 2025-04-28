@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, I pray you, my brethren, do not so wickedly.
+He said, "Please, my brothers, don't act so wickedly.

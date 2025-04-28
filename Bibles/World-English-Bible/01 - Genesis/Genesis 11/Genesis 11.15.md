@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Shelah lived after he begat Eber four hundred and three years, and begat sons and daughters.
+and Shelah lived four hundred three years after he became the father of Eber, and became the father of sons and daughters.

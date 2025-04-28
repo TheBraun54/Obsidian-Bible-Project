@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As the nations that Jehovah maketh to perish before you, so shall ye perish; because ye would not hearken unto the voice of Jehovah your God.
+As the nations that Yahweh makes to perish before you, so you shall perish; because you wouldn't listen to the voice of Yahweh your God.

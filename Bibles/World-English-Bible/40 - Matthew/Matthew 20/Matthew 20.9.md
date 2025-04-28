@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they came that [were hired] about the eleventh hour, they received every man a shilling.
+"When those who were hired at about the eleventh hour came, they each received a denarius.

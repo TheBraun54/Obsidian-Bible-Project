@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah: If heaven above can be measured, and the foundations of the earth searched out beneath, then will I also cast off all the seed of Israel for all that they have done, saith Jehovah.
+Thus says Yahweh: If heaven above can be measured, and the foundations of the earth searched out beneath, then will I also cast off all the seed of Israel for all that they have done, says Yahweh.

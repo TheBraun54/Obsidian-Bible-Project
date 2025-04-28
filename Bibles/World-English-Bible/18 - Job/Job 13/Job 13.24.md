@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore hidest thou thy face, And holdest me for thine enemy?
+Why hide you your face, and hold me for your enemy?

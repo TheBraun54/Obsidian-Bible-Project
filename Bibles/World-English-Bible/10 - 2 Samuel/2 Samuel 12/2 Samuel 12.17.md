@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the elders of his house arose, [and stood] beside him, to raise him up from the earth: but he would not, neither did he eat bread with them.
+The elders of his house arose, [and stood] beside him, to raise him up from the earth: but he would not, neither did he eat bread with them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Peter therefore denied again: and straightway the cock crew.
+Peter therefore denied it again, and immediately the rooster crowed.

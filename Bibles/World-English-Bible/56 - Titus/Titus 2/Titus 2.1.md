@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But speak thou the things which befit the sound doctrine:
+But say the things which fit sound doctrine,

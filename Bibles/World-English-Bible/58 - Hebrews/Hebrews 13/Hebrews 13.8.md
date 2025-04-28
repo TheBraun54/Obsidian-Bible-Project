@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus Christ [is] the same yesterday and to-day, [yea] and for ever.
+Jesus Christ is the same yesterday, today, and forever.

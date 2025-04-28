@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the six hundredth year of Noah's life, in the second month, on the seventeenth day of the month, on the same day were all the fountains of the great deep broken up, and the windows of heaven were opened.
+In the six hundredth year of Noah's life, in the second month, on the seventeenth day of the month, on the same day all the fountains of the great deep were burst open, and the sky's windows were opened.

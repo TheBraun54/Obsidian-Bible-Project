@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Brethren, I speak after the manner of men: Though it be but a man's covenant, yet when it hath been confirmed, no one maketh it void, or addeth thereto.
+Brothers, speaking of human terms, though it is only a man's covenant, yet when it has been confirmed, no one makes it void, or adds to it.

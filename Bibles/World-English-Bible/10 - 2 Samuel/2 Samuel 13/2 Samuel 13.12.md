@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she answered him, Nay, my brother, do not force me; for no such thing ought to be done in Israel: do not thou this folly.
+She answered him, "No, my brother, do not force me! For no such thing ought to be done in Israel. Don't you do this folly.

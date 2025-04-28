@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and set up false witnesses, who said, This man ceaseth not to speak words against this holy place, and the law:
+and set up false witnesses who said, "This man never stops speaking blasphemous words against this holy place and the law.

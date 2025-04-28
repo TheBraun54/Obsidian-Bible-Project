@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Humtah, and Kiriath-arba (the same is Hebron), and Zior; nine cities with their villages.
+Humtah, Kiriath Arba (the same is Hebron), and Zior; nine cities with their villages.

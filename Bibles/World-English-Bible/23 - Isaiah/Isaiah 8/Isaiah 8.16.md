@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bind thou up the testimony, seal the law among my disciples.
+Wrap up the testimony. Seal the law among my disciples.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But no one can enter into the house of the strong [man], and spoil his goods, except he first bind the strong [man] ; and then he will spoil his house.
+But no one can enter into the house of the strong man to plunder, unless he first binds the strong man; and then he will plunder his house.

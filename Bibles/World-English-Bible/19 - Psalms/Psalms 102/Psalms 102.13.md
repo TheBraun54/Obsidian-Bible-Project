@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou wilt arise, and have mercy upon Zion; For it is time to have pity upon her, Yea, the set time is come.
+You will arise and have mercy on Zion; for it is time to have pity on her. Yes, the set time has come.

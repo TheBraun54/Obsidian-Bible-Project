@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore prophesy thou against them all these words, and say unto them, Jehovah will roar from on high, and utter his voice from his holy habitation; he will mightily roar against his fold; he will give a shout, as they that tread [the grapes], against all the inhabitants of the earth.
+Therefore prophesy you against them all these words, and tell them, Yahweh will roar from on high, and utter his voice from his holy habitation; he will mightily roar against his fold; he will give a shout, as those who tread [the grapes], against all the inhabitants of the earth.

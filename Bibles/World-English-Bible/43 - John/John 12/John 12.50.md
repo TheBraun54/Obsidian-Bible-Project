@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I know that his commandment is life eternal: the things therefore which I speak, even as the Father hath said unto me, so I speak.
+I know that his commandment is eternal life. The things therefore which I speak, even as the Father has said to me, so I speak."

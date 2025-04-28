@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Salmon begat Boaz of Rahab; and Boaz begat Obed of Ruth; and Obed begat Jesse;
+Salmon became the father of Boaz by Rahab. Boaz became the father of Obed by Ruth. Obed became the father of Jesse.

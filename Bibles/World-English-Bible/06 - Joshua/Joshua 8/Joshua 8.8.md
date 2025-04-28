@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be, when ye have seized upon the city, that ye shall set the city on fire; according to the word of Jehovah shall ye do: see, I have commanded you.
+It shall be, when you have seized on the city, that you shall set the city on fire. You shall do this according to the word of Yahweh. Behold, I have commanded you."

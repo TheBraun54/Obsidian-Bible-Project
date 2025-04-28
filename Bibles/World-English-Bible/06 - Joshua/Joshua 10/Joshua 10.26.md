@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And afterward Joshua smote them, and put them to death, and hanged them on five trees: and they were hanging upon the trees until the evening.
+Afterward Joshua struck them, put them to death, and hanged them on five trees. They were hanging on the trees until the evening.

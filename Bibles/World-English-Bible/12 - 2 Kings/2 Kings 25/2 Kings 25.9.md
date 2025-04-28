@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he burnt the house of Jehovah, and the king's house; and all the houses of Jerusalem, even every great house, burnt he with fire.
+He burnt the house of Yahweh, and the king's house; and all the houses of Jerusalem, even every great house, burnt he with fire.

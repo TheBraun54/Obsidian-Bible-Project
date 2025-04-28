@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, say unto her, Thou art a land that is not cleansed, nor rained upon in the day of indignation.
+Son of man, tell her, You are a land that is not cleansed, nor rained on in the day of indignation.

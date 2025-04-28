@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is no man that hath power over the spirit to retain the spirit; neither hath he power over the day of death; and there is no discharge in war: neither shall wickedness deliver him that is given to it.
+There is no man who has power over the spirit to contain the spirit; neither does he have power over the day of death. There is no discharge in war; neither shall wickedness deliver those who practice it.

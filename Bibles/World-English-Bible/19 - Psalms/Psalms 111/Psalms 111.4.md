@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath made his wonderful works to be remembered: Jehovah is gracious and merciful.
+He has caused his wonderful works to be remembered. Yahweh is gracious and merciful.

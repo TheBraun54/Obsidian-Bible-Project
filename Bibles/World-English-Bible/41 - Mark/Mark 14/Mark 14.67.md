@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and seeing Peter warming himself, she looked upon him, and saith, Thou also wast with the Nazarene, [even] Jesus.
+and seeing Peter warming himself, she looked at him, and said, "You were also with the Nazarene, Jesus!"

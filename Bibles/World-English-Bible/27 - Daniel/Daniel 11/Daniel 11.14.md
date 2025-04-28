@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in those times there shall many stand up against the king of the south: also the children of the violent among thy people shall lift themselves up to establish the vision; but they shall fall.
+In those times there shall many stand up against the king of the south: also the children of the violent among your people shall lift themselves up to establish the vision; but they shall fall.

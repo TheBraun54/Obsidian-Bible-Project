@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sing unto him a new song; Play skilfully with a loud noise.
+Sing to him a new song. Play skillfully with a shout of joy!

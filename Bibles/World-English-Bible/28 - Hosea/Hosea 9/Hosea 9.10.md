@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I found Israel like grapes in the wilderness; I saw your fathers as the first-ripe in the fig-tree at its first season: but they came to Baal-peor, and consecrated themselves unto the shameful thing, and became abominable like that which they loved.
+I found Israel like grapes in the wilderness. I saw your fathers as the first ripe in the fig tree at its first season; but they came to Baal Peor, and consecrated themselves to the shameful thing, and became abominable like that which they loved.

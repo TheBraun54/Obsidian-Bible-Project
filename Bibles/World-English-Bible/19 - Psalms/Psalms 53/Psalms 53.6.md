@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh that the salvation of Israel were come out of Zion! When God bringeth back the captivity of his people, Then shall Jacob rejoice, [and] Israel shall be glad.
+Oh that the salvation of Israel would come out of Zion! When God brings back his people from captivity, then Jacob shall rejoice, and Israel shall be glad. For the Chief Musician. On stringed instruments. A contemplation by David, when the Ziphites came and said to Saul, "Isn't David hiding himself among us?"

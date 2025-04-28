@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua passed from Makkedah, and all Israel with him, unto Libnah, and fought against Libnah:
+Joshua passed from Makkedah, and all Israel with him, to Libnah, and fought against Libnah.

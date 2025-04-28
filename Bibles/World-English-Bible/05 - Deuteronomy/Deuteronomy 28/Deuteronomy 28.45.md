@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all these curses shall come upon thee, and shall pursue thee, and overtake thee, till thou be destroyed; because thou hearkenedst not unto the voice of Jehovah thy God, to keep his commandments and his statutes which he commanded thee:
+All these curses shall come on you, and shall pursue you, and overtake you, until you are destroyed; because you didn't listen to the voice of Yahweh your God, to keep his commandments and his statutes which he commanded you:

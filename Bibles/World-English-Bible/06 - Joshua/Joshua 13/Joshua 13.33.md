@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But unto the tribe of Levi Moses gave no inheritance: Jehovah, the God of Israel, is their inheritance, as he spake unto them.
+But to the tribe of Levi Moses gave no inheritance. Yahweh, the God of Israel, is their inheritance, as he spoke to them.

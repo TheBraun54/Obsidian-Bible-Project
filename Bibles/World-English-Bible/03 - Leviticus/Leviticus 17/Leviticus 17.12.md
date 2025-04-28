@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore I said unto the children of Israel, No soul of you shall eat blood, neither shall any stranger that sojourneth among you eat blood.
+Therefore I have said to the children of Israel, "No person among you shall eat blood, neither shall any stranger who lives as a foreigner among you eat blood."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, behold, Jehovah cometh forth out of his place, and will come down, and tread upon the high places of the earth.
+For, behold, Yahweh comes forth out of his place, and will come down and tread on the high places of the earth.

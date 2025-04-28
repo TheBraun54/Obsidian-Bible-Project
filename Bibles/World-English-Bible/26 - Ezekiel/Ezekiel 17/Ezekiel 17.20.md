@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will spread my net upon him, and he shall be taken in my snare, and I will bring him to Babylon, and will enter into judgment with him there for his trespass that he hath trespassed against me.
+I will spread my net on him, and he shall be taken in my snare, and I will bring him to Babylon, and will enter into judgment with him there for his trespass that he has trespassed against me.

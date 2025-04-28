@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Levite was content to dwell with the man; and the young man was unto him as one of his sons.
+The Levite was content to dwell with the man; and the young man was to him as one of his sons.

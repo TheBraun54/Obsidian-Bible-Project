@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And take the helmet of salvation, and the sword of the Spirit, which is the word of God:
+And take the helmet of salvation, and the sword of the Spirit, which is the word of God;

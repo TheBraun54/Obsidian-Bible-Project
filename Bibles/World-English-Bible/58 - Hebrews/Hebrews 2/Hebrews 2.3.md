@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-how shall we escape, if we neglect so great a salvation? which having at the first been spoken through the Lord, was confirmed unto us by them that heard;
+how will we escape if we neglect so great a salvation--which at the first having been spoken through the Lord, was confirmed to us by those who heard;

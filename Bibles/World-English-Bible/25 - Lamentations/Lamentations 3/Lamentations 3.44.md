@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast covered thyself with a cloud, so that no prayer can pass through.
+You have covered yourself with a cloud, so that no prayer can pass through.

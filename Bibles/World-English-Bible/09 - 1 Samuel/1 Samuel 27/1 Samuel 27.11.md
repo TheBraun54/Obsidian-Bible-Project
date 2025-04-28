@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David saved neither man nor woman alive, to bring them to Gath, saying, Lest they should tell of us, saying, So did David, and so hath been his manner all the while he hath dwelt in the country of the Philistines.
+David saved neither man nor woman alive, to bring them to Gath, saying, "Lest they should tell of us, saying, 'So did David, and so has been his way all the while he has lived in the country of the Philistines.'"

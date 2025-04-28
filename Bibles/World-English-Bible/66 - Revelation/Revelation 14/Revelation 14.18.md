@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And another angel came out from the altar, he that hath power over fire; and he called with a great voice to him that had the sharp sickle, saying, Send forth thy sharp sickle, and gather the clusters of the vine of the earth; for her grapes are fully ripe.
+Another angel came out from the altar, he who has power over fire, and he called with a great voice to him who had the sharp sickle, saying, "Send forth your sharp sickle, and gather the clusters of the vine of the earth, for the earth's grapes are fully ripe!"

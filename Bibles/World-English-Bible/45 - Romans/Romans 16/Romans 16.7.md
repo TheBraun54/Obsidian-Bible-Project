@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Salute Andronicus and Junias, my kinsmen, and my fellow-prisoners, who are of note among the apostles, who also have been in Christ before me.
+Greet Andronicus and Junia, my relatives and my fellow prisoners, who are notable among the apostles, who also were in Christ before me.

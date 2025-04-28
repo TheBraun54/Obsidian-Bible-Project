@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The fourth [captain] for the fourth month was Asahel the brother of Joab, and Zebadiah his son after him: and in his course were twenty and four thousand.
+The fourth [captain] for the fourth month was Asahel the brother of Joab, and Zebadiah his son after him: and in his division were twenty-four thousand.

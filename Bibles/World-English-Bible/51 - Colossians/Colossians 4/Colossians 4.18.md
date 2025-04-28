@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The salutation of me Paul with mine own hand. Remember my bonds. Grace be with you.
+The salutation of me, Paul, with my own hand: remember my bonds. Grace be with you. Amen.

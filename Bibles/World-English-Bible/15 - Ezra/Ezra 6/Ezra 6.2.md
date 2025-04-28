@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was found at Achmetha, in the palace that is in the province of Media, a roll, and therein was thus written for a record:
+There was found at Achmetha, in the palace that is in the province of Media, a scroll, and therein was thus written for a record:

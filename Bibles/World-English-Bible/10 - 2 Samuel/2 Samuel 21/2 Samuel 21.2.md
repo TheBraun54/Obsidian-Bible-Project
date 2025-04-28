@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king called the Gibeonites, and said unto them (now the Gibeonites were not of the children of Israel, but of the remnant of the Amorites; and the children of Israel had sworn unto them: and Saul sought to slay them in his zeal for the children of Israel and Judah);
+The king called the Gibeonites, and said to them (now the Gibeonites were not of the children of Israel, but of the remnant of the Amorites; and the children of Israel had sworn to them: and Saul sought to kill them in his zeal for the children of Israel and Judah);

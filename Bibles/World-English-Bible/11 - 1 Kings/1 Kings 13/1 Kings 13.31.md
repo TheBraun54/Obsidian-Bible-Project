@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, after he had buried him, that he spake to his sons, saying, When I am dead, then bury me in the sepulchre wherein the man of God is buried; lay my bones beside his bones.
+It happened, after he had buried him, that he spoke to his sons, saying, "When I am dead, then bury me in the tomb in which the man of God is buried. Lay my bones beside his bones.

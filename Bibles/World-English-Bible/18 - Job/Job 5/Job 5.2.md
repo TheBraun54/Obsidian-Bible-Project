@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For vexation killeth the foolish man, And jealousy slayeth the silly one.
+For resentment kills the foolish man, and jealousy kills the simple.

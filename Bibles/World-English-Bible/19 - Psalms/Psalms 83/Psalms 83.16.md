@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Fill their faces with confusion, That they may seek thy name, O Jehovah.
+Fill their faces with confusion, that they may seek your name, Yahweh.

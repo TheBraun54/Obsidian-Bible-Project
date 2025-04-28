@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the Son of man indeed goeth, as it hath been determined: but woe unto that man through whom he is betrayed!
+The Son of Man indeed goes, as it has been determined, but woe to that man through whom he is betrayed!"

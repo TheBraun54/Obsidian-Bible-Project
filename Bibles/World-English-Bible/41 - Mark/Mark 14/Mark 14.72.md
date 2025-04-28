@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And straightway the second time the cock crew. And Peter called to mind the word, how that Jesus said unto him, Before the cock crow twice, thou shalt deny me thrice. And when he thought thereon, he wept.
+The rooster crowed the second time. Peter remembered the word, how that Jesus said to him, "Before the rooster crows twice, you will deny me three times." When he thought about that, he wept.

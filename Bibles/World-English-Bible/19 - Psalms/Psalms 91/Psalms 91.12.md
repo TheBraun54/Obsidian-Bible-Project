@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall bear thee up in their hands, Lest thou dash thy foot against a stone.
+They will bear you up in their hands, so that you won't dash your foot against a stone.

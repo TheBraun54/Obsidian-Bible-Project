@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Unto you is given the mystery of the kingdom of God: but unto them that are without, all things are done in parables:
+He said to them, "To you is given the mystery of the Kingdom of God, but to those who are outside, all things are done in parables,

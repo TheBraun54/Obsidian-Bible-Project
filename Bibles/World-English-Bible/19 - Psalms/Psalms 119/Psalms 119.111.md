@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy testimonies have I taken as a heritage for ever; For they are the rejoicing of my heart.
+I have taken your testimonies as a heritage forever, for they are the joy of my heart.

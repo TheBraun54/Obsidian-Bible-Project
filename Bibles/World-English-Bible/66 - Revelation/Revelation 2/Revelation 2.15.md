@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So hast thou also some that hold the teaching of the Nicolaitans in like manner.
+So you also have some who hold to the teaching of the Nicolaitans likewise.

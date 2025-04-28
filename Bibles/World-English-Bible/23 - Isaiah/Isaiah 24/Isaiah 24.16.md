@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From the uttermost part of the earth have we heard songs: Glory to the righteous. But I said, I pine away, I pine away, woe is me! the treacherous have dealt treacherously; yea, the treacherous have dealt very treacherously.
+From the uttermost part of the earth have we heard songs. Glory to the righteous! But I said, "I pine away! I pine away! woe is me!" The treacherous have dealt treacherously. Yes, the treacherous have dealt very treacherously.

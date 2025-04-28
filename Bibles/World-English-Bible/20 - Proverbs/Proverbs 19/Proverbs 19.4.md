@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wealth addeth many friends; But the poor is separated from his friend.
+Wealth adds many friends, but the poor is separated from his friend.

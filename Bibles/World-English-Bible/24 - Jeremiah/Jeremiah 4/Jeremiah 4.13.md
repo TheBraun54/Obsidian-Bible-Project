@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, he shall come up as clouds, and his chariots [shall be] as the whirlwind: his horses are swifter than eagles. Woe unto us! for we are ruined.
+Behold, he shall come up as clouds, and his chariots [shall be] as the whirlwind: his horses are swifter than eagles. Woe to us! For we are ruined.

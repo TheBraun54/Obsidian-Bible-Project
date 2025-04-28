@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of Hushim he begat Abitub and Elpaal.
+Of Hushim he became the father of Abitub and Elpaal.

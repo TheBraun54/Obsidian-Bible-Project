@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And stand in the holy place according to the divisions of the fathers' houses of your brethren the children of the people, and [let there be for each] a portion of a fathers' house of the Levites.
+Stand in the holy place according to the divisions of the fathers' houses of your brothers the children of the people, and [let there be for each] a portion of a fathers' house of the Levites.

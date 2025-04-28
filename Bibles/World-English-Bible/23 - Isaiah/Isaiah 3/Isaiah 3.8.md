@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jerusalem is ruined, and Judah is fallen; because their tongue and their doings are against Jehovah, to provoke the eyes of his glory.
+For Jerusalem is ruined, and Judah is fallen; because their tongue and their doings are against Yahweh, to provoke the eyes of his glory.

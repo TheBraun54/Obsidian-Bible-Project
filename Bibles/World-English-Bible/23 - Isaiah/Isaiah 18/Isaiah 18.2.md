@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that sendeth ambassadors by the sea, even in vessels of papyrus upon the waters, [saying], Go, ye swift messengers, to a nation tall and smooth, to a people terrible from their beginning onward, a nation that meteth out and treadeth down, whose land the rivers divide!
+that sends ambassadors by the sea, even in vessels of papyrus on the waters, saying, "Go, you swift messengers, to a nation tall and smooth, to a people awesome from their beginning onward, a nation that measures out and treads down, whose land the rivers divide!"

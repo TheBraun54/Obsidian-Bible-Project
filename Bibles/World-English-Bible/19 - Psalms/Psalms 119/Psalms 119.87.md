@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They had almost consumed me upon earth; But I forsook not thy precepts.
+They had almost wiped me from the earth, but I didn't forsake your precepts.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The way of the wicked is as darkness: They know not at what they stumble.
+The way of the wicked is like darkness. They don't know what they stumble over.

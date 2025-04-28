@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall keep thy charge, and the charge of all the Tent: only they shall not come nigh unto the vessels of the sanctuary and unto the altar, that they die not, neither they, nor ye.
+They shall keep your commands, and the duty of all the Tent: only they shall not come near to the vessels of the sanctuary and to the altar, that they not die, neither they, nor you.

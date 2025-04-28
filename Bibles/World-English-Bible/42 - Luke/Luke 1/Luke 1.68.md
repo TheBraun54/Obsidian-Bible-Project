@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed [be] the Lord, the God of Israel; For he hath visited and wrought redemption for his people,
+"Blessed be the Lord, the God of Israel, for he has visited and worked redemption for his people;

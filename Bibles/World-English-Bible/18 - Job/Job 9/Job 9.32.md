@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he is not a man, as I am, that I should answer him, That we should come together in judgment.
+For he is not a man, as I am, that I should answer him, that we should come together in judgment.

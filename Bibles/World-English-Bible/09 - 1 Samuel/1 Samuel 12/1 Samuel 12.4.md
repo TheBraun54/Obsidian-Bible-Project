@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they said, Thou hast not defrauded us, nor oppressed us, neither hast thou taken aught of any man's hand.
+They said, "You have not defrauded us, nor oppressed us, neither have you taken anything of any man's hand."

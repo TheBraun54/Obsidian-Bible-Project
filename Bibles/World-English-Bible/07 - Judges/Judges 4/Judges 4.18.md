@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jael went out to meet Sisera, and said unto him, Turn in, my lord, turn in to me; fear not. And he turned in unto her into the tent, and she covered him with a rug.
+Jael went out to meet Sisera, and said to him, "Turn in, my lord, turn in to me; don't be afraid." He came in to her into the tent, and she covered him with a rug.

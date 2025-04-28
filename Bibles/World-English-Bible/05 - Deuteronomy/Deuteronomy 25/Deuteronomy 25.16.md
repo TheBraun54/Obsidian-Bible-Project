@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For all that do such things, [even] all that do unrighteously, are an abomination unto Jehovah thy God.
+For all who do such things, [even] all who do unrighteously, are an abomination to Yahweh your God.

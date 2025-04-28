@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso causeth the upright to go astray in an evil way, He shall fall himself into his own pit; But the perfect shall inherit good.
+Whoever causes the upright to go astray in an evil way, he will fall into his own trap; but the blameless will inherit good.

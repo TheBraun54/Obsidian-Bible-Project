@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Isaac dwelt in Gerar:
+Isaac lived in Gerar.

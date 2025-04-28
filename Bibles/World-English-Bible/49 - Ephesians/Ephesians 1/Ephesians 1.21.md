@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-far above all rule, and authority, and power, and dominion, and every name that is named, not only in this world, but also in that which is to come:
+far above all rule, and authority, and power, and dominion, and every name that is named, not only in this age, but also in that which is to come.

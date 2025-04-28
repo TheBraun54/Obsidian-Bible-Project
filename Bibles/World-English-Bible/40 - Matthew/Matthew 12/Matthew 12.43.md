@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the unclean spirit, when he is gone out of the man, passeth through waterless places, seeking rest, and findeth it not.
+But the unclean spirit, when he is gone out of the man, passes through waterless places, seeking rest, and doesn't find it.

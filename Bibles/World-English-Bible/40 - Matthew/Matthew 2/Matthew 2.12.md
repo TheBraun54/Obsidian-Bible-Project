@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And being warned [of God] in a dream that they should not return to Herod, they departed into their own country another way.
+Being warned in a dream that they shouldn't return to Herod, they went back to their own country another way.

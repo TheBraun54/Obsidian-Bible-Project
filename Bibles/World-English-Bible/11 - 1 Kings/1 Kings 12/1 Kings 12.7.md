@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they spake unto him, saying, If thou wilt be a servant unto this people this day, and wilt serve them, and answer them, and speak good words to them, then they will be thy servants for ever.
+They spoke to him, saying, "If you will be a servant to this people this day, and will serve them, and answer them, and speak good words to them, then they will be your servants forever."

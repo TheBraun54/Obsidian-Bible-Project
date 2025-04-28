@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou walkest, it shall lead thee; When thou sleepest, it shall watch over thee; And when thou awakest, it shall talk with thee.
+When you walk, it will lead you. When you sleep, it will watch over you. When you awake, it will talk with you.

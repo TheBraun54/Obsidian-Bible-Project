@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if, when he seeth the sword come upon the land, he blow the trumpet, and warn the people;
+if, when he sees the sword come on the land, he blow the trumpet, and warn the people;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto her, Give me, I pray thee, a little water to drink; for I am thirsty. And she opened a bottle of milk, and gave him drink, and covered him.
+He said to her, "Please give me a little water to drink; for I am thirsty." She opened a bottle of milk, and gave him drink, and covered him.

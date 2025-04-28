@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there he found a certain man named Aeneas, who had kept his bed eight years; for he was palsied.
+There he found a certain man named Aeneas, who had been bedridden for eight years, because he was paralyzed.

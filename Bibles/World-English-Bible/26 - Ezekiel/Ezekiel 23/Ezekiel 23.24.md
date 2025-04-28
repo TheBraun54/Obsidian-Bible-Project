@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall come against thee with weapons, chariots, and wagons, and with a company of peoples; they shall set themselves against thee with buckler and shield and helmet round about; and I will commit the judgment unto them, and they shall judge thee according to their judgments.
+They shall come against you with weapons, chariots, and wagons, and with a company of peoples; they shall set themselves against you with buckler and shield and helmet all around; and I will commit the judgment to them, and they shall judge you according to their judgments.

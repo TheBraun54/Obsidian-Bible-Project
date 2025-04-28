@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and changed the glory of the incorruptible God for the likeness of an image of corruptible man, and of birds, and four-footed beasts, and creeping things.
+and traded the glory of the incorruptible God for the likeness of an image of corruptible man, and of birds, and four-footed animals, and creeping things.

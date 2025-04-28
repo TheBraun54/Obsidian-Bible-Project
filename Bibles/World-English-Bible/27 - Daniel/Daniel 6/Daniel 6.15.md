@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then these men assembled together unto the king, and said unto the king, Know, O king, that it is a law of the Medes and Persians, that no interdict nor statute which the king establisheth may be changed.
+Then these men assembled together to the king, and said to the king, Know, O king, that it is a law of the Medes and Persians, that no decree nor statute which the king establishes may be changed.

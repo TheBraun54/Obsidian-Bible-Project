@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will cause them to eat the flesh of their sons and the flesh of their daughters; and they shall eat every one the flesh of his friend, in the siege and in the distress, wherewith their enemies, and they that seek their life, shall distress them.
+I will cause them to eat the flesh of their sons and the flesh of their daughters; and they shall eat everyone the flesh of his friend, in the siege and in the distress, with which their enemies, and those who seek their life, shall distress them.

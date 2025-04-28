@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall be driven from light into darkness, And chased out of the world.
+He shall be driven from light into darkness, and chased out of the world.

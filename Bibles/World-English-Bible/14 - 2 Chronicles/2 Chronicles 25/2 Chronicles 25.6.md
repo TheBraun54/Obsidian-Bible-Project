@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hired also a hundred thousand mighty men of valor out of Israel for a hundred talents of silver.
+He hired also one hundred thousand mighty men of valor out of Israel for one hundred talents of silver.

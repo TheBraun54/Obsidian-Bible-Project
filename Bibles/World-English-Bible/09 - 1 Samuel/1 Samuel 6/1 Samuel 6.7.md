@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore take and prepare you a new cart, and two milch kine, on which there hath come no yoke; and tie the kine to the cart, and bring their calves home from them;
+"Now therefore take and prepare yourselves a new cart, and two milk cows, on which there has come no yoke; and tie the cows to the cart, and bring their calves home from them;

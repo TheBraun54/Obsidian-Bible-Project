@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was broken in that day; and thus the poor of the flock that gave heed unto me knew that it was the word of Jehovah.
+It was broken in that day; and thus the poor of the flock that listened to me knew that it was the word of Yahweh.

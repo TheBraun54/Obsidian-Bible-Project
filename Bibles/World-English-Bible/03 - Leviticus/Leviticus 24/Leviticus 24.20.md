@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-breach for breach, eye for eye, tooth for tooth; as he hath caused a blemish in a man, so shall it be rendered unto him.
+fracture for fracture, eye for eye, tooth for tooth; as he has injured someone, so shall it be done to him.

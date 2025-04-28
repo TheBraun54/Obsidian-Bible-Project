@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They forgat God their Saviour, Who had done great things in Egypt,
+They forgot God, their Savior, who had done great things in Egypt,

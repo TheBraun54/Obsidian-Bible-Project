@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Where now are your prophets that prophesied unto you, saying, The king of Babylon shall not come against you, nor against this land?
+Where now are your prophets who prophesied to you, saying, The king of Babylon shall not come against you, nor against this land?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The word that Isaiah the son of Amoz saw concerning Judah and Jerusalem.
+This is what Isaiah the son of Amoz saw concerning Judah and Jerusalem.

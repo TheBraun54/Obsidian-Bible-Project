@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she took it up, and went into the city; and her mother-in-law saw what she had gleaned: and she brought forth and gave to her that which she had left after she was sufficed.
+She took it up, and went into the city; and her mother-in-law saw what she had gleaned: and she brought forth and gave to her that which she had left after she was sufficed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore thus saith Jehovah, Behold, I will punish Shemaiah the Nehelamite, and his seed; he shall not have a man to dwell among this people, neither shall he behold the good that I will do unto my people, saith Jehovah, because he hath spoken rebellion against Jehovah.
+therefore thus says Yahweh, Behold, I will punish Shemaiah the Nehelamite, and his seed; he shall not have a man to dwell among this people, neither shall he see the good that I will do to my people, says Yahweh, because he has spoken rebellion against Yahweh.

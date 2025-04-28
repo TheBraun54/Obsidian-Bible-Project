@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[[ A Psalm] of David]. I will give thee thanks with my whole heart: Before the gods will I sing praises unto thee.
+I will give you thanks with my whole heart. Before the gods, I will sing praises to you.

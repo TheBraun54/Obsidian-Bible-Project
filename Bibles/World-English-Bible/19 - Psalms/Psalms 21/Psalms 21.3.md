@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou meetest him with the blessings of goodness: Thou settest a crown of fine gold on his head.
+For you meet him with the blessings of goodness. You set a crown of fine gold on his head.

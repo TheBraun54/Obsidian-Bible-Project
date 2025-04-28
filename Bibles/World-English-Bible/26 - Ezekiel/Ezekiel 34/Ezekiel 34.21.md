@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because ye thrust with side and with shoulder, and push all the diseased with your horns, till ye have scattered them abroad;
+Because you thrust with side and with shoulder, and push all the diseased with your horns, until you have scattered them abroad;

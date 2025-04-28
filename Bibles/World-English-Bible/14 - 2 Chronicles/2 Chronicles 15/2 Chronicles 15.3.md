@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now for a long season Israel was without the true God, and without a teaching priest, and without law:
+Now for a long time Israel was without the true God, and without a teaching priest, and without law.

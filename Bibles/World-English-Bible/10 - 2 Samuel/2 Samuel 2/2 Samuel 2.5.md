@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David sent messengers unto the men of Jabesh-gilead, and said unto them, Blessed be ye of Jehovah, that ye have showed this kindness unto your lord, even unto Saul, and have buried him.
+David sent messengers to the men of Jabesh Gilead, and said to them, "Blessed are you by Yahweh, that you have shown this kindness to your lord, even to Saul, and have buried him.

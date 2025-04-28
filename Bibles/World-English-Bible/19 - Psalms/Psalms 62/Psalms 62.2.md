@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He only is my rock and my salvation: [He is] my high tower; I shall not be greatly moved.
+He alone is my rock and my salvation, my fortress-- I will never be greatly shaken.

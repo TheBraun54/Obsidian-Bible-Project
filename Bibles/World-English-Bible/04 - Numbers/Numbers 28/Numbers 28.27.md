@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but ye shall offer a burnt-offering for a sweet savor unto Jehovah: two young bullocks, one ram, seven he-lambs a year old;
+but you shall offer a burnt offering for a pleasant aroma to Yahweh: two young bulls, one ram, seven male lambs a year old;

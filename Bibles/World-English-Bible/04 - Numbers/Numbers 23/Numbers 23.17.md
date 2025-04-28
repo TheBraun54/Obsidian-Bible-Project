@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he came to him, and, lo, he was standing by his burnt-offering, and the princes of Moab with him. And Balak said unto him, What hath Jehovah spoken?
+He came to him, and behold, he was standing by his burnt offering, and the princes of Moab with him. Balak said to him, "What has Yahweh spoken?"

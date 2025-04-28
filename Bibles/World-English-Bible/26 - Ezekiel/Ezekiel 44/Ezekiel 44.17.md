@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall be that, when they enter in at the gates of the inner court, they shall be clothed with linen garments; and no wool shall come upon them, while they minister in the gates of the inner court, and within.
+It shall be that, when they enter in at the gates of the inner court, they shall be clothed with linen garments; and no wool shall come on them, while they minister in the gates of the inner court, and within.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They speak [vain] words, swearing falsely in making covenants: therefore judgment springeth up as hemlock in the furrows of the field. [
+They make promises, swearing falsely in making covenants. Therefore judgment springs up like poisonous weeds in the furrows of the field.

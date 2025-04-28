@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Judas Iscariot, who also betrayed him. And he cometh into a house.
+and Judas Iscariot, who also betrayed him. He came into a house.

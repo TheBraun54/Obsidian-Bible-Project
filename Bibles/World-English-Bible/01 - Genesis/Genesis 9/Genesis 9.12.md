@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God said, This is the token of the covenant which I make between me and you and every living creature that is with you, for perpetual generations:
+God said, "This is the token of the covenant which I make between me and you and every living creature that is with you, for perpetual generations:

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso keepeth his mouth and his tongue Keepeth his soul from troubles.
+Whoever guards his mouth and his tongue keeps his soul from troubles.

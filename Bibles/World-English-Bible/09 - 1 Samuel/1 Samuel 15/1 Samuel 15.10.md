@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came the word of Jehovah unto Samuel, saying,
+Then the word of Yahweh came to Samuel, saying,

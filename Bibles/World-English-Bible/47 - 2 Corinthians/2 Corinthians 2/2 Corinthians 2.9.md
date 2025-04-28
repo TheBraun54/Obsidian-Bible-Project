@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For to this end also did I write, that I might know the proof of you, whether ye are obedient in all things.
+For to this end I also wrote, that I might know the proof of you, whether you are obedient in all things.

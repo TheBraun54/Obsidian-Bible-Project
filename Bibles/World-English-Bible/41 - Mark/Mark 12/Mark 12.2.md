@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And at the season he sent to the husbandmen a servant, that he might receive from the husbandmen of the fruits of the vineyard.
+When it was time, he sent a servant to the farmer to get from the farmer his share of the fruit of the vineyard.

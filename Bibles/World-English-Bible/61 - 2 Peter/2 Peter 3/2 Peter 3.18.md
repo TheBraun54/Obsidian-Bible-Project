@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But grow in the grace and knowledge of our Lord and Saviour Jesus Christ. To him [be] the glory both now and for ever. Amen.
+But grow in the grace and knowledge of our Lord and Savior Jesus Christ. To him be the glory both now and forever. Amen.

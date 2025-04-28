@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and all Naphtali, and the land of Ephraim and Manasseh, and all the land of Judah, unto the hinder sea,
+and all Naphtali, and the land of Ephraim and Manasseh, and all the land of Judah, to the hinder sea,

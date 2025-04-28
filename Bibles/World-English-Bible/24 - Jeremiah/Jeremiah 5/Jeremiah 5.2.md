@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And though they say, As Jehovah liveth; surely they swear falsely.
+Though they say, 'As Yahweh lives;' surely they swear falsely."

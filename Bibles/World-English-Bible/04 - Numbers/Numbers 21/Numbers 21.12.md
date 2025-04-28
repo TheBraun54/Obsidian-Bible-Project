@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From thence they journeyed, and encamped in the valley of Zered.
+From there they traveled, and encamped in the valley of Zered.

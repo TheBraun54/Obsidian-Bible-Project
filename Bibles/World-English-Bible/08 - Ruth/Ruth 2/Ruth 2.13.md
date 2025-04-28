@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then she said, Let me find favor in thy sight, my lord, for that thou hast comforted me, and for that thou hast spoken kindly unto thy handmaid, though I be not as one of thy handmaidens.
+Then she said, "Let me find favor in your sight, my lord, because you have comforted me, and because you have spoken kindly to your handmaid, though I am not as one of your handmaidens."

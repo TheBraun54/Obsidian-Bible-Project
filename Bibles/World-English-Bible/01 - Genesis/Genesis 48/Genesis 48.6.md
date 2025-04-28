@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thy issue, that thou begettest after them, shall be thine; they shall be called after the name of their brethren in their inheritance.
+Your issue, who you become the father of after them, will be yours. They will be called after the name of their brothers in their inheritance.

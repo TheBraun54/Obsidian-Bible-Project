@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he abode two whole years in his own hired dwelling, and received all that went in unto him,
+Paul stayed two whole years in his own rented house, and received all who were coming to him,

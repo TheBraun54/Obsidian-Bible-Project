@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they understood none of these things; and this saying was hid from them, and they perceived not the things that were said.
+They understood none of these things. This saying was hidden from them, and they didn't understand the things that were said.

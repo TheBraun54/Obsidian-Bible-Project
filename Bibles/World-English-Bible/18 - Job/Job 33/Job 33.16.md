@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he openeth the ears of men, And sealeth their instruction,
+Then he opens the ears of men, and seals their instruction,

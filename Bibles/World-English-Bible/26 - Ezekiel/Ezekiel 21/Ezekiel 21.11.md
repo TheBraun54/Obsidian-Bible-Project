@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it is given to be furbished, that it may be handled: the sword, it is sharpened, yea, it is furbished, to give it into the hand of the slayer.
+It is given to be furbished, that it may be handled: the sword, it is sharpened, yes, it is furbished, to give it into the hand of the killer.

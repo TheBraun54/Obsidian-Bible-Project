@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Get wisdom, get understanding; Forget not, neither decline from the words of my mouth;
+Get wisdom. Get understanding. Don't forget, neither swerve from the words of my mouth.

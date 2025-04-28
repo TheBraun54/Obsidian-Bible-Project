@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall observe the [feast of] unleavened bread; for in this selfsame day have I brought your hosts out of the land of Egypt: therefore shall ye observe this day throughout your generations by an ordinance for ever.
+You shall observe the feast of unleavened bread; for in this same day have I brought your armies out of the land of Egypt: therefore you shall observe this day throughout your generations by an ordinance forever.

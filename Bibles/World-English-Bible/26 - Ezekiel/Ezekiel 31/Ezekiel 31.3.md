@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, the Assyrian was a cedar in Lebanon with fair branches, and with a forest-like shade, and of high stature; and its top was among the thick boughs.
+Behold, the Assyrian was a cedar in Lebanon with beautiful branches, and with a forest-like shade, and of high stature; and its top was among the thick boughs.

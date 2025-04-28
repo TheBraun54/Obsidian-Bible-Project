@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For every one that doeth evil hateth the light, and cometh not to the light, lest his works should be reproved.
+For everyone who does evil hates the light, and doesn't come to the light, lest his works would be exposed.

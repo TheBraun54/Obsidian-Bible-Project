@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I commanded the Levites that they should purify themselves, and that they should come and keep the gates, to sanctify the sabbath day. Remember unto me, O my God, this also, and spare me according to the greatness of thy lovingkindness.
+I commanded the Levites that they should purify themselves, and that they should come and keep the gates, to sanctify the Sabbath day. Remember to me, my God, this also, and spare me according to the greatness of your loving kindness.

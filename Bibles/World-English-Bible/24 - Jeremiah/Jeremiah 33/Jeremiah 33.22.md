@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As the host of heaven cannot be numbered, neither the sand of the sea measured; so will I multiply the seed of David my servant, and the Levites that minister unto me.
+As the army of the sky can't be numbered, neither the sand of the sea measured; so will I multiply the seed of David my servant, and the Levites who minister to me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Our soul hath waited for Jehovah: He is our help and our shield.
+Our soul has waited for Yahweh. He is our help and our shield.

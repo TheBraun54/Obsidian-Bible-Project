@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after him Elon the Zebulunite judged Israel; and he judged Israel ten years.
+After him Elon the Zebulunite judged Israel; and he judged Israel ten years.

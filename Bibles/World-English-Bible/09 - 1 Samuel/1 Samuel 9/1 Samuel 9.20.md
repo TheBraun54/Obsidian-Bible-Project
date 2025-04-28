@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as for thine asses that were lost three days ago, set not they mind on them; for they are found. And for whom is all that is desirable in Israel? Is it not for thee, and for all thy father's house?
+As for your donkeys who were lost three days ago, don't set your mind on them; for they are found. For whom is all that is desirable in Israel? Is it not for you, and for all your father's house?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make for it a grating of network of brass; and upon the net shalt thou make four brazen rings in the four corners thereof.
+You shall make a grating for it of network of brass: and on the net you shall make four bronze rings in its four corners.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Joseph bought all the land of Egypt for Pharaoh; for the Egyptians sold every man his field, because the famine was sore upon them: and the land became Pharaoh's.
+So Joseph bought all the land of Egypt for Pharaoh, for every man of the Egyptians sold his field, because the famine was severe on them, and the land became Pharaoh's.

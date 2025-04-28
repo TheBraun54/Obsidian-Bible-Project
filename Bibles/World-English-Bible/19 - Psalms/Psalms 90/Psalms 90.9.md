@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For all our days are passed away in thy wrath: We bring our years to an end as a sigh.
+For all our days have passed away in your wrath. We bring our years to an end as a sigh.

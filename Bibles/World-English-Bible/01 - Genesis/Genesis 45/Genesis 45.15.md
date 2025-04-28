@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he kissed all his brethren, and wept upon them: and after that his brethren talked with him.
+He kissed all his brothers, and wept on them. After that his brothers talked with him.

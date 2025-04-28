@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have made the earth, the men and the beasts that are upon the face of the earth, by my great power and by my outstretched arm; and I give it unto whom it seemeth right unto me.
+I have made the earth, the men and the animals that are on the surface of the earth, by my great power and by my outstretched arm; and I give it to whom it seems right to me.

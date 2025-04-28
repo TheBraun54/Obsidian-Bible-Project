@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And now I am become their song, Yea, I am a byword unto them.
+"Now I have become their song. Yes, I am a byword to them.

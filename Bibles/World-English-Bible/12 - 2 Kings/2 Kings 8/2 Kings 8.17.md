@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thirty and two years old was he when he began to reign; and he reigned eight years in Jerusalem.
+He was thirty-two years old when he began to reign. He reigned eight years in Jerusalem.

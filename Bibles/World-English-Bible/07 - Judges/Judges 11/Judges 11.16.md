@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but when they came up from Egypt, and Israel went through the wilderness unto the Red Sea, and came to Kadesh;
+but when they came up from Egypt, and Israel went through the wilderness to the Red Sea, and came to Kadesh;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If ye will still abide in this land, then will I build you, and not pull you down, and I will plant you, and not pluck you up; for I repent me of the evil that I have done unto you.
+If you will still live in this land, then will I build you, and not pull you down, and I will plant you, and not pluck you up; for I grieve over the distress that I have brought on you.

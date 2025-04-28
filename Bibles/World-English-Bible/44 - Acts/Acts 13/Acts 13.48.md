@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as the Gentiles heard this, they were glad, and glorified the word of God: and as many as were ordained to eternal life believed.
+As the Gentiles heard this, they were glad, and glorified the word of God. As many as were appointed to eternal life believed.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith the Lord, Jehovah of hosts, O my people that dwellest in Zion, be not afraid of the Assyrian, though he smite thee with the rod, and lift up his staff against thee, after the manner of Egypt.
+Therefore the Lord, Yahweh of Armies, says "My people who dwell in Zion, don't be afraid of the Assyrian, though he strike you with the rod, and lift up his staff against you, as Egypt did.

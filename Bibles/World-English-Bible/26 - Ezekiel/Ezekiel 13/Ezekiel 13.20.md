@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore thus saith the Lord Jehovah: Behold, I am against your pillows, wherewith ye there hunt the souls to make [them] fly, and I will tear them from your arms; and I will let the souls go, even the souls that ye hunt to make [them] fly.
+Therefore thus says the Lord Yahweh: Behold, I am against your pillows, with which you there hunt the souls to make [them] fly, and I will tear them from your arms; and I will let the souls go, even the souls whom you hunt to make [them] fly.

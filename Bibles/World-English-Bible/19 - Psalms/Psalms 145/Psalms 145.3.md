@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Great is Jehovah, and greatly to be praised; And his greatness is unsearchable.
+Great is Yahweh, and greatly to be praised! His greatness is unsearchable.

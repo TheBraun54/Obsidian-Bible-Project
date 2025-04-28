@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, Thou hast answered right: this do, and thou shalt live.
+He said to him, "You have answered correctly. Do this, and you will live."

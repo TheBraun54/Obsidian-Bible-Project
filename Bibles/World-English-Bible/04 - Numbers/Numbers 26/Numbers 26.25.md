@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are the families of Issachar according to those that were numbered of them, threescore and four thousand and three hundred.
+These are the families of Issachar according to those who were numbered of them, sixty-four thousand three hundred.

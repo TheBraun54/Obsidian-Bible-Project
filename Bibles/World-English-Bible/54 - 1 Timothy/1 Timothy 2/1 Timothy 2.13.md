@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Adam was first formed, then Eve;
+For Adam was first formed, then Eve.

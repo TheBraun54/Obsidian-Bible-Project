@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When therefore the people saw the sign which he did, they said, This is of a truth the prophet that cometh into the world.
+When therefore the people saw the sign which Jesus did, they said, "This is truly the prophet who comes into the world."

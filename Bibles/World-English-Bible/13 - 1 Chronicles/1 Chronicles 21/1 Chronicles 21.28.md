@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At that time, when David saw that Jehovah had answered him in the threshing-floor of Ornan the Jebusite, then he sacrificed there.
+At that time, when David saw that Yahweh had answered him in the threshing floor of Ornan the Jebusite, then he sacrificed there.

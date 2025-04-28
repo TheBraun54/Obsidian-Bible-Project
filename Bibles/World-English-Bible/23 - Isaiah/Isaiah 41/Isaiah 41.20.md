@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that they may see, and know, and consider, and understand together, that the hand of Jehovah hath done this, and the Holy One of Israel hath created it.
+that they may see, know, consider, and understand together, that the hand of Yahweh has done this, and the Holy One of Israel has created it.

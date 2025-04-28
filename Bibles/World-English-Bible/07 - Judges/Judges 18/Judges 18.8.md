@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they came unto their brethren to Zorah and Eshtaol: and their brethren said unto them, What [say] ye?
+They came to their brothers to Zorah and Eshtaol: and their brothers said to them, "What do you say?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy glory, O Israel, is slain upon thy high places! How are the mighty fallen!
+"Your glory, Israel, is slain on your high places! How the mighty have fallen!

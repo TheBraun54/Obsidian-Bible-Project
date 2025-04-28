@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now if there was perfection through the Levitical priesthood (for under it hath the people received the law), what further need [was there] that another priest should arise after the order of Melchizedek, and not be reckoned after the order of Aaron?
+Now if there was perfection through the Levitical priesthood (for under it the people have received the law), what further need was there for another priest to arise after the order of Melchizedek, and not be called after the order of Aaron?

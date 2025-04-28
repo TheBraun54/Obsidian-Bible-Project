@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man smite his servant, or his maid, with a rod, and he die under his hand; he shall surely be punished.
+"If a man strikes his servant or his maid with a rod, and he dies under his hand, he shall surely be punished.

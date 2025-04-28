@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thy mouth like the best wine, That goeth down smoothly for my beloved, Gliding through the lips of those that are asleep.
+Your mouth like the best wine, that goes down smoothly for my beloved, gliding through the lips of those who are asleep.

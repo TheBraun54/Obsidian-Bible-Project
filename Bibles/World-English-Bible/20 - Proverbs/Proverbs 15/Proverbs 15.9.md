@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The way of the wicked is an abomination to Jehovah; But he loveth him that followeth after righteousness.
+The way of the wicked is an abomination to Yahweh, but he loves him who follows after righteousness.

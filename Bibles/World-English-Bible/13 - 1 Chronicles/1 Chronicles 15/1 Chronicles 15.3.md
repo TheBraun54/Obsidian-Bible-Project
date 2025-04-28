@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David assembled all Israel at Jerusalem, to bring up the ark of Jehovah unto its place, which he had prepared for it.
+David assembled all Israel at Jerusalem, to bring up the ark of Yahweh to its place, which he had prepared for it.

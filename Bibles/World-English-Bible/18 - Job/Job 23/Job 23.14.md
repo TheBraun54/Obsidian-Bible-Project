@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he performeth that which is appointed for me: And many such things are with him.
+For he performs that which is appointed for me. Many such things are with him.

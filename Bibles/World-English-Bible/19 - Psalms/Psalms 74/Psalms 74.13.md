@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou didst divide the sea by thy strength: Thou brakest the heads of the sea-monsters in the waters.
+You divided the sea by your strength. You broke the heads of the sea monsters in the waters.

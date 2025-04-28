@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as thy servant was busy here and there, he was gone. And the king of Israel said unto him, So shall thy judgment be; thyself hast decided it.
+As your servant was busy here and there, he was gone." The king of Israel said to him, "So your judgment shall be; yourself have decided it."

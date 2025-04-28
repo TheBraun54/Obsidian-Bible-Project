@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in the course of those many days, that the king of Egypt died: and the children of Israel sighed by reason of the bondage, and they cried, and their cry came up unto God by reason of the bondage.
+It happened in the course of those many days, that the king of Egypt died, and the children of Israel sighed because of the bondage, and they cried, and their cry came up to God because of the bondage.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the King shall answer and say unto them, Verily I say unto you, Inasmuch as ye did it unto one of these my brethren, [even] these least, ye did it unto me.
+"The King will answer them, 'Most certainly I tell you, inasmuch as you did it to one of the least of these my brothers, you did it to me.'

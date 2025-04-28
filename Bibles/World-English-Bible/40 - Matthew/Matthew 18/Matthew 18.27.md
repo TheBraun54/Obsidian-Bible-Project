@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the lord of that servant, being moved with compassion, released him, and forgave him the debt.
+The lord of that servant, being moved with compassion, released him, and forgave him the debt.

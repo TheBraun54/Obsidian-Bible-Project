@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I was cast upon thee from the womb; Thou art my God since my mother bare me.
+I was thrown on you from my mother's womb. You are my God since my mother bore me.

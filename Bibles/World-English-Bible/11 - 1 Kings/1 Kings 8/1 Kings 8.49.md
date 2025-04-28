@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then hear thou their prayer and their supplication in heaven thy dwelling-place, and maintain their cause;
+then hear their prayer and their supplication in heaven, your dwelling place, and maintain their cause;

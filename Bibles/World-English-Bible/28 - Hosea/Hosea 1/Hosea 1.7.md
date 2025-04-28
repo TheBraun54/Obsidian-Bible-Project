@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I will have mercy upon the house of Judah, and will save them by Jehovah their God, and will not save them by bow, nor by sword, nor by battle, by horses, nor by horsemen.
+But I will have mercy on the house of Judah, and will save them by Yahweh their God, and will not save them by bow, sword, battle, horses, or horsemen."

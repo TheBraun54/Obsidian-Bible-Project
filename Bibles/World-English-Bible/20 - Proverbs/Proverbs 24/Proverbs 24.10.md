@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou faint in the day of adversity, Thy strength is small.
+If you falter in the time of trouble, your strength is small.

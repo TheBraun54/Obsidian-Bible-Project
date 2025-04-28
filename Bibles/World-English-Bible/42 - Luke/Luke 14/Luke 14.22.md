@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the servant said, Lord, what thou didst command is done, and yet there is room.
+"The servant said, 'Lord, it is done as you commanded, and there is still room.'

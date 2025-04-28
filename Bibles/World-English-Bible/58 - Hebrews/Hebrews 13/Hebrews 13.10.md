@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We have an altar, whereof they have no right to eat that serve the tabernacle.
+We have an altar from which those who serve the holy tabernacle have no right to eat.

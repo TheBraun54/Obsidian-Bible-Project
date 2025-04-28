@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sufficient to such a one is this punishment which was [inflicted] by the many;
+Sufficient to such a one is this punishment which was inflicted by the many;

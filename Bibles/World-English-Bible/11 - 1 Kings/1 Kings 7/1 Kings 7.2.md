@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he built the house of the forest of Lebanon; the length thereof was a hundred cubits, and the breadth thereof fifty cubits, and the height thereof thirty cubits, upon four rows of cedar pillars, with cedar beams upon the pillars.
+For he built the house of the forest of Lebanon; its length was one hundred cubits, and its breadth fifty cubits, and its height thirty cubits, on four rows of cedar pillars, with cedar beams on the pillars.

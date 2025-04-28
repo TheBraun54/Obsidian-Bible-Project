@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For their heart was not right with him, Neither were they faithful in his covenant.
+For their heart was not right with him, neither were they faithful in his covenant.

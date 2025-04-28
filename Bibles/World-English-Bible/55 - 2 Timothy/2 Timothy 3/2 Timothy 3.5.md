@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-holding a form of godliness, but having denied the power thereof: from these also turn away.
+holding a form of godliness, but having denied its power. Turn away from these, also.

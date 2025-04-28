@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brought in the ark of Jehovah, and set it in its place, in the midst of the tent that David had pitched for it; and David offered burnt-offerings and peace-offerings before Jehovah.
+They brought in the ark of Yahweh, and set it in its place, in the midst of the tent that David had pitched for it; and David offered burnt offerings and peace offerings before Yahweh.

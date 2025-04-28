@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, it is written before me: I will not keep silence, but will recompense, yea, I will recompense into their bosom,
+"Behold, it is written before me: I will not keep silence, but will recompense, yes, I will recompense into their bosom,

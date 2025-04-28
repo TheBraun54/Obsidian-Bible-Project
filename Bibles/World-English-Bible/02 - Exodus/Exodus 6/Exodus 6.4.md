@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I have also established my covenant with them, to give them the land of Canaan, the land of their sojournings, wherein they sojourned.
+I have also established my covenant with them, to give them the land of Canaan, the land of their travels, in which they lived as aliens.

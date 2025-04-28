@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that justifieth the wicked, and he that condemneth the righteous, Both of them alike are an abomination to Jehovah.
+He who justifies the wicked, and he who condemns the righteous, both of them alike are an abomination to Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt say unto Pharaoh, Thus saith Jehovah, Israel is my son, my first-born:
+You shall tell Pharaoh, 'Thus says Yahweh, Israel is my son, my firstborn,

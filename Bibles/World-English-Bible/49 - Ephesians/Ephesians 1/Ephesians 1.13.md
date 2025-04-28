@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in whom ye also, having heard the word of the truth, the gospel of your salvation,--in whom, having also believed, ye were sealed with the Holy Spirit of promise,
+in whom you also, having heard the word of the truth, the Good News of your salvation--in whom, having also believed, you were sealed with the Holy Spirit of promise,

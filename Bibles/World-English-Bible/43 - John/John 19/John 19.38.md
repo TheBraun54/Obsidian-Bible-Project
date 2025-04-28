@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after these things Joseph of Arimathaea, being a disciple of Jesus, but secretly for fear of the Jews, asked of Pilate that he might take away the body of Jesus: and Pilate gave [him] leave. He came therefore, and took away his body.
+After these things, Joseph of Arimathaea, being a disciple of Jesus, but secretly for fear of the Jews, asked of Pilate that he might take away Jesus' body. Pilate gave him permission. He came therefore and took away his body.

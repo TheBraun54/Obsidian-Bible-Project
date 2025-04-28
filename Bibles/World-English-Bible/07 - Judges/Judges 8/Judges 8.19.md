@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, They were my brethren, the sons of my mother: as Jehovah liveth, if ye had saved them alive, I would not slay you.
+He said, "They were my brothers, the sons of my mother. As Yahweh lives, if you had saved them alive, I would not kill you."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I hate and abhor falsehood; [But] thy law do I love.
+I hate and abhor falsehood. I love your law.

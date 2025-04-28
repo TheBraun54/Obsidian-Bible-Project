@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after her he took Maacah the daughter of Absalom; and she bare him Abijah, and Attai, and Ziza, and Shelomith.
+After her he took Maacah the daughter of Absalom; and she bore him Abijah, and Attai, and Ziza, and Shelomith.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These things spake Jesus; and lifting up his eyes to heaven, he said, Father, the hour is come; glorify thy Son, that the son may glorify thee:
+Jesus said these things, and lifting up his eyes to heaven, he said, "Father, the time has come. Glorify your Son, that your Son may also glorify you;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abram was fourscore and six years old, when Hagar bare Ishmael to Abram.
+Abram was eighty-six years old when Hagar bore Ishmael to Abram.

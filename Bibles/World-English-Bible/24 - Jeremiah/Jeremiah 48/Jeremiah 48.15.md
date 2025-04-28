@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moab is laid waste, and they are gone up into his cities, and his chosen young men are gone down to the slaughter, saith the King, whose name is Jehovah of hosts.
+Moab is laid waste, and they are gone up into his cities, and his chosen young men are gone down to the slaughter, says the King, whose name is Yahweh of Armies.

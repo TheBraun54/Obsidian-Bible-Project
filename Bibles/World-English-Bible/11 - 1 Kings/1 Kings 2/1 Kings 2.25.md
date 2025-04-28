@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And king Solomon sent by Benaiah the son of Jehoiada; and he fell upon him, so that he died.
+King Solomon sent by Benaiah the son of Jehoiada; and he fell on him, so that he died.

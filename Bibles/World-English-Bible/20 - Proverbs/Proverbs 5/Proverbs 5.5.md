@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Her feet go down to death; Her steps take hold on Sheol;
+Her feet go down to death. Her steps lead straight to Sheol.

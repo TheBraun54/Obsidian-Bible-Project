@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Draw thee water for the siege; strengthen thy fortresses; go into the clay, and tread the mortar; make strong the brickkiln.
+Draw water for the siege. Strengthen your fortresses. Go into the clay, and tread the mortar. Make the brick kiln strong.

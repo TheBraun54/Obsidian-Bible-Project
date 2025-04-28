@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the fear of God was on all the kingdoms of the countries, when they heard that Jehovah fought against the enemies of Israel.
+The fear of God was on all the kingdoms of the countries, when they heard that Yahweh fought against the enemies of Israel.

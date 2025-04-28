@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I have consumed them, and smitten them through, so that they cannot arise: Yea, they are fallen under my feet.
+I have consumed them, and struck them through, so that they can't arise. Yes, they have fallen under my feet.

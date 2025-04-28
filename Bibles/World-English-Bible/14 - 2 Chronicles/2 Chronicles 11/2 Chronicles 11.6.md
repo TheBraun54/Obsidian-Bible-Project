@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He built Beth-lehem, and Etam, and Tekoa,
+He built Bethlehem, and Etam, and Tekoa,

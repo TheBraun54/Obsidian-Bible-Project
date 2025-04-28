@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-knowing this, that our old man was crucified with [him], that the body of sin might be done away, that so we should no longer be in bondage to sin;
+knowing this, that our old man was crucified with him, that the body of sin might be done away with, so that we would no longer be in bondage to sin.

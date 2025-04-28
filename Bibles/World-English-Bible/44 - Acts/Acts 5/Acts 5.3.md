@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Peter said, Ananias, why hath Satan filled thy heart to lie to the Holy Spirit, and to keep back [part] of the price of the land?
+But Peter said, "Ananias, why has Satan filled your heart to lie to the Holy Spirit, and to keep back part of the price of the land?

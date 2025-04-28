@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I said, How I will put thee among the children, and give thee a pleasant land, a goodly heritage of the hosts of the nations! and I said, Ye shall call me My Father, and shall not turn away from following me.
+"But I said, 'How I would put you among the children, and give you a pleasant land, a goodly heritage of the armies of the nations!' and I said, 'You shall call me "My Father," and shall not turn away from following me.'

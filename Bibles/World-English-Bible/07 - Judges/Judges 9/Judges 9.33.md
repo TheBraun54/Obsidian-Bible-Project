@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it shall be, that in the morning, as soon as the sun is up, thou shalt rise early, and rush upon the city; and, behold, when he and the people that are with him come out against thee, then mayest thou do to them [ as thou shalt find occasion.
+and it shall be, that in the morning, as soon as the sun is up, you shall rise early, and rush on the city; and behold, when he and the people who are with him come out against you, then may you do to them as you shall find occasion."

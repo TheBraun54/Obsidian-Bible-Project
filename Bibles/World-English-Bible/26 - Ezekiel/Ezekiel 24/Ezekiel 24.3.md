@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And utter a parable unto the rebellious house, and say unto them, Thus saith the Lord Jehovah, Set on the caldron, set it on, and also pour water into it:
+Utter a parable to the rebellious house, and tell them, Thus says the Lord Yahweh, Set on the caldron, set it on, and also pour water into it:

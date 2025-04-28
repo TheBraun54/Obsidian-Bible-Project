@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel of Jehovah came up from Gilgal to Bochim. And he said, I made you to go up out of Egypt, and have brought you unto the land which I sware unto your fathers; and I said, I will never break my covenant with you:
+The angel of Yahweh came up from Gilgal to Bochim. He said, "I made you to go up out of Egypt, and have brought you to the land which I swore to your fathers; and I said, 'I will never break my covenant with you:

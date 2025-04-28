@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the morning sow thy seed, and in the evening withhold not thy hand; for thou knowest not which shall prosper, whether this or that, or whether they both shall be alike good.
+In the morning sow your seed, and in the evening don't withhold your hand; for you don't know which will prosper, whether this or that, or whether they both will be equally good.

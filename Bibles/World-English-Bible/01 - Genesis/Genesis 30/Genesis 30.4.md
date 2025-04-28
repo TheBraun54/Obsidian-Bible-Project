@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she gave him Bilhah her handmaid to wife: and Jacob went in unto her.
+She gave him Bilhah her handmaid as wife, and Jacob went in to her.

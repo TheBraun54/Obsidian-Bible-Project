@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let thy hand be lifted up above thine adversaries, and let all thine enemies be cut off.
+Let your hand be lifted up above your adversaries, and let all of your enemies be cut off.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and saying, Where is the promise of his coming? for, from the day that the fathers fell asleep, all things continue as they were from the beginning of the creation.
+and saying, "Where is the promise of his coming? For, from the day that the fathers fell asleep, all things continue as they were from the beginning of the creation."

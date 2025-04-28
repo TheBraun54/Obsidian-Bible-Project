@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he will give his angels charge over thee, To keep thee in all thy ways.
+For he will put his angels in charge of you, to guard you in all your ways.

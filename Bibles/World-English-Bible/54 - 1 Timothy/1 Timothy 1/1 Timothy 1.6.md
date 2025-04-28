@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-from which things some having swerved have turned aside unto vain talking;
+from which things some, having missed the mark, have turned aside to vain talking;

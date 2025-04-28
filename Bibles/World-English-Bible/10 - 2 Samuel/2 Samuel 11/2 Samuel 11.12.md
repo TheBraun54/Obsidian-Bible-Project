@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said to Uriah, Tarry here to-day also, and to-morrow I will let thee depart. So Uriah abode in Jerusalem that day, and the morrow.
+David said to Uriah, "Stay here today also, and tomorrow I will let you depart." So Uriah stayed in Jerusalem that day, and the next day.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Only the cattle and the spoil of that city Israel took for prey unto themselves, according unto the word of Jehovah which he commanded Joshua.
+Only the livestock and the spoil of that city Israel took for prey to themselves, according to the word of Yahweh which he commanded Joshua.

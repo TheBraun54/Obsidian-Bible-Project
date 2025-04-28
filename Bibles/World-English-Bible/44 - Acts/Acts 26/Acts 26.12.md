@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whereupon as I journeyed to Damascus with the authority and commission of the chief priests,
+"Whereupon as I traveled to Damascus with the authority and commission from the chief priests,

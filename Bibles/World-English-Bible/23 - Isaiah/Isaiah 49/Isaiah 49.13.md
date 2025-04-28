@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sing, O heavens; and be joyful, O earth; and break forth into singing, O mountains: for Jehovah hath comforted his people, and will have compassion upon his afflicted.
+Sing, heavens; and be joyful, earth; and break forth into singing, mountains: for Yahweh has comforted his people, and will have compassion on his afflicted.

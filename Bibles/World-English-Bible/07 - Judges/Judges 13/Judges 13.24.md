@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the woman bare a son, and called his name Samson: and the child grew, and Jehovah blessed him.
+The woman bore a son, and named him Samson: and the child grew, and Yahweh blessed him.

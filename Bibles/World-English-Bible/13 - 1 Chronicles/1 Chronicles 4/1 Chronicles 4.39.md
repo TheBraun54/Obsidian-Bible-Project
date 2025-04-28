@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went to the entrance of Gedor, even unto the east side of the valley, to seek pasture for their flocks.
+They went to the entrance of Gedor, even to the east side of the valley, to seek pasture for their flocks.

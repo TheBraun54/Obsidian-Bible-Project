@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he left the multitudes, and went into the house: and his disciples came unto him, saying, Explain unto us the parable of the tares of the field.
+Then Jesus sent the multitudes away, and went into the house. His disciples came to him, saying, "Explain to us the parable of the darnel weeds of the field."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day shall Jehovah defend the inhabitants of Jerusalem: and he that is feeble among them at that day shall be as David; and the house of David shall be as God, as the angel of Jehovah before them.
+In that day Yahweh will defend the inhabitants of Jerusalem. He who is feeble among them at that day will be like David, and the house of David will be like God, like the angel of Yahweh before them.

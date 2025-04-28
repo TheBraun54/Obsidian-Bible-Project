@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus said, Forbid him not: for there is no man who shall do a mighty work in my name, and be able quickly to speak evil of me.
+But Jesus said, "Don't forbid him, for there is no one who will do a mighty work in my name, and be able quickly to speak evil of me.

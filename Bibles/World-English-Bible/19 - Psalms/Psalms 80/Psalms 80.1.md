@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; set to Shoshannim Eduth. A Psalm of Asaph]. Give ear, O Shepherd of Israel, Thou that leadest Joseph like a flock; Thou that sittest [above] the cherubim, shine forth.
+Hear us, Shepherd of Israel, you who lead Joseph like a flock, you who sit above the cherubim, shine forth.

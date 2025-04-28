@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye have multiplied your slain in this city, and ye have filled the streets thereof with the slain.
+You have multiplied your slain in this city, and you have filled its streets with the slain.

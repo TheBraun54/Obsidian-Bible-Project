@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we have not here an abiding city, but we seek after [the city] which is to come.
+For we don't have here an enduring city, but we seek that which is to come.

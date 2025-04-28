@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and there they preached the gospel.
+There they preached the Good News.

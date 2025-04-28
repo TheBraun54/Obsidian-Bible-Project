@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when Timothy came even now unto us from you, and brought us glad tidings of your faith and love, and that ye have good remembrance of us always, longing to see us, even as we also [to see] you;
+But when Timothy came just now to us from you, and brought us glad news of your faith and love, and that you have good memories of us always, longing to see us, even as we also long to see you;

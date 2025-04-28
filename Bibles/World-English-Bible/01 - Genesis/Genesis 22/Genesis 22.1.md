@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass after these things, that God did prove Abraham, and said unto him, Abraham; and he said, Here am I.
+It happened after these things, that God tested Abraham, and said to him, "Abraham!" He said, "Here I am."

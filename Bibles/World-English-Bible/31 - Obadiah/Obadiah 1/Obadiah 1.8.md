@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall I not in that day, saith Jehovah, destroy the wise men out of Edom, and understanding out of the mount of Esau?
+"Won't I in that day," says Yahweh, "destroy the wise men out of Edom, and understanding out of the mountain of Esau?

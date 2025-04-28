@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Withdraw thy hand far from me; And let not thy terror make me afraid.
+withdraw your hand far from me; and don't let your terror make me afraid.

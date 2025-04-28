@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For riches are not for ever: And doth the crown endure unto all generations?
+for riches are not forever, nor does even the crown endure to all generations.

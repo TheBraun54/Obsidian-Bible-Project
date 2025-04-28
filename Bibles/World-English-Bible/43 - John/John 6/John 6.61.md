@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus knowing in himself that his disciples murmured at this, said unto them, Doth this cause you to stumble?
+But Jesus knowing in himself that his disciples murmured at this, said to them, "Does this cause you to stumble?

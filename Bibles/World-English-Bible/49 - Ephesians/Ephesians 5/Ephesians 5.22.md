@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wives, [be in subjection] unto your own husbands, as unto the Lord.
+Wives, be subject to your own husbands, as to the Lord.

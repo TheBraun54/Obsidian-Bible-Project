@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These are they which are unclean to you among all that creep: whosoever doth touch them, when they are dead, shall be unclean until the even.
+These are they which are unclean to you among all that creep. Whoever touches them when they are dead, shall be unclean until the evening.

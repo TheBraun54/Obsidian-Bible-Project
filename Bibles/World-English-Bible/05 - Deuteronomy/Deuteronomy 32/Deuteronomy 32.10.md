@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He found him in a desert land, And in the waste howling wilderness; He compassed him about, he cared for him, He kept him as the apple of his eye.
+He found him in a desert land, in the waste howling wilderness. He surrounded him. He cared for him. He kept him as the apple of his eye.

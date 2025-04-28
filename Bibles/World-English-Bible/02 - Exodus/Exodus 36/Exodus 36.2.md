@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses called Bezalel and Oholiab, and every wise-hearted man, in whose heart Jehovah had put wisdom, even every one whose heart stirred him up to come unto the work to do it:
+Moses called Bezalel and Oholiab, and every wise-hearted man, in whose heart Yahweh had put wisdom, even everyone whose heart stirred him up to come to the work to do it:

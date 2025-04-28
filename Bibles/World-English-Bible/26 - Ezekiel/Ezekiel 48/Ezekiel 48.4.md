@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And by the border of Naphtali, from the east side unto the west side, Manasseh, one [portion] .
+By the border of Naphtali, from the east side to the west side, Manasseh, one [portion].

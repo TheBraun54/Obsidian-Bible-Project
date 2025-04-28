@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Absalom and all the men of Israel said, The counsel of Hushai the Archite is better than the counsel of Ahithophel. For Jehovah had ordained to defeat the good counsel of Ahithophel, to the intent that Jehovah might bring evil upon Absalom.
+Absalom and all the men of Israel said, "The counsel of Hushai the Archite is better than the counsel of Ahithophel." For Yahweh had ordained to defeat the good counsel of Ahithophel, to the intent that Yahweh might bring evil on Absalom.

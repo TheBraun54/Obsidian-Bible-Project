@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I will gather them out of all the countries, whither I have driven them in mine anger, and in my wrath, and in great indignation; and I will bring them again unto this place, and I will cause them to dwell safely:
+Behold, I will gather them out of all the countries, where I have driven them in my anger, and in my wrath, and in great indignation; and I will bring them again to this place, and I will cause them to dwell safely:

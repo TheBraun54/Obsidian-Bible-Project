@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they were come to Capernaum, they that received the half-shekel came to Peter, and said, Doth not your teacher pay the half-shekel?
+When they had come to Capernaum, those who collected the didrachma coins came to Peter, and said, "Doesn't your teacher pay the didrachma?"

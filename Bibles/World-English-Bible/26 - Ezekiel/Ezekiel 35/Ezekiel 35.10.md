@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because thou hast said, These two nations and these two countries shall be mine, and we will possess it; whereas Jehovah was there:
+Because you have said, These two nations and these two countries shall be mine, and we will possess it; whereas Yahweh was there:

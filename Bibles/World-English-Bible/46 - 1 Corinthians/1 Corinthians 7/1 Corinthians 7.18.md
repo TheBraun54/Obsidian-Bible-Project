@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Was any man called being circumcised? Let him not become uncircumcised. Hath any been called in uncircumcision? Let him not be circumcised.
+Was anyone called having been circumcised? Let him not become uncircumcised. Has anyone been called in uncircumcision? Let him not be circumcised.

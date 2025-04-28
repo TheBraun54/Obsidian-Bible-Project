@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And unto this people thou shalt say, Thus saith Jehovah: Behold, I set before you the way of life and the way of death.
+To this people you shall say, Thus says Yahweh: Behold, I set before you the way of life and the way of death.

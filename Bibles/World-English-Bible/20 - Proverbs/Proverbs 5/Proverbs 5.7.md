@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now therefore, [my] sons, hearken unto me, And depart not from the words of my mouth.
+Now therefore, my sons, listen to me. Don't depart from the words of my mouth.

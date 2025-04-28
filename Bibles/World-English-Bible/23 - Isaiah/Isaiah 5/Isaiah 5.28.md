@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whose arrows are sharp, and all their bows bent; their horses' hoofs shall be accounted as flint, and their wheels as a whirlwind:
+whose arrows are sharp, and all their bows bent. Their horses' hoofs will be like flint, and their wheels like a whirlwind.

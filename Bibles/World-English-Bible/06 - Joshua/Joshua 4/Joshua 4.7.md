@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then ye shall say unto them, Because the waters of the Jordan were cut off before the ark of the covenant of Jehovah; when it passed over the Jordan, the waters of the Jordan were cut off: and these stones shall be for a memorial unto the children of Israel for ever.
+then you shall tell them, 'Because the waters of the Jordan were cut off before the ark of the covenant of Yahweh. When it passed over the Jordan, the waters of the Jordan were cut off. These stones shall be for a memorial to the children of Israel forever.'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Jehu was come to Jezreel, Jezebel heard of it; and she painted her eyes, and attired her head, and looked out at the window.
+When Jehu was come to Jezreel, Jezebel heard of it; and she painted her eyes, and attired her head, and looked out at the window.

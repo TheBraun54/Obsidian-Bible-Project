@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the ass saw the angel of Jehovah, and she lay down under Balaam: and Balaam's anger was kindled, and he smote the ass with his staff.
+The donkey saw the angel of Yahweh, and she lay down under Balaam: and Balaam's anger was kindled, and he struck the donkey with his staff.

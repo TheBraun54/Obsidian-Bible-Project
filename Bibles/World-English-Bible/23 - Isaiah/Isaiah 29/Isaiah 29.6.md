@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She shall be visited of Jehovah of hosts with thunder, and with earthquake, and great noise, with whirlwind and tempest, and the flame of a devouring fire.
+She will be visited by Yahweh of Armies with thunder, with earthquake, with great noise, with whirlwind and storm, and with the flame of a devouring fire.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He rained flesh also upon them as the dust, And winged birds as the sand of the seas:
+He rained also flesh on them as the dust; winged birds as the sand of the seas.

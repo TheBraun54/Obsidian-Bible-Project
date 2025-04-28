@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they glorified God in me.
+And they glorified God in me.

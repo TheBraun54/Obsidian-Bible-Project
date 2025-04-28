@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lest ye corrupt yourselves, and make you a graven image in the form of any figure, the likeness of male or female,
+Lest you corrupt yourselves, and make yourself an engraved image in the form of any figure, the likeness of male or female,

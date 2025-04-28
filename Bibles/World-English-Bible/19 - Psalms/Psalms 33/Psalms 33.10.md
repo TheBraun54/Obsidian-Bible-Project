@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah bringeth the counsel of the nations to nought; He maketh the thoughts of the peoples to be of no effect.
+Yahweh brings the counsel of the nations to nothing. He makes the thoughts of the peoples to be of no effect.

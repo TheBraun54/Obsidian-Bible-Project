@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for [so] shall it come upon all them that dwell on the face of all the earth.
+For it will come like a snare on all those who dwell on the surface of all the earth.

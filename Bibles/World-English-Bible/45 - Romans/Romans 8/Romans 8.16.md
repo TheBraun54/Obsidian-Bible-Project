@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Spirit himself beareth witness with our spirit, that we are children of God:
+The Spirit himself testifies with our spirit that we are children of God;

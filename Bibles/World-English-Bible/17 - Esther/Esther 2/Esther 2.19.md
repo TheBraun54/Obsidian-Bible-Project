@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the virgins were gathered together the second time, then Mordecai was sitting in the king's gate.
+When the virgins were gathered together the second time, Mordecai was sitting in the king's gate.

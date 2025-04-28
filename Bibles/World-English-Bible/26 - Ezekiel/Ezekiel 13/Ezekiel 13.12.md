@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lo, when the wall is fallen, shall it not be said unto you, Where is the daubing wherewith ye have daubed it?
+Behold, when the wall has fallen, shall it not be said to you, Where is the plaster with which you have plastered it?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whoso killeth any person, the murderer shall be slain at the mouth of witnesses: but one witness shall not testify against any person that he die.
+"'Whoever kills any person, the murderer shall be slain at the mouth of witnesses: but one witness shall not testify against any person that he die.

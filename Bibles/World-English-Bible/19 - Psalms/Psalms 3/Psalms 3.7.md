@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise, O Jehovah; Save me, O my God: For thou hast smitten all mine enemies upon the cheek bone; Thou hast broken the teeth of the wicked.
+Arise, Yahweh! Save me, my God! For you have struck all of my enemies on the cheek bone. You have broken the teeth of the wicked.

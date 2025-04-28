@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take this book of the law, and put it by the side of the ark of the covenant of Jehovah your God, that it may be there for a witness against thee.
+"Take this book of the law, and put it by the side of the ark of the covenant of Yahweh your God, that it may be there for a witness against you.

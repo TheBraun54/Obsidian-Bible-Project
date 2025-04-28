@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let the proud be put to shame; For they have overthrown me wrongfully: [But] I will meditate on thy precepts.
+Let the proud be disappointed, for they have overthrown me wrongfully. I will meditate on your precepts.

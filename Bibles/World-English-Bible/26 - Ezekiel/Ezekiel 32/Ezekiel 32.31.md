@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pharaoh shall see them, and shall be comforted over all his multitude, even Pharaoh and all his army, slain by the sword, saith the Lord Jehovah.
+Pharaoh shall see them, and shall be comforted over all his multitude, even Pharaoh and all his army, slain by the sword, says the Lord Yahweh.

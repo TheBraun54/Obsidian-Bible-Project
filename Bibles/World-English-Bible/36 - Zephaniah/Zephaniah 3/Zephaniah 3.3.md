@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Her princes in the midst of her are roaring lions; her judges are evening wolves; they leave nothing till the morrow.
+Her princes in the midst of her are roaring lions. Her judges are evening wolves. They leave nothing until the next day.

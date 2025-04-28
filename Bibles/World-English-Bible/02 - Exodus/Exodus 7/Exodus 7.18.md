@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the fish that are in the river shall die, and the river shall become foul; and the Egyptians shall loathe to drink water from the river.
+The fish that are in the river shall die, and the river shall become foul; and the Egyptians shall loathe to drink water from the river."'"

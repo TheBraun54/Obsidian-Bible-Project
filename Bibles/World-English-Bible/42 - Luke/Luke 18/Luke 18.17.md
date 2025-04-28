@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily I say unto you, Whosoever shall not receive the kingdom of God as a little child, he shall in no wise enter therein.
+Most certainly, I tell you, whoever doesn't receive the Kingdom of God like a little child, he will in no way enter into it."

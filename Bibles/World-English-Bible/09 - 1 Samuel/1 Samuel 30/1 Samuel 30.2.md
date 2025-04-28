@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and had taken captive the women [and all] that were therein, both small and great: they slew not any, but carried them off, and went their way.
+and had taken captive the women and all who were therein, both small and great. They didn't kill any, but carried them off, and went their way.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the jailor reported the words to Paul, [saying], The magistrates have sent to let you go: now therefore come forth, and go in peace.
+The jailer reported these words to Paul, saying, "The magistrates have sent to let you go; now therefore come out, and go in peace."

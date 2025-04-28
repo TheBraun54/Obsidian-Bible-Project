@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thou shalt die in peace; and with the burnings of thy fathers, the former kings that were before thee, so shall they make a burning for thee; and they shall lament thee, [saying], Ah Lord! for I have spoken the word, saith Jehovah.
+you shall die in peace; and with the burnings of your fathers, the former kings who were before you, so shall they make a burning for you; and they shall lament you, [saying], Ah Lord! for I have spoken the word, says Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thou didst trust in thy beauty, and playedst the harlot because of thy renown, and pouredst out thy whoredoms on every one that passed by; his it was.
+But you trusted in your beauty, and played the prostitute because of your renown, and poured out your prostitution on everyone who passed by; his it was.

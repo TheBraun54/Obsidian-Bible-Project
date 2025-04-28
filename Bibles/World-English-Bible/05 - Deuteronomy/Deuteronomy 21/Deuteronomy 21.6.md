@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the elders of that city, who are nearest unto the slain man, shall wash their hands over the heifer whose neck was broken in the valley;
+All the elders of that city, who are nearest to the slain man, shall wash their hands over the heifer whose neck was broken in the valley;

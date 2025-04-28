@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham sojourned in the land of the Philistines many days.
+Abraham lived as a foreigner in the land of the Philistines many days.

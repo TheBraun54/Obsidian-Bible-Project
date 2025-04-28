@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All his days also he eateth in darkness, and he is sore vexed, and hath sickness and wrath.
+All his days he also eats in darkness, he is frustrated, and has sickness and wrath.

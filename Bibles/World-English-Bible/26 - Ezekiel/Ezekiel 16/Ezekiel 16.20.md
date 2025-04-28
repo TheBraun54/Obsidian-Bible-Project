@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover thou hast taken thy sons and thy daughters, whom thou hast borne unto me, and these hast thou sacrificed unto them to be devoured. Were thy whoredoms a small matter,
+Moreover you have taken your sons and your daughters, whom you have borne to me, and you have sacrificed these to them to be devoured. Was your prostitution a small matter,

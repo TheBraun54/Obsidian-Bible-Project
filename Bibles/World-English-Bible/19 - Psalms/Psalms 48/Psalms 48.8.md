@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As we have heard, so have we seen In the city of Jehovah of hosts, in the city of our God: God will establish it for ever. {{Selah
+As we have heard, so we have seen, in the city of Yahweh of Armies, in the city of our God. God will establish it forever. Selah.

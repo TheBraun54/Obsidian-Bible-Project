@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that which cometh into your mind shall not be at all, in that ye say, We will be as the nations, as the families of the countries, to serve wood and stone.
+and that which comes into your mind shall not be at all, in that you say, We will be as the nations, as the families of the countries, to serve wood and stone.

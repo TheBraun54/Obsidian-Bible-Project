@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, a people cometh from the north; and a great nation and many kings shall be stirred up from the uttermost parts of the earth.
+Behold, a people comes from the north; and a great nation and many kings shall be stirred up from the uttermost parts of the earth.

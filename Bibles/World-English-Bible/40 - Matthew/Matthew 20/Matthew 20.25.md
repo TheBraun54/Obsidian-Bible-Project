@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus called them unto him, and said, Ye know that the rulers of the Gentiles lord it over them, and their great ones exercise authority over them.
+But Jesus summoned them, and said, "You know that the rulers of the nations lord it over them, and their great ones exercise authority over them.

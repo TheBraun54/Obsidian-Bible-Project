@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because for thy sake I have borne reproach; Shame hath covered my face.
+Because for your sake, I have borne reproach. Shame has covered my face.

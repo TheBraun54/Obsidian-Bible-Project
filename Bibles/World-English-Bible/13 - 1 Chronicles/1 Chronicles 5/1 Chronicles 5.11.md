@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Gad dwelt over against them, in the land of Bashan unto Salecah:
+The sons of Gad lived over against them, in the land of Bashan to Salecah:

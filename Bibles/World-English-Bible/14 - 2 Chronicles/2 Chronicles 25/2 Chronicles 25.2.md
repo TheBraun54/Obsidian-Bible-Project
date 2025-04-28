@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he did that which was right in the eyes of Jehovah, but not with a perfect heart.
+He did that which was right in the eyes of Yahweh, but not with a perfect heart.

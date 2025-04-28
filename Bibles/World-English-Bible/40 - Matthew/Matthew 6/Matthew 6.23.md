@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if thine eye be evil, thy whole body shall be full of darkness. If therefore the light that is in thee be darkness, how great is the darkness!
+But if your eye is evil, your whole body will be full of darkness. If therefore the light that is in you is darkness, how great is the darkness!

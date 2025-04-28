@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And lifting up their eyes, they saw no one, save Jesus only.
+Lifting up their eyes, they saw no one, except Jesus alone.

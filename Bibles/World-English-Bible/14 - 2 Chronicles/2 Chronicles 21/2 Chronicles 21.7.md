@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit Jehovah would not destroy the house of David, because of the covenant that he had made with David, and as he promised to give a lamp to him and to his children alway.
+However Yahweh would not destroy the house of David, because of the covenant that he had made with David, and as he promised to give a lamp to him and to his children always.

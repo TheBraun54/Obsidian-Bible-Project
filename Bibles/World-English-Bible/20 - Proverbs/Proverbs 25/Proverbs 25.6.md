@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Put not thyself forward in the presence of the king, And stand not in the place of great men:
+Don't exalt yourself in the presence of the king, or claim a place among great men;

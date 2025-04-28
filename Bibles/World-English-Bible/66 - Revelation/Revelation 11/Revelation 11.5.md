@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if any man desireth to hurt them, fire proceedeth out of their mouth and devoureth their enemies; and if any man shall desire to hurt them, in this manner must he be killed.
+If anyone desires to harm them, fire proceeds out of their mouth and devours their enemies. If anyone desires to harm them, he must be killed in this way.

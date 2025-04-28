@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beside the gates, at the entry of the city, At the coming in at the doors, she crieth aloud:
+Beside the gates, at the entry of the city, at the entry doors, she cries aloud:

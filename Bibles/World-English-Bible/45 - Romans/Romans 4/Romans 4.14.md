@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if they that are of the law are heirs, faith is made void, and the promise is made of none effect:
+For if those who are of the law are heirs, faith is made void, and the promise is made of no effect.

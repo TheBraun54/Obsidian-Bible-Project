@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let destruction come upon him unawares; And let his net that he hath hid catch himself: With destruction let him fall therein.
+Let destruction come on him unawares. Let his net that he has hidden catch himself. Let him fall into that destruction.

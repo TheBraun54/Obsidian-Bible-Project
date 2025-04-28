@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye see that by works a man is justified, and not only by faith.
+You see then that by works, a man is justified, and not only by faith.

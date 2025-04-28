@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but when this thy son came, who hath devoured thy living with harlots, thou killedst for him the fatted calf.
+But when this, your son, came, who has devoured your living with prostitutes, you killed the fattened calf for him.'

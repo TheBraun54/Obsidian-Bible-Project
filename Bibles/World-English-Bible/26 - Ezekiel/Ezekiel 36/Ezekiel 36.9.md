@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, behold, I am for you, and I will turn unto you, and ye shall be tilled and sown;
+For, behold, I am for you, and I will turn into you, and you shall be tilled and sown;

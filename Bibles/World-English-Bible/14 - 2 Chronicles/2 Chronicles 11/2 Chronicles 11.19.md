@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and she bare him sons: Jeush, and Shemariah, and Zaham.
+and she bore him sons: Jeush, and Shemariah, and Zaham.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He sent darkness, and made it dark; And they rebelled not against his words.
+He sent darkness, and made it dark. They didn't rebel against his words.

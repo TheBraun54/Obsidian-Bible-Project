@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh, Lord, what shall I say, after that Israel hath turned their backs before their enemies!
+Oh, Lord, what shall I say, after that Israel has turned their backs before their enemies!

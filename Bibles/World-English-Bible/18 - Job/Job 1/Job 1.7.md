@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Satan, Whence comest thou? Then Satan answered Jehovah, and said, From going to and fro in the earth, and from walking up and down in it.
+Yahweh said to Satan, "Where have you come from?" Then Satan answered Yahweh, and said, "From going back and forth in the earth, and from walking up and down in it."

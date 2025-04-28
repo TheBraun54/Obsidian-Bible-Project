@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Draw me not away with the wicked, And with the workers of iniquity; That speak peace with their neighbors, But mischief is in their hearts.
+Don't draw me away with the wicked, with the workers of iniquity who speak peace with their neighbors, but mischief is in their hearts.

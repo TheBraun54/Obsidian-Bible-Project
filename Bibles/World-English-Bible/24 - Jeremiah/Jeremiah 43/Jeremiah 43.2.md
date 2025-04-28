@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then spake Azariah the son of Hoshaiah, and Johanan the son of Kareah, and all the proud men, saying unto Jeremiah, Thou speakest falsely: Jehovah our God hath not sent thee to say, Ye shall not go into Egypt to sojourn there;
+then spoke Azariah the son of Hoshaiah, and Johanan the son of Kareah, and all the proud men, saying to Jeremiah, You speak falsely: Yahweh our God has not sent you to say, You shall not go into Egypt to live there;

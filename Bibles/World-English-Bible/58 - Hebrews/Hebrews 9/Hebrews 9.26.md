@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-else must he often have suffered since the foundation of the world: but now once at the end of the ages hath he been manifested to put away sin by the sacrifice of himself.
+or else he must have suffered often since the foundation of the world. But now once at the end of the ages, he has been revealed to put away sin by the sacrifice of himself.

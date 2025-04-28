@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the prince of the eunuchs gave names unto them: unto Daniel he gave [the name of] Belteshazzar; and to Hananiah, [of] Shadrach; and to Mishael, [of] Meshach; and to Azariah, [of] Abed-nego.
+The prince of the eunuchs gave names to them: to Daniel he gave [the name of] Belteshazzar; and to Hananiah, [of] Shadrach; and to Mishael, [of] Meshach; and to Azariah, [of] Abednego.

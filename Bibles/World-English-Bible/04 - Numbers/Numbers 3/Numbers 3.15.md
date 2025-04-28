@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Number the children of Levi by their fathers' houses, by their families: every male from a month old and upward shalt thou number them.
+"Count the children of Levi by their fathers' houses, by their families. You shall count every male from a month old and upward."

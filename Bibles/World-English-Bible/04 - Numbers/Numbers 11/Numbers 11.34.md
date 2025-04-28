@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the name of that place was called Kibroth-hattaavah, because there they buried the people that lusted.
+The name of that place was called Kibroth Hattaavah, because there they buried the people who lusted.

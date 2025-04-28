@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Jorah, a hundred and twelve.
+The children of Jorah, one hundred twelve.

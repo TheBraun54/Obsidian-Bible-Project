@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou at all take thy neighbor's garment to pledge, thou shalt restore it unto him before the sun goeth down:
+If you take your neighbor's garment as collateral, you shall restore it to him before the sun goes down,

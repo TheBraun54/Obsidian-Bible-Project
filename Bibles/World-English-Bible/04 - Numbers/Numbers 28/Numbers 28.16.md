@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the first month, on the fourteenth day of the month, is Jehovah's passover.
+"'In the first month, on the fourteenth day of the month, is Yahweh's Passover.

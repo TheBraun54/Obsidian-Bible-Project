@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the ostrich, and the night-hawk, and the sea-mew, and the hawk after its kind,
+and the ostrich, and the owl, and the seagull, and the hawk after its kind,

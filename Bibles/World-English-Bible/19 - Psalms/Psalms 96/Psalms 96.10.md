@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Say among the nations, Jehovah reigneth: The world also is established that it cannot be moved: He will judge the peoples with equity.
+Say among the nations, "Yahweh reigns." The world is also established. It can't be moved. He will judge the peoples with equity.

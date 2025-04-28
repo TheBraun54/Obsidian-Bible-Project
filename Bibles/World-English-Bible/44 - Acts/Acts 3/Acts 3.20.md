@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that he may send the Christ who hath been appointed for you, [even] Jesus:
+and that he may send Christ Jesus, who was ordained for you before,

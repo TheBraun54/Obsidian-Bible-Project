@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because it is contained in scripture, Behold, I lay in Zion a chief corner stone, elect, precious: And he that believeth on him shall not be put to shame.
+Because it is contained in Scripture, "Behold, I lay in Zion a chief cornerstone, chosen, and precious: He who believes in him will not be disappointed."

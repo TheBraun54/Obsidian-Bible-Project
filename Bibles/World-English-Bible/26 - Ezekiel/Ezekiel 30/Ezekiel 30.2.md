@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, prophesy, and say, Thus saith the Lord Jehovah: Wail ye, Alas for the day!
+Son of man, prophesy, and say, Thus says the Lord Yahweh: Wail, Alas for the day!

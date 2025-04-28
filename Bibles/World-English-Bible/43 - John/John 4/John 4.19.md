@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The woman saith unto him, Sir, I perceive that thou art a prophet.
+The woman said to him, "Sir, I perceive that you are a prophet.

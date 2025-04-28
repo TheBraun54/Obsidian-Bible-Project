@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the commandment is a lamp; And the law is light; And reproofs of instruction are the way of life:
+For the commandment is a lamp, and the law is light. Reproofs of instruction are the way of life,

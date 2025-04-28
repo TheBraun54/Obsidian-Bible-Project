@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God said unto him in the dream, Yea, I know that in the integrity of thy heart thou has done this, and I also withheld thee from sinning against me: therefore suffered I thee not to touch her.
+God said to him in the dream, "Yes, I know that in the integrity of your heart you have done this, and I also withheld you from sinning against me. Therefore I didn't allow you to touch her.

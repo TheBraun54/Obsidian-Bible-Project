@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then will I teach transgressors thy ways; And sinners shall be converted unto thee.
+Then I will teach transgressors your ways. Sinners shall be converted to you.

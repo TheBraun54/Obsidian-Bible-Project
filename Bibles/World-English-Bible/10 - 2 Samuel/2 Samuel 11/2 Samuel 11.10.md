@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had told David, saying, Uriah went not down unto his house, David said unto Uriah, Art thou not come from a journey? wherefore didst thou not go down unto thy house?
+When they had told David, saying, "Uriah didn't go down to his house," David said to Uriah, "Haven't you come from a journey? Why didn't you go down to your house?"

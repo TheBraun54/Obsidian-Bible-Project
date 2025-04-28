@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O God, thou hast taught me from my youth; And hitherto have I declared thy wondrous works.
+God, you have taught me from my youth. Until now, I have declared your wondrous works.

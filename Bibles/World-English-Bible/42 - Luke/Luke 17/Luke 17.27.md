@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They ate, they drank, they married, they were given in marriage, until the day that Noah entered into the ark, and the flood came, and destroyed them all.
+They ate, they drank, they married, they were given in marriage, until the day that Noah entered into the ship, and the flood came, and destroyed them all.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses stretched forth his rod toward heaven: and Jehovah sent thunder and hail, and fire ran down unto the earth; and Jehovah rained hail upon the land of Egypt.
+Moses stretched forth his rod toward the heavens, and Yahweh sent thunder, hail, and lightning flashed down to the earth. Yahweh rained hail on the land of Egypt.

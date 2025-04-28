@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He openeth also their ear to instruction, And commandeth that they return from iniquity.
+He also opens their ears to instruction, and commands that they return from iniquity.

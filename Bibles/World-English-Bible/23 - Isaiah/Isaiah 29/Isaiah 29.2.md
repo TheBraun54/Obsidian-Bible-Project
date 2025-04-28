@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then will I distress Ariel, and there shall be mourning and lamentation; and she shall be unto me as Ariel.
+then I will distress Ariel, and there will be mourning and lamentation. She shall be to me as an altar hearth.

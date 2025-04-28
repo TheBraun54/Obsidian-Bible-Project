@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Turn us again, O Jehovah God of hosts; Cause thy face to shine, and we shall be saved.
+Turn us again, Yahweh God of Armies. Cause your face to shine, and we will be saved. For the Chief Musician. On an instrument of Gath. By Asaph.

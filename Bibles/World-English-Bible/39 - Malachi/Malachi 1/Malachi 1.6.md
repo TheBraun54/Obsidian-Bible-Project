@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A son honoreth his father, and a servant his master: if then I am a father, where is mine honor? and if I am a master, where is my fear? saith Jehovah of hosts unto you, O priests, that despise my name. And ye say, Wherein have we despised thy name?
+"A son honors his father, and a servant his master. If I am a father, then where is my honor? And if I am a master, where is the respect due me? Says Yahweh of Armies to you, priests, who despise my name. You say, 'How have we despised your name?'

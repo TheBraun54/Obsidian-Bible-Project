@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have sworn, and have confirmed it, That I will observe thy righteous ordinances.
+I have sworn, and have confirmed it, that I will obey your righteous ordinances.

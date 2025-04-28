@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses and Aaron went out from Pharaoh: and Moses cried unto Jehovah concerning the frogs which he had brought upon Pharaoh.
+Moses and Aaron went out from Pharaoh, and Moses cried to Yahweh concerning the frogs which he had brought on Pharaoh.

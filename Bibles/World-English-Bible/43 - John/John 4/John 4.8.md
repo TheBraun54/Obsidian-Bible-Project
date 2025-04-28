@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For his disciples were gone away into the city to buy food.
+For his disciples had gone away into the city to buy food.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as for thy bondmen, and thy bondmaids, whom thou shalt have; of the nations that are round about you, of them shall ye buy bondmen and bondmaids.
+"'As for your male and your female slaves, whom you may have; of the nations that are around you, from them you may buy male and female slaves.

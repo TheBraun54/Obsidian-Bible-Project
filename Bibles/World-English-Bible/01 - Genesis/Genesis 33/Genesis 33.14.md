@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let my lord, I pray thee, pass over before his servant: and I will lead on gently, according to the pace of the cattle that are before me and according to the pace of the children, until I come unto my lord unto Seir.
+Please let my lord pass over before his servant, and I will lead on gently, according to the pace of the livestock that are before me and according to the pace of the children, until I come to my lord to Seir."

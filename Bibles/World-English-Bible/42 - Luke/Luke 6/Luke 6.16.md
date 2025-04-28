@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Judas [the son] of James, and Judas Iscariot, who became a traitor;
+Judas the son of James; and Judas Iscariot, who also became a traitor.

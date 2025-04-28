@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the watchman saw another man running; and the watchman called unto the porter, and said, Behold, [another] man running alone. And the king said, He also bringeth tidings.
+The watchman saw another man running; and the watchman called to the porter, and said, "Behold, a man running alone!" The king said, "He also brings news."

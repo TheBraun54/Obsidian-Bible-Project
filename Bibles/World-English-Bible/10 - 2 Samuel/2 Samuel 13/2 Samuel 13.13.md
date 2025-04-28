@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I, whither shall I carry my shame? and as for thee, thou wilt be as one of the fools in Israel. Now therefore, I pray thee, speak unto the king; for he will not withhold me from thee.
+I, where would I carry my shame? And as for you, you will be as one of the fools in Israel. Now therefore, please speak to the king; for he will not withhold me from you."

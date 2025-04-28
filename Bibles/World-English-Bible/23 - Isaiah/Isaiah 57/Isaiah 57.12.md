@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will declare thy righteousness; and as for thy works, they shall not profit thee.
+I will declare your righteousness; and as for your works, they shall not profit you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw the seven angels that stand before God; and there were given unto them seven trumpets.
+I saw the seven angels who stand before God, and seven trumpets were given to them.

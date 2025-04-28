@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah thy God is a devouring fire, a jealous God.
+For Yahweh your God is a devouring fire, a jealous God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not deliver unto his master a servant that is escaped from his master unto thee:
+You shall not deliver to his master a servant who is escaped from his master to you:

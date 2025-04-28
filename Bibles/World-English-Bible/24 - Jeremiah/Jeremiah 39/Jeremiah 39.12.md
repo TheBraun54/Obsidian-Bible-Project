@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take him, and look well to him, and do him no harm; but do unto him even as he shall say unto thee.
+Take him, and look well to him, and do him no harm; but do to him even as he shall tell you.

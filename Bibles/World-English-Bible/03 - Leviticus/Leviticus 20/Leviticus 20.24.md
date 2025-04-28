@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I have said unto you, Ye shall inherit their land, and I will give it unto you to possess it, a land flowing with milk and honey: I am Jehovah your God, who hath separated you from the peoples.
+But I have said to you, "You shall inherit their land, and I will give it to you to possess it, a land flowing with milk and honey." I am Yahweh your God, who has separated you from the peoples.

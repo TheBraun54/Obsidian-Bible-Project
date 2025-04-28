@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Judah looked back, behold, the battle was before and behind them; and they cried unto Jehovah, and the priests sounded with the trumpets.
+When Judah looked back, behold, the battle was before and behind them; and they cried to Yahweh, and the priests sounded with the trumpets.

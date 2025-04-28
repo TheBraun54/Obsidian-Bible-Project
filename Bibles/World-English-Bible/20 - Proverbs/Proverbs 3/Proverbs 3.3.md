@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let not kindness and truth forsake thee: Bind them about thy neck; Write them upon the tablet of thy heart:
+Don't let kindness and truth forsake you. Bind them around your neck. Write them on the tablet of your heart.

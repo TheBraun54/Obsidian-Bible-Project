@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold Israel after the flesh: have not they that eat the sacrifices communion with the altar?
+Consider Israel according to the flesh. Don't those who eat the sacrifices participate in the altar?

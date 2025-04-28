@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the son of an Israelitish woman, whose father was an Egyptian, went out among the children of Israel; and the son of the Israelitish woman and a man of Israel strove together in the camp:
+The son of an Israelite woman, whose father was an Egyptian, went out among the children of Israel; and the son of the Israelite woman and a man of Israel strove together in the camp.

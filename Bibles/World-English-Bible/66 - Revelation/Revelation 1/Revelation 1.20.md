@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the mystery of the seven stars which thou sawest in my right hand, and the seven golden candlesticks. The seven stars are the angels of the seven churches: and the seven candlesticks are seven churches.
+the mystery of the seven stars which you saw in my right hand, and the seven golden lampstands. The seven stars are the angels of the seven assemblies. The seven lampstands are seven assemblies.

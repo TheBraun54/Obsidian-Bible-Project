@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Until the day be cool, and the shadows flee away, I will get me to the mountain of myrrh, And to the hill of frankincense.
+Until the day is cool, and the shadows flee away, I will go to the mountain of myrrh, to the hill of frankincense.

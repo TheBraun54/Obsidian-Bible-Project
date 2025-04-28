@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in whom we have our redemption, the forgiveness of our sins:
+in whom we have our redemption, the forgiveness of our sins;

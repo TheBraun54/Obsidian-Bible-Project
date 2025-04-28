@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore shall the land mourn, and every one that dwelleth therein shall languish, with the beasts of the field and the birds of the heavens; yea, the fishes of the sea also shall be taken away.
+Therefore the land will mourn, and everyone who dwells therein will waste away. all living things in her, even the animals of the field and the birds of the sky; yes, the fish of the sea also die.

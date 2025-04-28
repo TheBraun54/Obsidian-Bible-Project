@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah is righteous: He hath cut asunder the cords of the wicked.
+Yahweh is righteous. He has cut apart the cords of the wicked.

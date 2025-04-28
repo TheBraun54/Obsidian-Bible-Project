@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus speaketh Jehovah of hosts, the God of Israel, saying, I have broken the yoke of the king of Babylon.
+Thus speaks Yahweh of Armies, the God of Israel, saying, I have broken the yoke of the king of Babylon.

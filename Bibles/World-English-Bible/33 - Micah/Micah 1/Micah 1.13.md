@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bind the chariot to the swift steed, O inhabitant of Lachish: she was the beginning of sin to the daughter of Zion; for the transgressions of Israel were found in thee.
+Harness the chariot to the swift steed, inhabitant of Lachish. She was the beginning of sin to the daughter of Zion; For the transgressions of Israel were found in you.

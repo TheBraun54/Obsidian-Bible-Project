@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Hazar-shual, and Beer-sheba, and Biziothiah,
+Hazar Shual, Beersheba, Biziothiah,

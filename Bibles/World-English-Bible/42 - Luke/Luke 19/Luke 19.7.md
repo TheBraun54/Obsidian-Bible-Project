@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they saw it, they all murmured, saying, He is gone in to lodge with a man that is a sinner.
+When they saw it, they all murmured, saying, "He has gone in to lodge with a man who is a sinner."

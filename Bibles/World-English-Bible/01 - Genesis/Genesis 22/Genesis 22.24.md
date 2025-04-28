@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his concubine, whose name was Reumah, she also bare Tebah, and Gaham, and Tahash, and Maacah.
+His concubine, whose name was Reumah, also bore Tebah, Gaham, Tahash, and Maacah.

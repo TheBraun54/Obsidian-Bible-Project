@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I will send a fire upon Teman, and it shall devour the palaces of Bozrah.
+but I will send a fire on Teman, and it will devour the palaces of Bozrah."

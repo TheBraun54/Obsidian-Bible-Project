@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Pharaoh also called for the wise men and the sorcerers: and they also, the magicians of Egypt, did in like manner with their enchantments.
+Then Pharaoh also called for the wise men and the sorcerers. They also, the magicians of Egypt, did the same thing with their enchantments.

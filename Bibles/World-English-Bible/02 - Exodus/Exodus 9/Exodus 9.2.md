@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if thou refuse to let them go, and wilt hold them still,
+For if you refuse to let them go, and hold them still,

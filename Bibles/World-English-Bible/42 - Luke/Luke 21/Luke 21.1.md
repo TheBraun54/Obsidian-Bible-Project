@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he looked up, and saw the rich men that were casting their gifts into the treasury.
+He looked up, and saw the rich people who were putting their gifts into the treasury.

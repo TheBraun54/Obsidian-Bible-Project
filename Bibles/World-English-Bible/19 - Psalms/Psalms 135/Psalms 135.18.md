@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They that make them shall be like unto them; Yea, every one that trusteth in them.
+Those who make them will be like them; yes, everyone who trusts in them.

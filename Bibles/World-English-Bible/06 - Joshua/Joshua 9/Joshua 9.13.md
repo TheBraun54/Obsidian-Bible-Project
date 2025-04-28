@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and these wine-skins, which we filled, were new; and, behold, they are rent: and these our garments and our shoes are become old by reason of the very long journey.
+These wineskins, which we filled, were new; and behold, they are torn. These our garments and our shoes have become old because of the very long journey."

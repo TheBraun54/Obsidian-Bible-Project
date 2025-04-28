@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they were [left], to prove Israel by them, to know whether they would hearken unto the commandments of Jehovah, which he commanded their fathers by Moses.
+They were [left], to prove Israel by them, to know whether they would listen to the commandments of Yahweh, which he commanded their fathers by Moses.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The voice of thy watchmen! they lift up the voice, together do they sing; for they shall see eye to eye, when Jehovah returneth to Zion.
+The voice of your watchmen! they lift up the voice, together do they sing; for they shall see eye to eye, when Yahweh returns to Zion.

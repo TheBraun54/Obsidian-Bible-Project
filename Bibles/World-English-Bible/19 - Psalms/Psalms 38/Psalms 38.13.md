@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I, as a deaf man, hear not; And I am as a dumb man that openeth not his mouth.
+But I, as a deaf man, don't hear. I am as a mute man who doesn't open his mouth.

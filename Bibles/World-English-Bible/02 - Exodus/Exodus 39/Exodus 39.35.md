@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the ark of the testimony, and the staves thereof, and the mercy-seat;
+the ark of the testimony with its poles, the mercy seat,

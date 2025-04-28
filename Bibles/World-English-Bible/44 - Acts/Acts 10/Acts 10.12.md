@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-wherein were all manner of fourfooted beasts and creeping things of the earth and birds of the heaven.
+in which were all kinds of four-footed animals of the earth, wild animals, reptiles, and birds of the sky.

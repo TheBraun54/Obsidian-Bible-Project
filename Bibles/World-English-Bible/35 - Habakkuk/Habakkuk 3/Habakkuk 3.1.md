@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A prayer of Habakkuk the prophet, set to Shigionoth.
+A prayer of Habakkuk, the prophet, set to victorious music.

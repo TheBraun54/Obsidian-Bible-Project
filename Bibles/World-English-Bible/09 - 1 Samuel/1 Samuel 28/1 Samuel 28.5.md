@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Saul saw the host of the Philistines, he was afraid, and his heart trembled greatly.
+When Saul saw the army of the Philistines, he was afraid, and his heart trembled greatly.

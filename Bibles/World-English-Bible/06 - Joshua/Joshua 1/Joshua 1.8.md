@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This book of the law shall not depart out of thy mouth, but thou shalt meditate thereon day and night, that thou mayest observe to do according to all that is written therein: for then thou shalt make thy way prosperous, and then thou shalt have good success.
+This book of the law shall not depart out of your mouth, but you shall meditate on it day and night, that you may observe to do according to all that is written therein: for then you shall make your way prosperous, and then you shall have good success.

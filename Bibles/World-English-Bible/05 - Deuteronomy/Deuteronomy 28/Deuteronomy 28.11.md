@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah will make thee plenteous for good, in the fruit of thy body, and in the fruit of thy cattle, and in the fruit of thy ground, in the land which Jehovah sware unto thy fathers to give thee.
+Yahweh will make you plenteous for good, in the fruit of your body, and in the fruit of your livestock, and in the fruit of your ground, in the land which Yahweh swore to your fathers to give you.

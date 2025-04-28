@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Two men went up into the temple to pray; the one a Pharisee, and the other a publican.
+"Two men went up into the temple to pray; one was a Pharisee, and the other was a tax collector.

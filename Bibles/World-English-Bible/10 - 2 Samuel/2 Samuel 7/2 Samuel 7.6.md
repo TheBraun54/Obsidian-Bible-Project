@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for I have not dwelt in a house since the day that I brought up the children of Israel out of Egypt, even to this day, but have walked in a tent and in a tabernacle.
+For I have not lived in a house since the day that I brought up the children of Israel out of Egypt, even to this day, but have moved around in a tent and in a tabernacle.

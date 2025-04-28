@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even so ye also, when ye see these things coming to pass, know ye that the kingdom of God is nigh.
+Even so you also, when you see these things happening, know that the Kingdom of God is near.

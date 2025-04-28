@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the son of Shammai was Maon; and Maon was the father of Beth-zur.
+The son of Shammai was Maon; and Maon was the father of Beth Zur.

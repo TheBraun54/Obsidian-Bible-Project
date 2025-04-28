@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and that ye be renewed in the spirit of your mind,
+and that you be renewed in the spirit of your mind,

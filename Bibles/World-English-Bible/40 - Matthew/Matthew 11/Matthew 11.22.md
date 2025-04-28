@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I say unto you, it shall be more tolerable for Tyre and Sidon in the day of judgment than for you.
+But I tell you, it will be more tolerable for Tyre and Sidon on the day of judgment than for you.

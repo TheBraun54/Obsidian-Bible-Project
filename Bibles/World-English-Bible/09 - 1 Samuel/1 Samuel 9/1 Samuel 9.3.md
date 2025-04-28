@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the asses of Kish, Saul's father, were lost. And Kish said to Saul his son, Take now one of the servants with thee, and arise, go seek the asses.
+The donkeys of Kish, Saul's father, were lost. Kish said to Saul his son, "Take now one of the servants with you, and arise, go seek the donkeys."

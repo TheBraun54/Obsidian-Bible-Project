@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(Ommitted)
+If anyone has ears to hear, let him hear!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these words appeared in their sight as idle talk; and they disbelieved them.
+These words seemed to them to be nonsense, and they didn't believe them.

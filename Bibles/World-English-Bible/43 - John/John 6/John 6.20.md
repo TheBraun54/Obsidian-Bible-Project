@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he saith unto them, It is I; be not afraid.
+But he said to them, "It is I. Don't be afraid."

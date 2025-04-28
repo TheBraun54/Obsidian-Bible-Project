@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-in all the signs and the wonders, which Jehovah sent him to do in the land of Egypt, to Pharaoh, and to all his servants, and to all his land,
+in all the signs and the wonders, which Yahweh sent him to do in the land of Egypt, to Pharaoh, and to all his servants, and to all his land,

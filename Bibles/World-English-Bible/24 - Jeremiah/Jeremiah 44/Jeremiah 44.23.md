@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Because ye have burned incense, and because ye have sinned against Jehovah, and have not obeyed the voice of Jehovah, nor walked in his law, nor in his statutes, nor in his testimonies; therefore this evil is happened unto you, as it is this day.
+Because you have burned incense, and because you have sinned against Yahweh, and have not obeyed the voice of Yahweh, nor walked in his law, nor in his statutes, nor in his testimonies; therefore this evil has happened to you, as it is this day.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A heart that deviseth wicked purposes, Feet that are swift in running to mischief,
+a heart that devises wicked schemes, feet that are swift in running to mischief,

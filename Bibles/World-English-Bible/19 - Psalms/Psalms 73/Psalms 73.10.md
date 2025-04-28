@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore his people return hither: And waters of a full [cup] are drained by them.
+Therefore their people return to them, and they drink up waters of abundance.

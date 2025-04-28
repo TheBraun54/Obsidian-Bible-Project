@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These words spake he in the treasury, as he taught in the temple: and no man took him; because his hour was not yet come.
+Jesus spoke these words in the treasury, as he taught in the temple. Yet no one arrested him, because his hour had not yet come.

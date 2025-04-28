@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I call God for a witness upon my soul, that to spare you I forbare to come unto Corinth.
+But I call God for a witness to my soul, that I didn't come to Corinth to spare you.

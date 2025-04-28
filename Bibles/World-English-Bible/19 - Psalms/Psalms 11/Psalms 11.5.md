@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah trieth the righteous; But the wicked and him that loveth violence his soul hateth.
+Yahweh examines the righteous, but the wicked and him who loves violence his soul hates.

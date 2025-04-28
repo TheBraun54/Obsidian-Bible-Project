@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall come, and shall rest all of them in the desolate valleys, and in the clefts of the rocks, and upon all thorn-hedges, and upon all pastures.
+They shall come, and shall all rest in the desolate valleys, in the clefts of the rocks, on all thorn hedges, and on all pastures.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the people were waiting for Zacharias, and they marvelled while he tarried in the temple.
+The people were waiting for Zacharias, and they marveled that he delayed in the temple.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they put the fat upon the breasts, and he burnt the fat upon the altar:
+and they put the fat upon the breasts, and he burned the fat on the altar:

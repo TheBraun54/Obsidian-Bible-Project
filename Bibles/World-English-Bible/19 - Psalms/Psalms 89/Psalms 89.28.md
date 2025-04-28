@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My lovingkindness will I keep for him for evermore; And my covenant shall stand fast with him.
+I will keep my loving kindness for him forevermore. My covenant will stand firm with him.

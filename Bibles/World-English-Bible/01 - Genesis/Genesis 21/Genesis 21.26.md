@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abimelech said, I know not who hath done this thing: neither didst thou tell me, neither yet heard I of it, but to-day.
+Abimelech said, "I don't know who has done this thing. Neither did you tell me, neither did I hear of it, until today."

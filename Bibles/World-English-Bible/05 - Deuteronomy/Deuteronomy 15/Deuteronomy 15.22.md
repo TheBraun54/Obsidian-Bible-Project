@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt eat it within thy gates: the unclean and the clean [shall eat it] alike, as the gazelle, and as the hart.
+You shall eat it within your gates: the unclean and the clean [shall eat it] alike, as the gazelle, and as the hart.

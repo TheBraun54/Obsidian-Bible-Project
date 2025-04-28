@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then all Israel gathered themselves to David unto Hebron, saying, Behold, we are thy bone and thy flesh.
+Then all Israel gathered themselves to David to Hebron, saying, "Behold, we are your bone and your flesh.

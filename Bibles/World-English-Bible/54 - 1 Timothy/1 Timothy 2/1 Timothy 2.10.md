@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but (which becometh women professing godliness) through good works.
+but (which becomes women professing godliness) with good works.

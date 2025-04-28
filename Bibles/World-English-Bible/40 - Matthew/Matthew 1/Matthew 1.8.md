@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Asa begat Jehoshaphat; and Jehoshaphat begat Joram; and Joram begat Uzziah;
+Asa became the father of Jehoshaphat. Jehoshaphat became the father of Joram. Joram became the father of Uzziah.

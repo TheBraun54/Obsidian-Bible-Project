@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel encamped in Gilgal; and they kept the passover on the fourteenth day of the month at even in the plains of Jericho.
+The children of Israel encamped in Gilgal. They kept the Passover on the fourteenth day of the month at evening in the plains of Jericho.

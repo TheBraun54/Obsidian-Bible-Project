@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for in him we live, and move, and have our being; as certain even of your own poets have said, For we are also his offspring.
+'For in him we live, and move, and have our being.' As some of your own poets have said, 'For we are also his offspring.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they gathered them up, and filled twelve baskets with broken pieces from the five barley loaves, which remained over unto them that had eaten.
+So they gathered them up, and filled twelve baskets with broken pieces from the five barley loaves, which were left over by those who had eaten.

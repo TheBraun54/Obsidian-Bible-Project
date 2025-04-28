@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy raiment waxed not old upon thee, neither did thy foot swell, these forty years.
+Your clothing didn't grow old on you, neither did your foot swell, these forty years.

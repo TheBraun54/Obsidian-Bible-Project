@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the wicked shall be cut off from the land, And the treacherous shall be rooted out of it.
+But the wicked will be cut off from the land. The treacherous will be rooted out of it.

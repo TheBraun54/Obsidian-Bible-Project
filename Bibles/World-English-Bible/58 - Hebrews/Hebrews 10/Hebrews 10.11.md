@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And every priest indeed standeth day by day ministering and offering oftentimes the same sacrifices, the which can never take away sins:
+Every priest indeed stands day by day serving and often offering the same sacrifices, which can never take away sins,

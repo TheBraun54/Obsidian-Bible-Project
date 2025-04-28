@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Rejoice, O young man, in thy youth, and let thy heart cheer thee in the days of thy youth, and walk in the ways of thy heart, and in the sight of thine eyes; but know thou, that for all these things God will bring thee into judgment.
+Rejoice, young man, in your youth, and let your heart cheer you in the days of your youth, and walk in the ways of your heart, and in the sight of your eyes; but know that for all these things God will bring you into judgment.

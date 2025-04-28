@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on the third day, when they were sore, that two of the sons of Jacob, Simeon and Levi, Dinah's brethren, took each man his sword, and came upon the city unawares, and slew all the males.
+It happened on the third day, when they were sore, that two of Jacob's sons, Simeon and Levi, Dinah's brothers, each took his sword, came upon the unsuspecting city, and killed all the males.

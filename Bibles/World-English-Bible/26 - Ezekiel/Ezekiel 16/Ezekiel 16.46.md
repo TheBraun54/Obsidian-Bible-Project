@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thine elder sister is Samaria, that dwelleth at thy left hand, she and her daughters; and thy younger sister, that dwelleth at thy right hand, is Sodom and her daughters.
+Your elder sister is Samaria, who dwells at your left hand, she and her daughters; and your younger sister, who dwells at your right hand, is Sodom and her daughters.

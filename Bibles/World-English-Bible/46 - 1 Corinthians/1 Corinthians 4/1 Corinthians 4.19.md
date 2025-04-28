@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I will come to you shortly, if the Lord will; and I will know, not the word of them that are puffed up, but the power.
+But I will come to you shortly, if the Lord is willing. And I will know, not the word of those who are puffed up, but the power.

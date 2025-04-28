@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-their roaring shall be like a lioness, they shall roar like young lions; yea, they shall roar, and lay hold of the prey, and carry it away safe, and there shall be none to deliver.
+Their roaring will be like a lioness. They will roar like young lions. Yes, they shall roar, and seize their prey and carry it off, and there will be no one to deliver.

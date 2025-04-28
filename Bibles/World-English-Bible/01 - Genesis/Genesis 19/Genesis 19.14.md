@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Lot went out, and spake unto his sons-in-law, who married his daughters, and said, Up, get you out of this place; for Jehovah will destroy the city. But he seemed unto his sons-in-law as one that mocked.
+Lot went out, and spoke to his sons-in-law, who were pledged to marry his daughters, and said, "Get up! Get out of this place, for Yahweh will destroy the city." But he seemed to his sons-in-law to be joking.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-as Moses the servant of Jehovah commanded the children of Israel, as it is written in the book of the law of Moses, an altar of unhewn stones, upon which no man had lifted up any iron: and they offered thereon burnt-offerings unto Jehovah, and sacrificed peace-offerings.
+as Moses the servant of Yahweh commanded the children of Israel, as it is written in the book of the law of Moses, an altar of uncut stones, on which no man had lifted up any iron. They offered burnt offerings on it to Yahweh, and sacrificed peace offerings.

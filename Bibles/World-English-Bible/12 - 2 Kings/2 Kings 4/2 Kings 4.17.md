@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the woman conceived, and bare a son at that season, when the time came round, as Elisha had said unto her.
+The woman conceived, and bore a son at that season, when the time came around, as Elisha had said to her.

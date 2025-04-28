@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Through the wrath of Jehovah of hosts is the land burnt up; and the people are as the fuel of fire: no man spareth his brother.
+Through the wrath of Yahweh of Armies, the land is burnt up; and the people are the fuel for the fire. No one spares his brother.

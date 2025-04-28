@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For, behold, Jehovah will come with fire, and his chariots shall be like the whirlwind; to render his anger with fierceness, and his rebuke with flames of fire.
+For, behold, Yahweh will come with fire, and his chariots shall be like the whirlwind; to render his anger with fierceness, and his rebuke with flames of fire.

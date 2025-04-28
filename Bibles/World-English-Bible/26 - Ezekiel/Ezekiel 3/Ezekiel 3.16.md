@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass at the end of seven days, that the word of Jehovah came unto me, saying,
+It happened at the end of seven days, that the word of Yahweh came to me, saying,

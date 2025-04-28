@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that loveth pleasure shall be a poor man: He that loveth wine and oil shall not be rich.
+He who loves pleasure shall be a poor man. He who loves wine and oil shall not be rich.

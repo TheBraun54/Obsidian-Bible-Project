@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for he had healed many; insomuch that as many as had plagues pressed upon him that they might touch him.
+For he had healed many, so that as many as had diseases pressed on him that they might touch him.

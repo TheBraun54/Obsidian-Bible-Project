@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then saith Jesus unto them, Fear not: go tell my brethren that they depart into Galilee, and there shall they see me.
+Then Jesus said to them, "Don't be afraid. Go tell my brothers that they should go into Galilee, and there they will see me."

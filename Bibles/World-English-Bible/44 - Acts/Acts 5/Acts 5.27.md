@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they had brought them, they set them before the council. And the high priest asked them,
+When they had brought them, they set them before the council. The high priest questioned them,

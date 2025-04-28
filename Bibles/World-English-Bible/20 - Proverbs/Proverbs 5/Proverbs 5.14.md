@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I was well-nigh in all evil In the midst of the assembly and congregation.
+I have come to the brink of utter ruin, in the midst of the gathered assembly."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I say again, let no man think me foolish; but if [ye do], yet as foolish receive me, that I also may glory a little.
+I say again, let no one think me foolish. But if so, yet receive me as foolish, that I also may boast a little.

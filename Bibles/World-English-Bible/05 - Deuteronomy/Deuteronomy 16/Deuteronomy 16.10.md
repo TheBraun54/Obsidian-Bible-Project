@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt keep the feast of weeks unto Jehovah thy God with a tribute of a freewill-offering of thy hand, which thou shalt give, according as Jehovah thy God blesseth thee:
+You shall keep the feast of weeks to Yahweh your God with a tribute of a freewill offering of your hand, which you shall give, according as Yahweh your God blesses you:

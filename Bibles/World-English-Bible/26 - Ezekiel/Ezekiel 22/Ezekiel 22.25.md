@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is a conspiracy of her prophets in the midst thereof, like a roaring lion ravening the prey: they have devoured souls; they take treasure and precious things; they have made her widows many in the midst thereof.
+There is a conspiracy of her prophets in its midst, like a roaring lion ravening the prey: they have devoured souls; they take treasure and precious things; they have made her widows many in its midst.

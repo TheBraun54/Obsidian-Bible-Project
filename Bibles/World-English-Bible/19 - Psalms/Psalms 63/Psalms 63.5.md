@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My soul shall be satisfied as with marrow and fatness; And my mouth shall praise thee with joyful lips;
+My soul shall be satisfied as with the richest food. My mouth shall praise you with joyful lips,

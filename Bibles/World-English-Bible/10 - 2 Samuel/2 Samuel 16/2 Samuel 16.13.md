@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So David and his men went by the way; and Shimei went along on the hill-side over against him, and cursed as he went, and threw stones at him, and cast dust.
+So David and his men went by the way; and Shimei went along on the hillside opposite him, and cursed as he went, threw stones at him, and threw dust.

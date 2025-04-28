@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then spake Jesus to the multitudes and to his disciples,
+Then Jesus spoke to the multitudes and to his disciples,

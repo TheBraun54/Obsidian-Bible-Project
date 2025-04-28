@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For every matter of trespass, whether it be for ox, for ass, for sheep, for raiment, [or] for any manner of lost thing, whereof one saith, This is it, the cause of both parties shall come before God; he whom God shall condemn shall pay double unto his neighbor.
+For every matter of trespass, whether it be for ox, for donkey, for sheep, for clothing, or for any kind of lost thing, about which one says, 'This is mine,' the cause of both parties shall come before God. He whom God condemns shall pay double to his neighbor.

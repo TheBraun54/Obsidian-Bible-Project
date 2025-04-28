@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the day of thy planting thou hedgest it in, and in the morning thou makest thy seed to blossom; but the harvest fleeth away in the day of grief and of desperate sorrow.
+In the day of your planting, you hedge it in. In the morning, you make your seed blossom, but the harvest flees away in the day of grief and of desperate sorrow.

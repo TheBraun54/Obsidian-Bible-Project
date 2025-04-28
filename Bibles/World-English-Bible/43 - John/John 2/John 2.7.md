@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus saith unto them, Fill the waterpots with water. And they filled them up to the brim.
+Jesus said to them, "Fill the water pots with water." They filled them up to the brim.

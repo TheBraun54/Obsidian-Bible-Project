@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have yet many things to say unto you, but ye cannot bear them now.
+"I have yet many things to tell you, but you can't bear them now.

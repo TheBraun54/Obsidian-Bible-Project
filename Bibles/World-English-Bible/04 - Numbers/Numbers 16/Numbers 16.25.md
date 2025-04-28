@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses rose up and went unto Dathan and Abiram; and the elders of Israel followed him.
+Moses rose up and went to Dathan and Abiram; and the elders of Israel followed him.

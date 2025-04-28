@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore my heart was glad, and my tongue rejoiced; Moreover my flesh also shall dwell in hope:
+Therefore my heart was glad, and my tongue rejoiced. Moreover my flesh also will dwell in hope;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moses and Aaron among his priests, And Samuel among them that call upon his name; They called upon Jehovah, and he answered them.
+Moses and Aaron were among his priests, Samuel among those who call on his name; they called on Yahweh, and he answered them.

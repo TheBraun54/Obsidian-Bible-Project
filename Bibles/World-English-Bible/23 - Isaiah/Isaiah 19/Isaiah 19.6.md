@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the rivers shall become foul; the streams of Egypt shall be diminished and dried up; the reeds and flags shall wither away.
+The rivers will become foul. The streams of Egypt will be diminished and dried up. The reeds and flags will wither away.

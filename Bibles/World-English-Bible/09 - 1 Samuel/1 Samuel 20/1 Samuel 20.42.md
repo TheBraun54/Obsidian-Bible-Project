@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jonathan said to David, Go in peace, forasmuch as we have sworn both of us in the name of Jehovah, saying, Jehovah shall be between me and thee, and between my seed and thy seed, for ever. And he arose and departed: and Jonathan went into the city.
+Jonathan said to David, "Go in peace, because we have both sworn in the name of Yahweh, saying, 'Yahweh shall be between me and you, and between my seed and your seed, forever.'" He arose and departed; and Jonathan went into the city.

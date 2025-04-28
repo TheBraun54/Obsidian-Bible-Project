@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah will render to every man his righteousness and his faithfulness; forasmuch as Jehovah delivered thee into my hand to-day, and I would not put forth my hand against Jehovah's anointed.
+Yahweh will render to every man his righteousness and his faithfulness; because Yahweh delivered you into my hand today, and I wouldn't put forth my hand against Yahweh's anointed.

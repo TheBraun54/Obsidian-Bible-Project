@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed be he that cometh in the name of Jehovah: We have blessed you out of the house of Jehovah.
+Blessed is he who comes in the name of Yahweh! We have blessed you out of the house of Yahweh.

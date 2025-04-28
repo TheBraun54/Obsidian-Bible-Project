@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But thus shall ye deal with them: ye shall break down their altars, and dash in pieces their pillars, and hew down their Asherim, and burn their graven images with fire.
+But you shall deal with them like this: you shall break down their altars, and dash their pillars in pieces, and cut down their Asherim, and burn their engraved images with fire.

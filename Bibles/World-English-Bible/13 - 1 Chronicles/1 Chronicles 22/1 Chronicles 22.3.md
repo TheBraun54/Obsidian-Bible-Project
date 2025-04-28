@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David prepared iron in abundance for the nails for the doors of the gates, and for the couplings; and brass in abundance without weight;
+David prepared iron in abundance for the nails for the doors of the gates, and for the couplings; and brass in abundance without weight;

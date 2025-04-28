@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They remember not his hand, Nor the day when he redeemed them from the adversary;
+They didn't remember his hand, nor the day when he redeemed them from the adversary;

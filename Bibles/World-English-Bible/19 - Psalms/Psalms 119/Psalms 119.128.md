@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore I esteem all [thy] precepts concerning all [things] to be right; [And] I hate every false way.
+Therefore I consider all of your precepts to be right. I hate every false way. PEY

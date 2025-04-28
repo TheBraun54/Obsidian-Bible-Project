@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ananias hearing these words fell down and gave up the ghost: and great fear came upon all that heard it.
+Ananias, hearing these words, fell down and died. Great fear came on all who heard these things.

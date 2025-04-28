@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall bring out of your habitations two wave-loaves of two tenth parts [of an ephah] : they shall be of fine flour, they shall be baken with leaven, for first-fruits unto Jehovah.
+You shall bring out of your habitations two loaves of bread for a wave offering made of two tenth parts of an ephah of fine flour. They shall be baked with yeast, for first fruits to Yahweh.

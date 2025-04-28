@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that thine eyes may be open unto the supplication of thy servant, and unto the supplication of thy people Israel, to hearken unto them whensoever they cry unto thee.
+that your eyes may be open to the supplication of your servant, and to the supplication of your people Israel, to listen to them whenever they cry to you.

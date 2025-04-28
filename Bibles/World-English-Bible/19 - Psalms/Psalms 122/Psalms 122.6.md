@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Pray for the peace of Jerusalem: They shall prosper that love thee.
+Pray for the peace of Jerusalem. Those who love you will prosper.

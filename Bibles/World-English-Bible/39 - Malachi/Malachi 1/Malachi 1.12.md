@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye profane it, in that ye say, The table of Jehovah is polluted, and the fruit thereof, even its food, is contemptible.
+"But you profane it, in that you say, 'Yahweh's table is polluted, and its fruit, even its food, is contemptible.'

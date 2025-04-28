@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Lord at thy right hand Will strike through kings in the day of his wrath.
+The Lord is at your right hand. He will crush kings in the day of his wrath.

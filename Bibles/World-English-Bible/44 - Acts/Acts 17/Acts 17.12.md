@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Many of them therefore believed; also of the Greek women of honorable estate, and of men, not a few.
+Many of them therefore believed; also of the prominent Greek women, and not a few men.

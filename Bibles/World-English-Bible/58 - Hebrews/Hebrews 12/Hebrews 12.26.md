@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whose voice then shook the earth: but now he hath promised, saying, Yet once more will I make to tremble not the earth only, but also the heaven.
+whose voice shook the earth then, but now he has promised, saying, "Yet once more I will shake not only the earth, but also the heavens."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and bring these ten cheeses unto the captain of their thousand, and look how thy brethren fare, and take their pledge.
+and bring these ten cheeses to the captain of their thousand, and see how your brothers are doing, and bring back news."

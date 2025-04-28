@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They answered and said unto him, Our father is Abraham. Jesus saith unto them, If ye were Abraham's children, ye would do the works of Abraham.
+They answered him, "Our father is Abraham." Jesus said to them, "If you were Abraham's children, you would do the works of Abraham.

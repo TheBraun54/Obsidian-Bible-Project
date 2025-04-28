@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went every one straight forward: whither the spirit was to go, they went; they turned not when they went.
+Each one went straight forward: where the spirit was to go, they went; they didn't turn when they went.

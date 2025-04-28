@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jeshurun waxed fat, and kicked: Thou art waxed fat, thou art grown thick, thou art become sleek; Then he forsook God who made him, And lightly esteemed the Rock of his salvation.
+But Jeshurun grew fat, and kicked. You have grown fat. You have grown thick. You have become sleek. Then he forsook God who made him, and lightly esteemed the Rock of his salvation.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who can number the clouds by wisdom? Or who can pour out the bottles of heaven,
+Who can number the clouds by wisdom? Or who can pour out the bottles of the sky,

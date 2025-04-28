@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Kenan lived after he begat Mahalalel eight hundred and forty years, and begat sons and daughters:
+Kenan lived after he became the father of Mahalalel eight hundred forty years, and became the father of sons and daughters

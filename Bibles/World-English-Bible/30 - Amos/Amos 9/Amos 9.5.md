@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the Lord, Jehovah of hosts, [is] he that toucheth the land and it melteth, and all that dwell therein shall mourn; and it shall rise up wholly like the River, and shall sink again, like the River of Egypt;
+For the Lord, Yahweh of Armies, is he who touches the land and it melts, and all who dwell in it will mourn; and it will rise up wholly like the River, and will sink again, like the River of Egypt.

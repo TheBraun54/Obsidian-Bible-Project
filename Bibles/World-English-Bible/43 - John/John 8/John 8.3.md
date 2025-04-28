@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the scribes and the Pharisees bring a woman taken in adultery; and having set her in the midst,
+The scribes and the Pharisees brought a woman taken in adultery. Having set her in the midst,

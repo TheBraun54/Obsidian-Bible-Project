@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the ass said unto Balaam, Am not I thine ass, upon which thou hast ridden all thy life long unto this day? was I ever wont to do so unto thee? and he said, Nay.
+The donkey said to Balaam, "Am I not your donkey, on which you have ridden all your life long to this day? Was I ever in the habit of doing so to you?" He said, "No."

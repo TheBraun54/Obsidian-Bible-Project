@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As I live, saith Jehovah, though Coniah the son of Jehoiakim king of Judah were the signet upon my right hand, yet would I pluck thee thence;
+As I live, says Yahweh, though Coniah the son of Jehoiakim king of Judah were the signet on my right hand, yet would I pluck you there;

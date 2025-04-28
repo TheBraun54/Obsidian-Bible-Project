@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah thy God will make thee plenteous in all the work of thy hand, in the fruit of thy body, and in the fruit of thy cattle, and in the fruit of thy ground, for good: for Jehovah will again rejoice over thee for good, as he rejoiced over thy fathers;
+Yahweh your God will make you plenteous in all the work of your hand, in the fruit of your body, and in the fruit of your livestock, and in the fruit of your ground, for good: for Yahweh will again rejoice over you for good, as he rejoiced over your fathers;

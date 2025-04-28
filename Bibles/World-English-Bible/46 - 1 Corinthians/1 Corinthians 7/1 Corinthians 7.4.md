@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The wife hath not power over her own body, but the husband: and likewise also the husband hath not power over his own body, but the wife.
+The wife doesn't have authority over her own body, but the husband. Likewise also the husband doesn't have authority over his own body, but the wife.

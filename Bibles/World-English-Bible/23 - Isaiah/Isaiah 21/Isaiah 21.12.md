@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The watchman said, The morning cometh, and also the night: if ye will inquire, inquire ye: turn ye, come.
+The watchman said, "The morning comes, and also the night. If you will inquire, inquire. Come back again."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto his lad, Run, find now the arrows which I shoot. And as the lad ran, he shot an arrow beyond him.
+He said to his boy, "Run, find now the arrows which I shoot." As the boy ran, he shot an arrow beyond him.

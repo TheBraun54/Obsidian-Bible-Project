@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And [there will be] goats' milk enough for thy food, for the food of thy household, And maintenance for thy maidens.
+There will be plenty of goats' milk for your food, for your family's food, and for the nourishment of your servant girls.

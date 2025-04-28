@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall be my people, and I will be your God.
+You shall be my people, and I will be your God.

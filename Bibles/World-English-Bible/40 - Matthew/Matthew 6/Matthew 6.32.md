@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For after all these things do the Gentiles seek; for your heavenly Father knoweth that ye have need of all these things.
+For the Gentiles seek after all these things; for your heavenly Father knows that you need all these things.

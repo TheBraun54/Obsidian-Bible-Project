@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are the numbers of the heads of them that were armed for war, who came to David to Hebron, to turn the kingdom of Saul to him, according to the word of Jehovah.
+These are the numbers of the heads of those who were armed for war, who came to David to Hebron, to turn the kingdom of Saul to him, according to the word of Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said he unto me, Son of man, lift up thine eyes now the way toward the north. So I lifted up mine eyes the way toward the north, and behold, northward of the gate of the altar this image of jealousy in the entry.
+Then he said to me, Son of man, lift up your eyes now the way toward the north. So I lifted up my eyes the way toward the north, and see, northward of the gate of the altar this image of jealousy in the entry.

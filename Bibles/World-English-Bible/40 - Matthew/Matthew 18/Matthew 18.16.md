@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if he hear [thee] not, take with thee one or two more, that at the mouth of two witnesses or three every word may be established.
+But if he doesn't listen, take one or two more with you, that at the mouth of two or three witnesses every word may be established.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-he that hath not given forth upon interest, neither hath taken any increase, that hath withdrawn his hand from iniquity, hath executed true justice between man and man,
+he who has not given forth on interest, neither has taken any increase, who has withdrawn his hand from iniquity, has executed true justice between man and man,

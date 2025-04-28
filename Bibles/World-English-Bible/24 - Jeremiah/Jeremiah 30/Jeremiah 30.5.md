@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah: We have heard a voice of trembling, of fear, and not of peace.
+For thus says Yahweh: We have heard a voice of trembling, of fear, and not of peace.

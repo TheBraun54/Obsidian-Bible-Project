@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I have graven thee upon the palms of my hands; thy walls are continually before me.
+Behold, I have engraved you on the palms of my hands; your walls are continually before me.

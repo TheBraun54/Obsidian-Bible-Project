@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the king said to the wise men, who knew the times, (for so was the king's manner toward all that knew law and judgment;
+Then the king said to the wise men, who knew the times, (for it was the king's custom to consult those who knew law and judgment;

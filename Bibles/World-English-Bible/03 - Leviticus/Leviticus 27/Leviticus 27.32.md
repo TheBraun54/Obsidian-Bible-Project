@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the tithe of the herd or the flock, whatsoever passeth under the rod, the tenth shall be holy unto Jehovah.
+All the tithe of the herds or the flocks, whatever passes under the rod, the tenth shall be holy to Yahweh.

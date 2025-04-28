@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Chesed, and Hazo, and Pildash, and Jidlaph, and Bethuel.
+Chesed, Hazo, Pildash, Jidlaph, and Bethuel."

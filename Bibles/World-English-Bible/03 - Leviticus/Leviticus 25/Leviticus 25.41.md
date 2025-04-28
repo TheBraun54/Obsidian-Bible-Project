@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then shall he go out from thee, he and his children with him, and shall return unto his own family, and unto the possession of his fathers shall he return.
+then he shall go out from you, he and his children with him, and shall return to his own family, and to the possession of his fathers.

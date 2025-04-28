@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them be put to shame and confounded together that rejoice at my hurt: Let them be clothed with shame and dishonor that magnify themselves against me.
+Let them be disappointed and confounded together who rejoice at my calamity. Let them be clothed with shame and dishonor who magnify themselves against me.

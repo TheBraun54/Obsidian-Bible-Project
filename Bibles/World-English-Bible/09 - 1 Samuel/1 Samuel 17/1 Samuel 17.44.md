@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Philistine said to David, Come to me, and I will give thy flesh unto the birds of the heavens, and to the beasts of the field.
+The Philistine said to David, "Come to me, and I will give your flesh to the birds of the sky, and to the animals of the field."

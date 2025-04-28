@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then they cry unto Jehovah in their trouble, And he bringeth them out of their distresses.
+Then they cry to Yahweh in their trouble, and he brings them out of their distress.

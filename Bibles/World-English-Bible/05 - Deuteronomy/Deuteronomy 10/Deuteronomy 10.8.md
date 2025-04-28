@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At that time Jehovah set apart the tribe of Levi, to bear the ark of the covenant of Jehovah, to stand before Jehovah to minister unto him, and to bless in his name, unto this day.
+At that time Yahweh set apart the tribe of Levi, to bear the ark of the covenant of Yahweh, to stand before Yahweh to minister to him, and to bless in his name, to this day.

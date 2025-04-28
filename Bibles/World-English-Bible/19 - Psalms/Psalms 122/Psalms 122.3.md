@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jerusalem, that art builded As a city that is compact together;
+Jerusalem, that is built as a city that is compact together;

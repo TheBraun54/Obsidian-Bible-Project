@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt speak all that I command thee; and Aaron thy brother shall speak unto Pharaoh, that he let the children of Israel go out of his land.
+You shall speak all that I command you; and Aaron your brother shall speak to Pharaoh, that he let the children of Israel go out of his land.

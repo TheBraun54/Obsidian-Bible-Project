@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And also Maacah his mother he removed from being queen, because she had made an abominable image for an Asherah; and Asa cut down her image, and burnt it at the brook Kidron.
+Also Maacah his mother he removed from being queen, because she had made an abominable image for an Asherah; and Asa cut down her image, and burnt it at the brook Kidron.

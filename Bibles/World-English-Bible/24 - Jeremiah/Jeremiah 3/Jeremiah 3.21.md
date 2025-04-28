@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A voice is heard upon the bare heights, the weeping [and] the supplications of the children of Israel; because they have perverted their way, they have forgotten Jehovah their God.
+A voice is heard on the bare heights, the weeping [and] the petitions of the children of Israel; because they have perverted their way, they have forgotten Yahweh their God.

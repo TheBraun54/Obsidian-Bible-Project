@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah reigneth; Let the earth rejoice; Let the multitude of isles be glad.
+Yahweh reigns! Let the earth rejoice! Let the multitude of islands be glad!

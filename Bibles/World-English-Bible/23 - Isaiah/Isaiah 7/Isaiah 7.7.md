@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thus saith the Lord Jehovah, It shall not stand, neither shall it come to pass.
+This is what the Lord Yahweh says: "It shall not stand, neither shall it happen."

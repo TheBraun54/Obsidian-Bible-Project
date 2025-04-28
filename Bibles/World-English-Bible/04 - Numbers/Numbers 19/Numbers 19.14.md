@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is the law when a man dieth in a tent: every one that cometh into the tent, and every one that is in the tent, shall be unclean seven days.
+"This is the law when a man dies in a tent: everyone who comes into the tent, and everyone who is in the tent, shall be unclean seven days.

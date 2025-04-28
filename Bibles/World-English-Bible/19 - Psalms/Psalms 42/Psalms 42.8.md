@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Yet] Jehovah will command his lovingkindness in the day-time; And in the night his song shall be with me, [Even] a prayer unto the God of my life.
+Yahweh will command his loving kindness in the daytime. In the night his song shall be with me: a prayer to the God of my life.

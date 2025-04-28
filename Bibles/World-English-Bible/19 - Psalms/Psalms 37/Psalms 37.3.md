@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Trust in Jehovah, and do good; Dwell in the land, and feed on [his] faithfulness.
+Trust in Yahweh, and do good. Dwell in the land, and enjoy safe pasture.

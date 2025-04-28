@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou hast hid their heart from understanding: Therefore shalt thou not exalt [them] .
+For you have hidden their heart from understanding, Therefore you shall not exalt them.

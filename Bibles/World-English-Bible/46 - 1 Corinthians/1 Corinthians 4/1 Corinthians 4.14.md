@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I write not these things to shame you, but to admonish you as my beloved children.
+I don't write these things to shame you, but to admonish you as my beloved children.

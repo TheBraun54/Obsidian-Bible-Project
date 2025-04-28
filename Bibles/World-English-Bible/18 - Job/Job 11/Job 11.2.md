@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Should not the multitude of words be answered? And should a man full of talk be justified?
+"Shouldn't the multitude of words be answered? Should a man full of talk be justified?

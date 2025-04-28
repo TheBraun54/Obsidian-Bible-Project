@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though [his] hatred cover itself with guile, His wickedness shall be openly showed before the assembly.
+His malice may be concealed by deception, but his wickedness will be exposed in the assembly.

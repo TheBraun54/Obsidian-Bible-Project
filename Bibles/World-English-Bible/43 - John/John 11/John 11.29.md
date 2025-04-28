@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And she, when she heard it, arose quickly, and went unto him.
+When she heard this, she arose quickly, and went to him.

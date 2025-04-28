@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in that day shall the deaf hear the words of the book, and the eyes of the blind shall see out of obscurity and out of darkness.
+In that day, the deaf will hear the words of the book, and the eyes of the blind will see out of obscurity and out of darkness.

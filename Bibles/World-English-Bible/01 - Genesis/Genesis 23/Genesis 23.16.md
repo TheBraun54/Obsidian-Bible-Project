@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham hearkened unto Ephron; and Abraham weighed to Ephron the silver which he had named in the audience of the children of Heth, four hundred shekels of silver, current [money] with the merchant.
+Abraham listened to Ephron. Abraham weighed to Ephron the silver which he had named in the audience of the children of Heth, four hundred shekels of silver, according to the current merchants' standard.

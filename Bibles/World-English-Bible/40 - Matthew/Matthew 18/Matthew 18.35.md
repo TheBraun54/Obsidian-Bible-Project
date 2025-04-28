@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So shall also my heavenly Father do unto you, if ye forgive not every one his brother from your hearts.
+So my heavenly Father will also do to you, if you don't each forgive your brother from your hearts for his misdeeds."

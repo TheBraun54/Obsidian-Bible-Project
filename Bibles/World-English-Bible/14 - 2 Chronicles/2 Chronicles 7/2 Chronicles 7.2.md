@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priests could not enter into the house of Jehovah, because the glory of Jehovah filled Jehovah's house.
+The priests could not enter into the house of Yahweh, because the glory of Yahweh filled Yahweh's house.

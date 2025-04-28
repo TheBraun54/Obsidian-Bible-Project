@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every man praying or prophesying, having his head covered, dishonoreth his head.
+Every man praying or prophesying, having his head covered, dishonors his head.

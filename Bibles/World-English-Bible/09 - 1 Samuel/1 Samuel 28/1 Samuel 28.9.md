@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the woman said unto him, Behold, thou knowest what Saul hath done, how he hath cut off those that have familiar spirits, and the wizards, out of the land: wherefore then layest thou a snare for my life, to cause me to die?
+The woman said to him, "Behold, you know what Saul has done, how he has cut off those who have familiar spirits, and the wizards, out of the land. Why then do you lay a snare for my life, to cause me to die?"

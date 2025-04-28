@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then came the word of Jehovah to Isaiah, saying,
+Then the word of Yahweh came to Isaiah, saying,

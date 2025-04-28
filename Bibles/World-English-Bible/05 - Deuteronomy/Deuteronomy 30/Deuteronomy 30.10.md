@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if thou shalt obey the voice of Jehovah thy God, to keep his commandments and his statutes which are written in this book of the law; if thou turn unto Jehovah thy God with all thy heart, and with all thy soul.
+if you shall obey the voice of Yahweh your God, to keep his commandments and his statutes which are written in this book of the law; if you turn to Yahweh your God with all your heart, and with all your soul.

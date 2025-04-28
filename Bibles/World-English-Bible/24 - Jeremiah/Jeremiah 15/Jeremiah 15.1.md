@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said Jehovah unto me, Though Moses and Samuel stood before me, yet my mind would not be toward this people: cast them out of my sight, and let them go forth.
+Then Yahweh said to me, Though Moses and Samuel stood before me, yet my mind would not be toward this people: cast them out of my sight, and let them go forth.

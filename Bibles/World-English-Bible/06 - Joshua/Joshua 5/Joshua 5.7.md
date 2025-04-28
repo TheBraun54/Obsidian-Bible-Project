@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their children, whom he raised up in their stead, them did Joshua circumcise: for they were uncircumcised, because they had not circumcised them by the way.
+Their children, whom he raised up in their place, were circumcised by Joshua; for they were uncircumcised, because they had not circumcised them on the way.

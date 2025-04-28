@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after my skin, [even] this [body], is destroyed, Then without my flesh shall I see God;
+After my skin is destroyed, then in my flesh shall I see God,

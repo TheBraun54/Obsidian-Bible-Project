@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not commit adultery.
+"You shall not commit adultery.

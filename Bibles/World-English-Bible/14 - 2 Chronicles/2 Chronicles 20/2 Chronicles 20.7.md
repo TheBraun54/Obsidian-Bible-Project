@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Didst not thou, O our God, drive out the inhabitants of this land before thy people Israel, and give it to the seed of Abraham thy friend for ever?
+Didn't you, our God, drive out the inhabitants of this land before your people Israel, and give it to the seed of Abraham your friend forever?

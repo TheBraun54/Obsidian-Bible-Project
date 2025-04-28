@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto me, Son of man, eat that which thou findest; eat this roll, and go, speak unto the house of Israel.
+He said to me, Son of man, eat that which you find. Eat this scroll, and go, speak to the house of Israel.

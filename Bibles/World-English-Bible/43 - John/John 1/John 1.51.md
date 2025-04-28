@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he saith unto him, Verily, verily, I say unto you, Ye shall see the heaven opened, and the angels of God ascending and descending upon the Son of man.
+He said to him, "Most certainly, I tell you, hereafter you will see heaven opened, and the angels of God ascending and descending on the Son of Man."

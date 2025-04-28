@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ahimaaz called, and said unto the king, All is well. And he bowed himself before the king with his face to the earth, and said, Blessed be Jehovah thy God, who hath delivered up the men that lifted up their hand against my lord the king.
+Ahimaaz called, and said to the king, "All is well." He bowed himself before the king with his face to the earth, and said, "Blessed is Yahweh your God, who has delivered up the men who lifted up their hand against my lord the king!"

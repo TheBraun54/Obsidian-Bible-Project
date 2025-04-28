@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the children of Judah drew nigh unto Joshua in Gilgal: and Caleb the son of Jephunneh the Kenizzite said unto him, Thou knowest the thing that Jehovah spake unto Moses the man of God concerning me and concerning thee in Kadesh-barnea.
+Then the children of Judah drew near to Joshua in Gilgal. Caleb the son of Jephunneh the Kenizzite said to him, "You know the thing that Yahweh spoke to Moses the man of God concerning me and concerning you in Kadesh Barnea.

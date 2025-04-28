@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let me sing for my wellbeloved a song of my beloved touching his vineyard. My wellbeloved had a vineyard in a very fruitful hill:
+Let me sing for my well beloved a song of my beloved about his vineyard. My beloved had a vineyard on a very fruitful hill.

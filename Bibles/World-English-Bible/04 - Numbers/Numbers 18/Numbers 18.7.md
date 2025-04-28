@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou and thy sons with thee shall keep your priesthood for everything of the altar, and for that within the veil; and ye shall serve: I give you the priesthood as a service of gift: and the stranger that cometh nigh shall be put to death.
+You and your sons with you shall keep your priesthood for everything of the altar, and for that within the veil; and you shall serve: I give you the priesthood as a service of gift: and the stranger who comes near shall be put to death."

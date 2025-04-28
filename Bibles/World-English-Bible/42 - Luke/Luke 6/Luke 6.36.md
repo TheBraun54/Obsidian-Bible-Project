@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be ye merciful, even as your Father is merciful.
+Therefore be merciful, even as your Father is also merciful.

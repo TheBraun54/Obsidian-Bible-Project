@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She bare also Shaaph the father of Madmannah, Sheva the father of Machbena, and the father of Gibea; and the daughter of Caleb was Achsah.
+She bore also Shaaph the father of Madmannah, Sheva the father of Machbena, and the father of Gibea; and the daughter of Caleb was Achsah.

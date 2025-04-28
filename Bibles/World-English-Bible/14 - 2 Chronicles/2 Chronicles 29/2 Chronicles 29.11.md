@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My sons, be not now negligent; for Jehovah hath chosen you to stand before him, to minister unto him, and that ye should be his ministers, and burn incense.
+My sons, don't be negligent now; for Yahweh has chosen you to stand before him, to minister to him, and that you should be his ministers, and burn incense."

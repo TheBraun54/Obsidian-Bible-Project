@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover the Spirit lifted me up, and brought me unto the east gate of Jehovah's house, which looketh eastward: and behold, at the door of the gate five and twenty men; and I saw in the midst of them Jaazaniah the son of Azzur, and Pelatiah the son of Benaiah, princes of the people.
+Moreover the Spirit lifted me up, and brought me to the east gate of Yahweh's house, which looks eastward: and see, at the door of the gate twenty-five men; and I saw in the midst of them Jaazaniah the son of Azzur, and Pelatiah the son of Benaiah, princes of the people.

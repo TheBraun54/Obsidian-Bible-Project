@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the backsliding of the simple shall slay them, And the careless ease of fools shall destroy them.
+For the backsliding of the simple will kill them. The careless ease of fools will destroy them.

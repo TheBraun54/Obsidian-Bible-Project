@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Suffer not thy mouth to cause thy flesh to sin; neither say thou before the angel, that it was an error: wherefore should God be angry at thy voice, and destroy the work of thy hands?
+Don't allow your mouth to lead you into sin. Don't protest before the messenger that this was a mistake. Why should God be angry at your voice, and destroy the work of your hands?

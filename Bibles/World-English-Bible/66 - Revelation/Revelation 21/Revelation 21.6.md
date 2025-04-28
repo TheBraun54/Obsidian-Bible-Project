@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto me, They are come to pass. I am the Alpha and the Omega, the beginning and the end. I will give unto him that is athirst of the fountain of the water of life freely.
+He said to me, "It is done! I am the Alpha and the Omega, the Beginning and the End. I will give freely to him who is thirsty from the spring of the water of life.

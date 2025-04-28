@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Out of the mouth of babes and sucklings hast thou established strength, Because of thine adversaries, That thou mightest still the enemy and the avenger.
+From the lips of babes and infants you have established strength, because of your adversaries, that you might silence the enemy and the avenger.

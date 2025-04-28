@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Egypt riseth up like the Nile, and his waters toss themselves like the rivers: and he saith, I will rise up, I will cover the earth; I will destroy cities and the inhabitants thereof.
+Egypt rises up like the Nile, and his waters toss themselves like the rivers: and he says, I will rise up, I will cover the earth; I will destroy cities and its inhabitants.

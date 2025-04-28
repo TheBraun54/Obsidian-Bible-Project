@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will give thanks unto Jehovah according to his righteousness, And will sing praise to the name of Jehovah Most High.
+I will give thanks to Yahweh according to his righteousness, and will sing praise to the name of Yahweh Most High. For the Chief Musician; on an instrument of Gath. A Psalm by David.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and upon every lofty tower, and upon every fortified wall,
+For every lofty tower, for every fortified wall,

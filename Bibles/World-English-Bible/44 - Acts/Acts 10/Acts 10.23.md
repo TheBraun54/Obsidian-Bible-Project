@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So he called them in and lodged them. And on the morrow he arose and went forth with them, and certain of the brethren from Joppa accompanied him.
+So he called them in and lodged them. On the next day Peter arose and went out with them, and some of the brothers from Joppa accompanied him.

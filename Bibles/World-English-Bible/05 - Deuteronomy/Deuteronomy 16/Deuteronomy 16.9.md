@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seven weeks shalt thou number unto thee: from the time thou beginnest to put the sickle to the standing grain shalt thou begin to number seven weeks.
+You shall count for yourselves seven weeks: from the time you begin to put the sickle to the standing grain you shall begin to number seven weeks.

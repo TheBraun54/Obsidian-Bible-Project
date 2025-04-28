@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So I fed the flock of slaughter, verily the poor of the flock. And I took unto me two staves; the one I called Beauty, and the other I called Bands; and I fed the flock.
+So I fed the flock of slaughter, especially the oppressed of the flock. I took for myself two staffs. The one I called "Favor," and the other I called "Union," and I fed the flock.

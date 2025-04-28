@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-or have found that which was lost, and deal falsely therein, and swear to a lie; in any of all these things that a man doeth, sinning therein;
+or has found that which was lost, and dealt falsely therein, and swearing to a lie; in any of all these things that a man does, sinning therein;

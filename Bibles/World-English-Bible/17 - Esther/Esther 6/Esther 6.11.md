@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then took Haman the apparel and the horse, and arrayed Mordecai, and caused him to ride through the street of the city, and proclaimed before him, Thus shall it be done unto the man whom the king delighteth to honor.
+Then Haman took the clothing and the horse, and arrayed Mordecai, and had him ride through the city square, and proclaimed before him, "Thus shall it be done to the man whom the king delights to honor!"

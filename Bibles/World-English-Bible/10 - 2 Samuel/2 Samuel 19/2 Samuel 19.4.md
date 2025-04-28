@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king covered his face, and the king cried with a loud voice, O my son Absalom, O Absalom, my son, my son!
+The king covered his face, and the king cried with a loud voice, "My son Absalom, Absalom, my son, my son!"

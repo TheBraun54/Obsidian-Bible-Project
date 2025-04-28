@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or how canst thou say to thy brother, Brother, let me cast out the mote that is in thine eye, when thou thyself beholdest not the beam that is in thine own eye? Thou hypocrite, cast out first the beam out of thine own eye, and then shalt thou see clearly to cast out the mote that is in thy brother's eye.
+Or how can you tell your brother, 'Brother, let me remove the speck of chaff that is in your eye,' when you yourself don't see the beam that is in your own eye? You hypocrite! First remove the beam from your own eye, and then you can see clearly to remove the speck of chaff that is in your brother's eye.

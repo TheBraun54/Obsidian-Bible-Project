@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah shall be known to Egypt, and the Egyptians shall know Jehovah in that day; yea, they shall worship with sacrifice and oblation, and shall vow a vow unto Jehovah, and shall perform it.
+Yahweh will be known to Egypt, and the Egyptians will know Yahweh in that day. Yes, they will worship with sacrifice and offering, and will vow a vow to Yahweh, and will perform it.

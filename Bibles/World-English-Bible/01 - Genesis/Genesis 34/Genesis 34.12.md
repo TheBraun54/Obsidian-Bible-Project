@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ask me never so much dowry and gift, and I will give according as ye shall say unto me: but give me the damsel to wife.
+Ask me a great amount for a dowry, and I will give whatever you ask of me, but give me the young lady as a wife."

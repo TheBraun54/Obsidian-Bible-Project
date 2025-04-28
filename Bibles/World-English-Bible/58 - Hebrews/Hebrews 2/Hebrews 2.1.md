@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore we ought to give the more earnest heed to the things that were heard, lest haply we drift away [from them] .
+Therefore we ought to pay greater attention to the things that were heard, lest perhaps we drift away.

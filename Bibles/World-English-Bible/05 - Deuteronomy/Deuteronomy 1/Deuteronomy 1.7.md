@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-turn you, and take your journey, and go to the hill-country of the Amorites, and unto all [the places] nigh thereunto, in the Arabah, in the hill-country, and in the lowland, and in the South, and by the sea-shore, the land of the Canaanites, and Lebanon, as far as the great river, the river Euphrates.
+turn, and take your journey, and go to the hill country of the Amorites, and to all [the places] near there, in the Arabah, in the hill country, and in the lowland, and in the South, and by the seashore, the land of the Canaanites, and Lebanon, as far as the great river, the river Euphrates.

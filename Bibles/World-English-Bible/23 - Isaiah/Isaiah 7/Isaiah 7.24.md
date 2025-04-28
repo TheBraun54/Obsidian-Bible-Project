@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-With arrows and with bow shall one come thither, because all the land shall be briers and thorns.
+People will go there with arrows and with bow, because all the land will be briers and thorns.

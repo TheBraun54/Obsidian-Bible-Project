@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the house of the righteous is much treasure; But in the revenues of the wicked is trouble.
+In the house of the righteous is much treasure, but the income of the wicked brings trouble.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-their wings were joined one to another; they turned not when they went; they went every one straight forward.
+their wings were joined one to another; they didn't turn when they went; each one went straight forward.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sorrows of a travailing woman shall come upon him: he is an unwise son; for it is time he should not tarry in the place of the breaking forth of children.
+The sorrows of a travailing woman will come on him. He is an unwise son; for when it is time, he doesn't come to the opening of the womb.

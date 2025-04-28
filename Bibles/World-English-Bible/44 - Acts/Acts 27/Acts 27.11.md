@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the centurion gave more heed to the master and to the owner of the ship, than to those things which were spoken by Paul.
+But the centurion gave more heed to the master and to the owner of the ship than to those things which were spoken by Paul.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it shall be that, as wandering birds, as a scattered nest, so shall the daughters of Moab be at the fords of the Arnon.
+For it will be that as wandering birds, as a scattered nest, so will the daughters of Moab be at the fords of the Arnon.

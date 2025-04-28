@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But far be it from me to glory, save in the cross of our Lord Jesus Christ, through which the world hath been crucified unto me, and I unto the world.
+But far be it from me to boast, except in the cross of our Lord Jesus Christ, through which the world has been crucified to me, and I to the world.

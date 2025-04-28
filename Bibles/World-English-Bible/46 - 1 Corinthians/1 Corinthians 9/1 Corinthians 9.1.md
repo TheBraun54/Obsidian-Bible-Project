@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Am I not free? Am I not an apostle? Have I not seen Jesus our Lord? Are not ye my work in the Lord?
+Am I not free? Am I not an apostle? Haven't I seen Jesus Christ, our Lord? Aren't you my work in the Lord?

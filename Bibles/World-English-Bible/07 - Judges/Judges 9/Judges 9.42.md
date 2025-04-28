@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass on the morrow, that the people went out into the field; and they told Abimelech.
+It happened on the next day, that the people went out into the field; and they told Abimelech.

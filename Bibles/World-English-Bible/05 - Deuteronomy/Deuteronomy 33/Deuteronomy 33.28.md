@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Israel dwelleth in safety, The fountain of Jacob alone, In a land of grain and new wine; Yea, his heavens drop down dew.
+Israel dwells in safety; the fountain of Jacob alone, In a land of grain and new wine. Yes, his heavens drop down dew.

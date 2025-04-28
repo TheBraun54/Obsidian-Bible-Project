@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, when thou shalt show this people all these words, and they shall say unto thee, Wherefore hath Jehovah pronounced all this great evil against us? or what is our iniquity? or what is our sin that we have committed against Jehovah our God?
+It shall happen, when you shall show this people all these words, and they shall tell you, Why has Yahweh pronounced all this great evil against us? or what is our iniquity? or what is our sin that we have committed against Yahweh our God?

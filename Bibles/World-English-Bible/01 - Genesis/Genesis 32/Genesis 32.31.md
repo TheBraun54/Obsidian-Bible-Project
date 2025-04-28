@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sun rose upon him as he passed over Penuel, and he limped upon his thigh.
+The sun rose on him as he passed over Peniel, and he limped because of his thigh.

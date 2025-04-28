@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, that from one new moon to another, and from one sabbath to another, shall all flesh come to worship before me, saith Jehovah.
+It shall happen, that from one new moon to another, and from one Sabbath to another, shall all flesh come to worship before me," says Yahweh.

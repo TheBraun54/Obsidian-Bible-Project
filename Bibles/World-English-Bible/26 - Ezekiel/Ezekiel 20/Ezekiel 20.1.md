@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass in the seventh year, in the fifth [month], the tenth [day] of the month, that certain of the elders of Israel came to inquire of Jehovah, and sat before me.
+It happened in the seventh year, in the fifth [month], the tenth [day] of the month, that certain of the elders of Israel came to inquire of Yahweh, and sat before me.

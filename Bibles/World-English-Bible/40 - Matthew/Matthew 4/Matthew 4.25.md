@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there followed him great multitudes from Galilee and Decapolis and Jerusalem and Judaea and [from] beyond the Jordan.
+Great multitudes from Galilee, Decapolis, Jerusalem, Judea and from beyond the Jordan followed him.

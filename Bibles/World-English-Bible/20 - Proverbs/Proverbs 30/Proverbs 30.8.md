@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remove far from me falsehood and lies; Give me neither poverty nor riches; Feed me with the food that is needful for me:
+Remove far from me falsehood and lies. Give me neither poverty nor riches. Feed me with the food that is needful for me;

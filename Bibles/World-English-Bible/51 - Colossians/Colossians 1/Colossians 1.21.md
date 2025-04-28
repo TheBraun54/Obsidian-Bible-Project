@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And you, being in time past alienated and enemies in your mind in your evil works,
+You, being in past times alienated and enemies in your mind in your evil works,

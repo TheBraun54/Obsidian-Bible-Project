@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I know, and am persuaded in the Lord Jesus, that nothing is unclean of itself: save that to him who accounteth anything to be unclean, to him it is unclean.
+I know, and am persuaded in the Lord Jesus, that nothing is unclean of itself; except that to him who considers anything to be unclean, to him it is unclean.

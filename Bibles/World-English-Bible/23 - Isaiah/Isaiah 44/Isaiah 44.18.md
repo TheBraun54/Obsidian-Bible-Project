@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They know not, neither do they consider: for he hath shut their eyes, that they cannot see; and their hearts, that they cannot understand.
+They don't know, neither do they consider: for he has shut their eyes, that they can't see; and their hearts, that they can't understand.

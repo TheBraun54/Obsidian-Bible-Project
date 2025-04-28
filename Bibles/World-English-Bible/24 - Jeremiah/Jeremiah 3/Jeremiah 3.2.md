@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lift up thine eyes unto the bare heights, and see; where hast thou not been lain with? By the ways hast thou sat for them, as an Arabian in the wilderness; and thou hast polluted the land with thy whoredoms and with thy wickedness.
+"Lift up your eyes to the bare heights, and see! Where have you not been lain with? You have sat for them by the ways, as an Arabian in the wilderness. You have polluted the land with your prostitution and with your wickedness.

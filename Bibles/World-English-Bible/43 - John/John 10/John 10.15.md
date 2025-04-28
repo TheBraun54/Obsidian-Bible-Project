@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even as the Father knoweth me, and I know the Father; and I lay down my life for the sheep.
+even as the Father knows me, and I know the Father. I lay down my life for the sheep.

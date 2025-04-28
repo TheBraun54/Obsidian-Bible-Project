@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if the latter husband hate her, and write her a bill of divorcement, and give it in her hand, and send her out of his house; or if the latter husband die, who took her to be his wife;
+If the latter husband hate her, and write her a bill of divorce, and give it in her hand, and send her out of his house; or if the latter husband die, who took her to be his wife;

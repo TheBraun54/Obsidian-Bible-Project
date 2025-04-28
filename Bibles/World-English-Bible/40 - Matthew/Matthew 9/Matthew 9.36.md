@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when he saw the multitudes, he was moved with compassion for them, because they were distressed and scattered, as sheep not having a shepherd.
+But when he saw the multitudes, he was moved with compassion for them, because they were harassed and scattered, like sheep without a shepherd.

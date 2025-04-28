@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his rock shall pass away by reason of terror, and his princes shall be dismayed at the ensign, saith Jehovah, whose fire is in Zion, and his furnace in Jerusalem.
+His rock will pass away by reason of terror, and his princes will be afraid of the banner," says Yahweh, whose fire is in Zion, and his furnace in Jerusalem.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When Jacob was come into Egypt, and your fathers cried unto Jehovah, then Jehovah sent Moses and Aaron, who brought forth your fathers out of Egypt, and made them to dwell in this place.
+"When Jacob was come into Egypt, and your fathers cried to Yahweh, then Yahweh sent Moses and Aaron, who brought forth your fathers out of Egypt, and made them to dwell in this place.

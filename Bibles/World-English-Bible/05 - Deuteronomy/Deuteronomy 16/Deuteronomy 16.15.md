@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seven days shalt thou keep a feast unto Jehovah thy God in the place which Jehovah shall choose; because Jehovah thy God will bless thee in all thine increase, and in all the work of thy hands, and thou shalt be altogether joyful.
+You shall keep a feast to Yahweh your God seven days in the place which Yahweh shall choose; because Yahweh your God will bless you in all your increase, and in all the work of your hands, and you shall be altogether joyful.

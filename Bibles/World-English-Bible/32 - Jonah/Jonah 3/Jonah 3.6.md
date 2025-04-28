@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the tidings reached the king of Nineveh, and he arose from his throne, and laid his robe from him, and covered him with sackcloth, and sat in ashes.
+The news reached the king of Nineveh, and he arose from his throne, and took off his royal robe, covered himself with sackcloth, and sat in ashes.

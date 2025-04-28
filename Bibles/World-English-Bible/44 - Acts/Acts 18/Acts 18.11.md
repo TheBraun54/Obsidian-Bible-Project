@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he dwelt [there] a year and six months, teaching the word of God among them.
+He lived there a year and six months, teaching the word of God among them.

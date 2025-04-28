@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the works of the flesh are manifest, which are [these] : fornication, uncleanness, lasciviousness,
+Now the works of the flesh are obvious, which are: adultery, sexual immorality, uncleanness, lustfulness,

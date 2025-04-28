@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast broken down all his hedges; Thou hast brought his strongholds to ruin.
+You have broken down all his hedges. You have brought his strongholds to ruin.

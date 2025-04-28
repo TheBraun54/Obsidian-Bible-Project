@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But we would not have you ignorant, brethren, concerning them that fall asleep; that ye sorrow not, even as the rest, who have no hope.
+But we don't want you to be ignorant, brothers, concerning those who have fallen asleep, so that you don't grieve like the rest, who have no hope.

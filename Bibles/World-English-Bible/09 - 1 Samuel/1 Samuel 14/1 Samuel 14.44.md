@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul said, God do so and more also; for thou shalt surely die, Jonathan.
+Saul said, "God do so and more also; for you shall surely die, Jonathan."

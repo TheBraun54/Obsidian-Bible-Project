@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What time they wax warm, they vanish; When it is hot, they are consumed out of their place.
+In the dry season, they vanish. When it is hot, they are consumed out of their place.

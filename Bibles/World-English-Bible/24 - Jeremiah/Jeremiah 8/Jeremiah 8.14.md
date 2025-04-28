@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why do we sit still? assemble yourselves, and let us enter into the fortified cities, and let us be silent there; for Jehovah our God hath put us to silence, and given us water of gall to drink, because we have sinned against Jehovah.
+Why do we sit still? Assemble yourselves, and let us enter into the fortified cities, and let us be silent there; for Yahweh our God has put us to silence, and given us water of gall to drink, because we have sinned against Yahweh.

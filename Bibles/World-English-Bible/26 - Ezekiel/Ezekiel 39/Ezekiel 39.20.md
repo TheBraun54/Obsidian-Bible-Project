@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall be filled at my table with horses and chariots, with mighty men, and with all men of war, saith the Lord Jehovah.
+You shall be filled at my table with horses and chariots, with mighty men, and with all men of war, says the Lord Yahweh.

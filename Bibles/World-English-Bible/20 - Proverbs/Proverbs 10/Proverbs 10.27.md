@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The fear of Jehovah prolongeth days; But the years of the wicked shall be shortened.
+The fear of Yahweh prolongs days, but the years of the wicked shall be shortened.

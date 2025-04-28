@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God said unto Abraham, And as for thee, thou shalt keep my covenant, thou, and thy seed after thee throughout their generations.
+God said to Abraham, "As for you, you will keep my covenant, you and your seed after you throughout their generations.

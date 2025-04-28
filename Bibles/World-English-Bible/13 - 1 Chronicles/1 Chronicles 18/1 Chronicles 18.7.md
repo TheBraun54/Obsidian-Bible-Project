@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David took the shields of gold that were on the servants of Hadarezer, and brought them to Jerusalem.
+David took the shields of gold that were on the servants of Hadadezer, and brought them to Jerusalem.

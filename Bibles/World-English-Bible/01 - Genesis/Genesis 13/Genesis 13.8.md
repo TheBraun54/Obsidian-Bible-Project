@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abram said unto Lot, Let there be no strife, I pray thee, between me and thee, and between my herdsmen and thy herdsmen; for we are brethren.
+Abram said to Lot, "Please, let there be no strife between me and you, and between my herdsmen and your herdsmen; for we are relatives.

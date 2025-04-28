@@ -3,7 +3,7 @@ import csv
 from collections import defaultdict
 
 # === CONFIG ===
-csv_path = "./data/asv.csv"
+csv_path = "./data/web.csv"
 csv_path = os.path.join(os.path.dirname(__file__), '..', csv_path)
 csv_path = os.path.abspath(csv_path)
 

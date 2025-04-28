@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Arise thou therefore, get thee to thy house: [and] when thy feet enter into the city, the child shall die.
+Arise therefore, and go to your house. When your feet enter into the city, the child shall die.

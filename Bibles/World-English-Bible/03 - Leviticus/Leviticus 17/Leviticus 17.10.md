@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whatsoever man there be of the house of Israel, or of the strangers that sojourn among them, that eateth any manner of blood, I will set my face against that soul that eateth blood, and will cut him off from among his people.
+"'Any man of the house of Israel, or of the strangers who live as foreigners among them, who eats any kind of blood, I will set my face against that soul who eats blood, and will cut him off from among his people.

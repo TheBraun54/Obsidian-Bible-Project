@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy commandments make me wiser than mine enemies; For they are ever with me.
+Your commandments make me wiser than my enemies, for your commandments are always with me.

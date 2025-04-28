@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore the Lord himself will give you a sign: behold, a virgin shall conceive, and bear a son, and shall call his name Immanuel.
+Therefore the Lord himself will give you a sign. Behold, the virgin will conceive, and bear a son, and shall call his name Immanuel.

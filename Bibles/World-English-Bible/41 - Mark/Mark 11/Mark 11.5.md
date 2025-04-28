@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And certain of them that stood there said unto them, What do ye, loosing the colt?
+Some of those who stood there asked them, "What are you doing, untying the young donkey?"

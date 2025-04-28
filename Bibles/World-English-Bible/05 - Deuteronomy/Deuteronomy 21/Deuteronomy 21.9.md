@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So shalt thou put away the innocent blood from the midst of thee, when thou shalt do that which is right in the eyes of Jehovah.
+So you shall put away the innocent blood from the midst of you, when you shall do that which is right in the eyes of Yahweh.

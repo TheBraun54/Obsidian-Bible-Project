@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The foolishness of man subverteth his way; And his heart fretteth against Jehovah.
+The foolishness of man subverts his way; his heart rages against Yahweh.

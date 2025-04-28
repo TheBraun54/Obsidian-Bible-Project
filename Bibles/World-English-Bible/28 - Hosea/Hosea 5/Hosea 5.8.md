@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blow ye the cornet in Gibeah, and the trumpet in Ramah: sound an alarm at Beth-aven; behind thee, O Benjamin.
+"Blow the cornet in Gibeah, and the trumpet in Ramah! Sound a battle cry at Beth Aven, behind you, Benjamin!

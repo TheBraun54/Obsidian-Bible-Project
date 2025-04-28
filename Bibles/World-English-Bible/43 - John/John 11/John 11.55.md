@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the passover of the Jews was at hand: and many went up to Jerusalem out of the country before the passover, to purify themselves.
+Now the Passover of the Jews was at hand. Many went up from the country to Jerusalem before the Passover, to purify themselves.

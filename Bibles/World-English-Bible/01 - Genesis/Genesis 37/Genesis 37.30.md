@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he returned unto his brethren, and said, The child is not; and I, whither shall I go?
+He returned to his brothers, and said, "The child is no more; and I, where will I go?"

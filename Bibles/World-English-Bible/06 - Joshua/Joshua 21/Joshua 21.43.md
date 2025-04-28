@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Jehovah gave unto Israel all the land which he sware to give unto their fathers; and they possessed it, and dwelt therein.
+So Yahweh gave to Israel all the land which he swore to give to their fathers. They possessed it, and lived in it.

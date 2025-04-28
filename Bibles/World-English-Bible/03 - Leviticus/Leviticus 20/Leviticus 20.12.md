@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man lie with his daughter-in-law, both of them shall surely be put to death: they have wrought confusion; their blood shall be upon them.
+"'If a man lies with his daughter-in-law, both of them shall surely be put to death: they have committed a perversion; their blood shall be upon them.

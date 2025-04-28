@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we know that the judgment of God is according to truth against them that practise such things.
+We know that the judgment of God is according to truth against those who practice such things.

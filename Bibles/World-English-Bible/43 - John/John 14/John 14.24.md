@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that loveth me not keepeth not my words: and the word which ye hear is not mine, but the Father's who sent me.
+He who doesn't love me doesn't keep my words. The word which you hear isn't mine, but the Father's who sent me.

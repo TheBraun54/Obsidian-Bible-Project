@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the pestilence that walketh in darkness, Nor for the destruction that wasteth at noonday.
+nor of the pestilence that walks in darkness, nor of the destruction that wastes at noonday.

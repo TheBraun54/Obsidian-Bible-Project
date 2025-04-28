@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Bilhah Rachel's handmaid conceived again, and bare Jacob a second son.
+Bilhah, Rachel's handmaid, conceived again, and bore Jacob a second son.

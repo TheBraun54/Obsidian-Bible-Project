@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and he that bade thee and him shall come and say to thee, Give this man place; and then thou shalt begin with shame to take the lowest place.
+and he who invited both of you would come and tell you, 'Make room for this person.' Then you would begin, with shame, to take the lowest place.

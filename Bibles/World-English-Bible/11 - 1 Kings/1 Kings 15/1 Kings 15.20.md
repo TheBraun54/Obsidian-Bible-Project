@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ben-hadad hearkened unto king Asa, and sent the captains of his armies against the cities of Israel, and smote Ijon, and Dan, and Abel-beth-maacah, and all Chinneroth, with all the land of Naphtali.
+Ben Hadad listened to king Asa, and sent the captains of his armies against the cities of Israel, and struck Ijon, and Dan, and Abel Beth Maacah, and all Chinneroth, with all the land of Naphtali.

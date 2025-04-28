@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the woman saw that the tree was good for food, and that it was a delight to the eyes, and that the tree was to be desired to make one wise, she took of the fruit thereof, and did eat; and she gave also unto her husband with her, and he did eat.
+When the woman saw that the tree was good for food, and that it was a delight to the eyes, and that the tree was to be desired to make one wise, she took of its fruit, and ate; and she gave some to her husband with her, and he ate.

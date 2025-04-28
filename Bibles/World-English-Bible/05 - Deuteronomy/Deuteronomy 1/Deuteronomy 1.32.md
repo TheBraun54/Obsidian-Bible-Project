@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet in this thing ye did not believe Jehovah your God,
+Yet in this thing you didn't believe Yahweh your God,

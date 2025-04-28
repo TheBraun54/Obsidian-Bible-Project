@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for then shall be great tribulation, such as hath not been from the beginning of the world until now, no, nor ever shall be.
+for then there will be great oppression, such as has not been from the beginning of the world until now, no, nor ever will be.

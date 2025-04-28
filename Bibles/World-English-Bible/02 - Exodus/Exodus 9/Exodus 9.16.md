@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but in very deed for this cause have I made thee to stand, to show thee my power, and that my name may be declared throughout all the earth.
+but indeed for this cause I have made you stand: to show you my power, and that my name may be declared throughout all the earth;

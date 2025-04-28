@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that ye abstain from things sacrificed to idols, and from blood, and from things strangled, and from fornication; from which if ye keep yourselves, it shall be well with you. Fare ye well.
+that you abstain from things sacrificed to idols, from blood, from things strangled, and from sexual immorality, from which if you keep yourselves, it will be well with you. Farewell."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if he bring a lamb as his oblation for a sin-offering, he shall bring it a female without blemish.
+"'If he brings a lamb as his offering for a sin offering, he shall bring a female without blemish.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-forbearing one another, and forgiving each other, if any man have a complaint against any; even as the Lord forgave you, so also do ye:
+bearing with one another, and forgiving each other, if any man has a complaint against any; even as Christ forgave you, so you also do.

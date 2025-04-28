@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make a screen for the door of the Tent, of blue, and purple, and scarlet, and fine twined linen, the work of the embroiderer.
+"You shall make a screen for the door of the Tent, of blue, and purple, and scarlet, and fine twined linen, the work of the embroiderer.

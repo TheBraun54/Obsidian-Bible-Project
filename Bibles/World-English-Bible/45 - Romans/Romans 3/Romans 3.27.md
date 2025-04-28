@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Where then is the glorying? It is excluded. By what manner of law? of works? Nay: but by a law of faith.
+Where then is the boasting? It is excluded. By what kind of law? Of works? No, but by a law of faith.

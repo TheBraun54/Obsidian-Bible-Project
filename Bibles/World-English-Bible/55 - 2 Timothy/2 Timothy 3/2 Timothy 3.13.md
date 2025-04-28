@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But evil men and impostors shall wax worse and worse, deceiving and being deceived.
+But evil men and impostors will grow worse and worse, deceiving and being deceived.

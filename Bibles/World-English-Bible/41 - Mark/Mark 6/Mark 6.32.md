@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went away in the boat to a desert place apart.
+They went away in the boat to a deserted place by themselves.

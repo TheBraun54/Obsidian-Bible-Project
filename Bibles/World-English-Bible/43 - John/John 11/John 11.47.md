@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The chief priests therefore and the Pharisees gathered a council, and said, What do we? for this man doeth many signs.
+The chief priests therefore and the Pharisees gathered a council, and said, "What are we doing? For this man does many signs.

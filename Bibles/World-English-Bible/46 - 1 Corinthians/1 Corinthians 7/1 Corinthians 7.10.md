@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But unto the married I give charge, [yea] not I, but the Lord, That the wife depart not from her husband
+But to the married I command--not I, but the Lord--that the wife not leave her husband

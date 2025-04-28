@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But we desire to hear of thee what thou thinkest: for as concerning this sect, it is known to us that everywhere it is spoken against.
+But we desire to hear from you what you think. For, as concerning this sect, it is known to us that everywhere it is spoken against."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover I sware unto them in the wilderness, that I would scatter them among the nations, and disperse them through the countries;
+Moreover I swore to them in the wilderness, that I would scatter them among the nations, and disperse them through the countries;

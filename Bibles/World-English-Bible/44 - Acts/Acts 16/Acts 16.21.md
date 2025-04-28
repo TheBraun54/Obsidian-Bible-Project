@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and set forth customs which it is not lawful for us to receive, or to observe, being Romans.
+and set forth customs which it is not lawful for us to accept or to observe, being Romans."

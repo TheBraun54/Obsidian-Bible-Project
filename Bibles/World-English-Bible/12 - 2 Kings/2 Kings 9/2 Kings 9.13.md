@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then they hasted, and took every man his garment, and put it under him on the top of the stairs, and blew the trumpet, saying, Jehu is king.
+Then they hurried, and took every man his garment, and put it under him on the top of the stairs, and blew the trumpet, saying, "Jehu is king."

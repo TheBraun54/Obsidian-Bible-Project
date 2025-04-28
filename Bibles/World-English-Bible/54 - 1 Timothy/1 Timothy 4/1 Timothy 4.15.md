@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be diligent in these things; give thyself wholly to them; that thy progress may be manifest unto all.
+Be diligent in these things. Give yourself wholly to them, that your progress may be revealed to all.

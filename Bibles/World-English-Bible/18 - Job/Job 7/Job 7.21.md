@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And why dost thou not pardon my transgression, and take away mine iniquity? For now shall I lie down in the dust; And thou wilt seek me diligently, but I shall not be.
+Why do you not pardon my disobedience, and take away my iniquity? For now shall I lie down in the dust. You will seek me diligently, but I shall not be."

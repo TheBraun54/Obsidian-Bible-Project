@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Hezekiah the king, and Isaiah the prophet the son of Amoz, prayed because of this, and cried to heaven.
+Hezekiah the king, and Isaiah the prophet the son of Amoz, prayed because of this, and cried to heaven.

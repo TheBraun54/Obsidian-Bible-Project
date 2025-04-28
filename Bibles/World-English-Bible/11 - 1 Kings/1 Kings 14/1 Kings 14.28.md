@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it was so, that, as oft as the king went into the house of Jehovah, the guard bare them, and brought them back into the guard-chamber.
+It was so, that as often as the king went into the house of Yahweh, the guard bore them, and brought them back into the guard room.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But murmured in their tents, And hearkened not unto the voice of Jehovah.
+but murmured in their tents, and didn't listen to Yahweh's voice.

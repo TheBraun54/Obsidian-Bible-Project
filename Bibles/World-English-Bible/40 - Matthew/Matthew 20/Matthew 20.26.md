@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Not so shall it be among you: but whosoever would become great among you shall be your minister;
+It shall not be so among you, but whoever desires to become great among you shall be your servant.

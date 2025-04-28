@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whose possessors slay them, and hold themselves not guilty; and they that sell them say, Blessed be Jehovah, for I am rich; and their own shepherds pity them not.
+Their buyers slaughter them, and go unpunished. Those who sell them say, 'Blessed be Yahweh, for I am rich;' and their own shepherds don't pity them.

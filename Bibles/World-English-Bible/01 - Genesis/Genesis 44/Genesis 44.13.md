@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then they rent their clothes, and laded every man his ass, and returned to the city.
+Then they tore their clothes, and each man loaded his donkey, and returned to the city.

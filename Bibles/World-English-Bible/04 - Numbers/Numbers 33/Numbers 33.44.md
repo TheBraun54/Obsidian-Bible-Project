@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Oboth, and encamped in Iye-abarim, in the border of Moab.
+They traveled from Oboth, and encamped in Iye Abarim, in the border of Moab.

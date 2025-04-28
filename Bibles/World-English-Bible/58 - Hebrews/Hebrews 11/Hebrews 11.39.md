@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these all, having had witness borne to them through their faith, received not the promise,
+These all, having had testimony given to them through their faith, didn't receive the promise,

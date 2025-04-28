@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they saw him, they worshipped [him] ; but some doubted.
+When they saw him, they bowed down to him, but some doubted.

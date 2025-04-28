@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, it magnified itself, even to the prince of the host; and it took away from him the continual [burnt-offering], and the place of his sanctuary was cast down.
+Yes, it magnified itself, even to the prince of the army; and it took away from him the continual [burnt offering], and the place of his sanctuary was cast down.

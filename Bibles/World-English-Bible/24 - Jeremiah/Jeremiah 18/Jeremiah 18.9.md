@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And at what instant I shall speak concerning a nation, and concerning a kingdom, to build and to plant it;
+At what instant I shall speak concerning a nation, and concerning a kingdom, to build and to plant it;

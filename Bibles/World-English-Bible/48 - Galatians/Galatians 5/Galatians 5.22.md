@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the fruit of the Spirit is love, joy, peace, longsuffering, kindness, goodness, faithfulness,
+But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faith,

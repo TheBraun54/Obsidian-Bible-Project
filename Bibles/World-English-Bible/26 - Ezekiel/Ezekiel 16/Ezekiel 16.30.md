@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How weak is thy heart, saith the Lord Jehovah, seeing thou doest all these things, the work of an impudent harlot;
+How weak is your heart, says the Lord Yahweh, since you do all these things, the work of an impudent prostitute;

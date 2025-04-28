@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-male and female created he them, and blessed them, and called their name Adam, in the day when they were created.
+He created them male and female, and blessed them, and called their name "Adam," in the day when they were created.

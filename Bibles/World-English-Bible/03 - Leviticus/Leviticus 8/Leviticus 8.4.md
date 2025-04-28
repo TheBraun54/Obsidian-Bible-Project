@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses did as Jehovah commanded him; and the congregation was assembled at the door of the tent of meeting.
+Moses did as Yahweh commanded him; and the congregation was assembled at the door of the Tent of Meeting.

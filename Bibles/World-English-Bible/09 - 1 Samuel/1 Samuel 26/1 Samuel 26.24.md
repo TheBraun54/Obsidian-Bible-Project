@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, as thy life was much set by this day in mine eyes, so let my life be much set by in the eyes of Jehovah, and let him deliver me out of all tribulation.
+Behold, as your life was respected this day in my eyes, so let my life be respected in the eyes of Yahweh, and let him deliver me out of all oppression."

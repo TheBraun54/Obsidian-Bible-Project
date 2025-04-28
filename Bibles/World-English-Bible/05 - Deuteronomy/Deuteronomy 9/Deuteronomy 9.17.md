@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I took hold of the two tables, and cast them out of my two hands, and brake them before your eyes.
+I took hold of the two tables, and cast them out of my two hands, and broke them before your eyes.

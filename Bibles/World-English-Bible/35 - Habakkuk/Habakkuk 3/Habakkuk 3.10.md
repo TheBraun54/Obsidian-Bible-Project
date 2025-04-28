@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The mountains saw thee, and were afraid; The tempest of waters passed by; The deep uttered its voice, And lifted up its hands on high.
+The mountains saw you, and were afraid. The storm of waters passed by. The deep roared and lifted up its hands on high.

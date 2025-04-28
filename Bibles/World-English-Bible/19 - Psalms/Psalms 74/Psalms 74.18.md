@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember this, that the enemy hath reproached, O Jehovah, And that a foolish people hath blasphemed thy name.
+Remember this, that the enemy has mocked you, Yahweh. Foolish people have blasphemed your name.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he saith unto them, How many loaves have ye? go [and] see. And when they knew, they say, Five, and two fishes.
+He said to them, "How many loaves do you have? Go see." When they knew, they said, "Five, and two fish."

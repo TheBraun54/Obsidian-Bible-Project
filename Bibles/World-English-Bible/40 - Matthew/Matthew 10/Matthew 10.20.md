@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it is not ye that speak, but the Spirit of your Father that speaketh in you.
+For it is not you who speak, but the Spirit of your Father who speaks in you.

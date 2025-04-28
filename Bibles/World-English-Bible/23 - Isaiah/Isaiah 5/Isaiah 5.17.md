@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall the lambs feed as in their pasture, and the waste places of the fat ones shall wanderers eat.
+Then the lambs will graze as in their pasture, and strangers will eat the ruins of the rich.

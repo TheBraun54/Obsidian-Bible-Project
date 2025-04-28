@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely thou hast spoken in my hearing, And I have heard the voice of [thy] words, [saying] ,
+"Surely you have spoken in my hearing, I have heard the voice of your words, saying,

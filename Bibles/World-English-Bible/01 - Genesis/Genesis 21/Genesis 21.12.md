@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And God said unto Abraham, Let it not be grievous in thy sight because of the lad, and because of thy handmaid; in all that Sarah saith unto thee, hearken unto her voice; for in Isaac shall thy seed be called.
+God said to Abraham, "Don't let it be grievous in your sight because of the boy, and because of your handmaid. In all that Sarah says to you, listen to her voice. For from Isaac will your seed be called.

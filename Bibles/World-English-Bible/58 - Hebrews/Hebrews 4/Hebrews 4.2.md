@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For indeed we have had good tidings preached unto us, even as also they: but the word of hearing did not profit them, because it was not united by faith with them that heard.
+For indeed we have had good news preached to us, even as they also did, but the word they heard didn't profit them, because it wasn't mixed with faith by those who heard.

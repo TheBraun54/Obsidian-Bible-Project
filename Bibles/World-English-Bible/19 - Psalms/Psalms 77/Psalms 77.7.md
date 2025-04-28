@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Will the Lord cast off for ever? And will he be favorable no more?
+"Will the Lord reject us forever? Will he be favorable no more?

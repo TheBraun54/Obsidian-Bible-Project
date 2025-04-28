@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts: In those days [it shall come to pass], that ten men shall take hold, out of all the languages of the nations, they shall take hold of the skirt of him that is a Jew, saying, We will go with you, for we have heard that God is with you.
+Thus says Yahweh of Armies: "In those days, ten men will take hold, out of all the languages of the nations, they will take hold of the skirt of him who is a Jew, saying, 'We will go with you, for we have heard that God is with you.'"

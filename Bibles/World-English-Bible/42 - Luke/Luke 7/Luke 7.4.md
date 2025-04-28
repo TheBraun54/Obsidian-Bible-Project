@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they, when they came to Jesus, besought him earnestly, saying, He is worthy that thou shouldest do this for him;
+When they came to Jesus, they begged him earnestly, saying, "He is worthy for you to do this for him,

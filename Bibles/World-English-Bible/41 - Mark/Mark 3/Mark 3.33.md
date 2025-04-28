@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he answereth them, and saith, Who is my mother and my brethren?
+He answered them, "Who are my mother and my brothers?"

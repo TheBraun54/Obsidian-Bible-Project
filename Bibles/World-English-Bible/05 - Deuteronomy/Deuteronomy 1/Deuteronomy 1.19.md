@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And we journeyed from Horeb, and went through all that great and terrible wilderness which ye saw, by the way to the hill-country of the Amorites, as Jehovah our God commanded us; and we came to Kadesh-barnea.
+We traveled from Horeb, and went through all that great and terrible wilderness which you saw, by the way to the hill country of the Amorites, as Yahweh our God commanded us; and we came to Kadesh Barnea.

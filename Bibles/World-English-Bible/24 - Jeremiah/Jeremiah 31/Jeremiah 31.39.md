@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the measuring line shall go out further straight onward unto the hill Gareb, and shall turn about unto Goah.
+The measuring line shall go out further straight onward to the hill Gareb, and shall turn about to Goah.

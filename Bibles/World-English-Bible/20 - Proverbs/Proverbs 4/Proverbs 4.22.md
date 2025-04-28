@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For they are life unto those that find them, And health to all their flesh.
+For they are life to those who find them, and health to their whole body.

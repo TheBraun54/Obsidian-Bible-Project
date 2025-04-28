@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he departed thence, and went into the house of a certain man named Titus Justus, one that worshipped God, whose house joined hard to the synagogue.
+He departed there, and went into the house of a certain man named Justus, one who worshiped God, whose house was next door to the synagogue.

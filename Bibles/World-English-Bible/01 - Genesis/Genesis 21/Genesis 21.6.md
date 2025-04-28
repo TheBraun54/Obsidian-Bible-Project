@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Sarah said, God hath made me to laugh; every one that heareth will laugh with me.
+Sarah said, "God has made me laugh. Everyone who hears will laugh with me."

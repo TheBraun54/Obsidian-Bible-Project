@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Gedaliah sware to them and to their men, and said unto them, Fear not because of the servants of the Chaldeans: dwell in the land, and serve the king of Babylon, and it shall be well with you.
+Gedaliah swore to them and to their men, and said to them, "Don't be afraid because of the servants of the Chaldeans. Dwell in the land, and serve the king of Babylon, and it shall be well with you."

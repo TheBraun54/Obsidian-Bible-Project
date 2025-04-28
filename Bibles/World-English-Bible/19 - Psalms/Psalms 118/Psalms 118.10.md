@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All nations compassed me about: In the name of Jehovah I will cut them off.
+All the nations surrounded me, but in the name of Yahweh, I cut them off.

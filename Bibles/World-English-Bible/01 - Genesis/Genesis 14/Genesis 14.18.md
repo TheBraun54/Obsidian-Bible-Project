@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Melchizedek king of Salem brought forth bread and wine: and he was priest of God Most High.
+Melchizedek king of Salem brought out bread and wine: and he was priest of God Most High.

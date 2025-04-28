@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For unto this end was the gospel preached even to the dead, that they might be judged indeed according to men in the flesh, but live according to God in the spirit.
+For to this end the Good News was preached even to the dead, that they might be judged indeed as men in the flesh, but live as to God in the spirit.

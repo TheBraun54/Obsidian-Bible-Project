@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Howbeit when he, the Spirit of truth, is come, he shall guide you into all the truth: for he shall not speak from himself; but what things soever he shall hear, [these] shall he speak: and he shall declare unto you the things that are to come.
+However when he, the Spirit of truth, has come, he will guide you into all truth, for he will not speak from himself; but whatever he hears, he will speak. He will declare to you things that are coming.

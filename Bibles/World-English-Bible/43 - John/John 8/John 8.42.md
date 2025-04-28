@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus said unto them, If God were your Father, ye would love me: for I came forth and am come from God; for neither have I come of myself, but he sent me.
+Therefore Jesus said to them, "If God were your father, you would love me, for I came out and have come from God. For I haven't come of myself, but he sent me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for they are spirits of demons, working signs; which go forth unto the kings of the whole world, to gather them together unto the war of the great day of God, the Almighty.
+for they are spirits of demons, performing signs; which go forth to the kings of the whole inhabited earth, to gather them together for the war of that great day of God, the Almighty.

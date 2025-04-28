@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And behold, a man named Joseph, who was a councillor, a good and righteous man
+Behold, a man named Joseph, who was a member of the council, a good and righteous man

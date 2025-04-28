@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus therefore said unto them, Verily, verily, I say unto you, Except ye eat the flesh of the Son of man and drink his blood, ye have not life in yourselves.
+Jesus therefore said to them, "Most certainly I tell you, unless you eat the flesh of the Son of Man and drink his blood, you don't have life in yourselves.

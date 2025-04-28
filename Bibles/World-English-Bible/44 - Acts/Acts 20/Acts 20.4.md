@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there accompanied him as far as Asia, Sopater of Beroea, [the son] of Pyrrhus; and of the Thessalonians, Aristarchus and Secundus; and Gaius of Derbe, and Timothy; and of Asia, Tychicus and Trophimus.
+These accompanied him as far as Asia: Sopater of Beroea; Aristarchus and Secundus of the Thessalonians; Gaius of Derbe; Timothy; and Tychicus and Trophimus of Asia.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made two capitals of molten brass, to set upon the tops of the pillars: the height of the one capital was five cubits, and the height of the other capital was five cubits.
+He made two capitals of molten brass, to set on the tops of the pillars: the height of the one capital was five cubits, and the height of the other capital was five cubits.

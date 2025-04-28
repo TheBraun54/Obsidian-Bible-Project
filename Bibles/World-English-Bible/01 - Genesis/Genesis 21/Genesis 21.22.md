@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass at that time, that Abimelech and Phicol the captain of his host spake unto Abraham, saying, God is with thee in all that thou doest:
+It happened at that time, that Abimelech and Phicol the captain of his army spoke to Abraham, saying, "God is with you in all that you do.

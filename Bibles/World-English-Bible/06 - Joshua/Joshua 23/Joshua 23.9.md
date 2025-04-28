@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For Jehovah hath driven out from before you great nations and strong: but as for you, no man hath stood before you unto this day.
+"For Yahweh has driven great and strong nations out from before you. But as for you, no man has stood before you to this day.

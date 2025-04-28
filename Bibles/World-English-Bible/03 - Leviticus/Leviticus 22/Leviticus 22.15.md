@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall not profane the holy things of the children of Israel, which they offer unto Jehovah,
+The priests shall not profane the holy things of the children of Israel, which they offer to Yahweh,

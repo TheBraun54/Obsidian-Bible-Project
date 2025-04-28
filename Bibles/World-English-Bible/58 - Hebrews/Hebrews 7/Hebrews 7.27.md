@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who needeth not daily, like those high priests, to offer up sacrifices, first for his own sins, and then for the [sins] of the people: for this he did once for all, when he offered up himself.
+who doesn't need, like those high priests, to offer up sacrifices daily, first for his own sins, and then for the sins of the people. For he did this once for all, when he offered up himself.

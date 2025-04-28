@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy throne is established of old: Thou art from everlasting.
+Your throne is established from long ago. You are from everlasting.

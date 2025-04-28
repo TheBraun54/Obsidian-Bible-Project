@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou turn away thy foot from the sabbath, from doing thy pleasure on my holy day; and call the sabbath a delight, [and] the holy of Jehovah honorable; and shalt honor it, not doing thine own ways, nor finding thine own pleasure, nor speaking [thine own] words:
+"If you turn away your foot from the Sabbath, from doing your pleasure on my holy day; and call the Sabbath a delight, [and] the holy of Yahweh honorable; and shall honor it, not doing your own ways, nor finding your own pleasure, nor speaking [your own] words:

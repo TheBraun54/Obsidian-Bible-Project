@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who, when he was in Galilee, followed him, and ministered unto him; and many other women that came up with him unto Jerusalem.
+who, when he was in Galilee, followed him, and served him; and many other women who came up with him to Jerusalem.

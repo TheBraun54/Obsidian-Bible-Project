@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They give gifts to all harlots; but thou givest thy gifts to all thy lovers, and bribest them, that they may come unto thee on every side for thy whoredoms.
+They give gifts to all prostitutes; but you give your gifts to all your lovers, and bribe them, that they may come to you on every side for your prostitution.

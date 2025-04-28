@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast bought me no sweet cane with money, neither hast thou filled me with the fat of thy sacrifices; but thou hast burdened me with thy sins, thou hast wearied me with thine iniquities.
+You have bought me no sweet cane with money, nor have you filled me with the fat of your sacrifices; but you have burdened me with your sins. You have wearied me with your iniquities.

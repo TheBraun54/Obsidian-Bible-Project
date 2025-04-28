@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Again, the kingdom of heaven is like unto a net, that was cast into the sea, and gathered of every kind:
+"Again, the Kingdom of Heaven is like a dragnet, that was cast into the sea, and gathered some fish of every kind,

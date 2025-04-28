@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I raised up of your sons for prophets, and of your young men for Nazirites. Is it not even thus, O ye children of Israel? saith Jehovah.
+I raised up some of your sons for prophets, and some of your young men for Nazirites. Isn't this true, you children of Israel?" says Yahweh.

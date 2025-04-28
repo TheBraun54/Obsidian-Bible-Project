@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At which season Moses was born, and was exceeding fair; and he was nourished three months in his father's house.
+At that time Moses was born, and was exceedingly handsome. He was nourished three months in his father's house.

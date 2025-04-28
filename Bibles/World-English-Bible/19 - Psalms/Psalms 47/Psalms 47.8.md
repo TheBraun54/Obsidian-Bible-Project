@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-God reigneth over the nations: God sitteth upon his holy throne.
+God reigns over the nations. God sits on his holy throne.

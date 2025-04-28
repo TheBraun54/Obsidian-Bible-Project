@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus said, Verily I say unto you, There is no man that hath left house, or brethren, or sisters, or mother, or father, or children, or lands, for my sake, and for the gospel's sake,
+Jesus said, "Most certainly I tell you, there is no one who has left house, or brothers, or sisters, or father, or mother, or wife, or children, or land, for my sake, and for the sake of the Good News,

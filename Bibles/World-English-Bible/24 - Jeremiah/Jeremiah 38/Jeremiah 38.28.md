@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Jeremiah abode in the court of the guard until the day that Jerusalem was taken.
+So Jeremiah stayed in the court of the guard until the day that Jerusalem was taken.

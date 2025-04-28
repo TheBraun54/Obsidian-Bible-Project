@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou, Jehovah, of thy favor hadst made my mountain to stand strong: Thou didst hide thy face; I was troubled.
+You, Yahweh, when you favored me, made my mountain stand strong; but when you hid your face, I was troubled.

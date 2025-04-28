@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the horns thereof upon the four corners of it; the horns thereof were of one piece with it: and he overlaid it with brass.
+He made its horns on its four corners. Its horns were of one piece with it, and he overlaid it with brass.

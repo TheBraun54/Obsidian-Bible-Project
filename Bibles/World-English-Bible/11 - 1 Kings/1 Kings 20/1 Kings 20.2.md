@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sent messengers to Ahab king of Israel, into the city, and said unto him, Thus saith Ben-hadad,
+He sent messengers to Ahab king of Israel, into the city, and said to him, "Thus says Ben Hadad,

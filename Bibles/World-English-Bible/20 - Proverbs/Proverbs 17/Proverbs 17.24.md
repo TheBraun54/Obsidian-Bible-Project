@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wisdom is before the face of him that hath understanding; But the eyes of a fool are in the ends of the earth.
+Wisdom is before the face of one who has understanding, but the eyes of a fool wander to the ends of the earth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and said unto him, Art thou he that cometh, or look we for another?
+and said to him, "Are you he who comes, or should we look for another?"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When the Most High gave to the nations their inheritance, When he separated the children of men, He set the bounds of the peoples According to the number of the children of Israel.
+When the Most High gave to the nations their inheritance, when he separated the children of men, he set the bounds of the peoples according to the number of the children of Israel.

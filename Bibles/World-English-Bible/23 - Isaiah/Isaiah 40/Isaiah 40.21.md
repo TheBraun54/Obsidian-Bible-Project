@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Have ye not known? have yet not heard? hath it not been told you from the beginning? have ye not understood from the foundations of the earth?
+Haven't you known? Haven't you heard, yet? Haven't you been told from the beginning? Haven't you understood from the foundations of the earth?

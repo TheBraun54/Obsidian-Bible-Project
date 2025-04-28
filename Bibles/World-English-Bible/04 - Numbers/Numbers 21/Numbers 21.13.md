@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From thence they journeyed, and encamped on the other side of the Arnon, which is in the wilderness, that cometh out of the border of the Amorites: for the Arnon is the border of Moab, between Moab and the Amorites.
+From there they traveled, and encamped on the other side of the Arnon, which is in the wilderness, that comes out of the border of the Amorites: for the Arnon is the border of Moab, between Moab and the Amorites.

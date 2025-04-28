@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For by the wine of the wrath of her fornication all the nations are fallen; and the kings of the earth committed fornication with her, and the merchants of the earth waxed rich by the power of her wantonness.
+For all the nations have drunk of the wine of the wrath of her sexual immorality, the kings of the earth committed sexual immorality with her, and the merchants of the earth grew rich from the abundance of her luxury."

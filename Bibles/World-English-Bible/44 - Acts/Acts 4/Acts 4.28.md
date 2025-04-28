@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to do whatsoever thy hand and thy council foreordained to come to pass.
+to do whatever your hand and your council foreordained to happen.

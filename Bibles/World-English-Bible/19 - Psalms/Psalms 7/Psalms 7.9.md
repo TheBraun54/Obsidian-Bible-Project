@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O let the wickedness of the wicked come to an end, but establish thou the righteous: For the righteous God trieth the minds and hearts.
+Oh let the wickedness of the wicked come to an end, but establish the righteous; their minds and hearts are searched by the righteous God.

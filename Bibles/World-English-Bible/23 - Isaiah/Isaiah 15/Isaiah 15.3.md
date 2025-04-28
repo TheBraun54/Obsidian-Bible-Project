@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In their streets they gird themselves with sackcloth; on their housetops, and in their broad places, every one waileth, weeping abundantly.
+In their streets, they clothe themselves in sackcloth. In their streets and on their housetops, everyone wails, weeping abundantly.

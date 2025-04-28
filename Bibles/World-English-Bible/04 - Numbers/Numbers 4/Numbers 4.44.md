@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-even those that were numbered of them by their families, were three thousand and two hundred.
+even those who were numbered of them by their families, were three thousand two hundred.

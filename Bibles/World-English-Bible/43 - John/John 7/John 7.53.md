@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-{{And they went every man unto his own house:
+Everyone went to his own house,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I spake not from myself; but the Father that sent me, he hath given me a commandment, what I should say, and what I should speak.
+For I spoke not from myself, but the Father who sent me, he gave me a commandment, what I should say, and what I should speak.

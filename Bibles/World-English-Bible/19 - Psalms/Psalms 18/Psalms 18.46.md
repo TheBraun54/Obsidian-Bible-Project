@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah liveth; And blessed be my rock; And exalted be the God of my salvation,
+Yahweh lives; and blessed be my rock. Exalted be the God of my salvation,

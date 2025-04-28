@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt make curtains of goats' [hair] for a tent over the tabernacle: eleven curtains shalt thou make them.
+"You shall make curtains of goats' hair for a covering over the tabernacle. You shall make them eleven curtains.

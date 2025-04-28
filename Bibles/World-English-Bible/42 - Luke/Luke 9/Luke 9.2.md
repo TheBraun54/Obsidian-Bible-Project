@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he sent them forth to preach the kingdom of God, and to heal the sick.
+He sent them forth to preach the Kingdom of God, and to heal the sick.

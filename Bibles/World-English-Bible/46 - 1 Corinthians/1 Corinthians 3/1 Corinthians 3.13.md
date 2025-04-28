@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-each man's work shall be made manifest: for the day shall declare it, because it is revealed in fire; and the fire itself shall prove each man's work of what sort it is.
+each man's work will be revealed. For the Day will declare it, because it is revealed in fire; and the fire itself will test what sort of work each man's work is.

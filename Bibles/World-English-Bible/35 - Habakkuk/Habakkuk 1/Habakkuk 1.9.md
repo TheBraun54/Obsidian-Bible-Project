@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They come all of them for violence; the set of their faces is forwards; and they gather captives as the sand.
+All of them come for violence. Their hordes face the desert. He gathers prisoners like sand.

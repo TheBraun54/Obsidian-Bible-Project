@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So it came to pass, when the king's commandment and his decree was heard, and when many maidens were gathered together unto Shushan the palace, to the custody of Hegai, that Esther was taken into the king's house, to the custody of Hegai, keeper of the women.
+So it happened, when the king's commandment and his decree was heard, and when many maidens were gathered together to the citadel of Susa, to the custody of Hegai, that Esther was taken into the king's house, to the custody of Hegai, keeper of the women.

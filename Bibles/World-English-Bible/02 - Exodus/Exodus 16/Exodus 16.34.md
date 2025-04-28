@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As Jehovah commanded Moses, so Aaron laid it up before the Testimony, to be kept.
+As Yahweh commanded Moses, so Aaron laid it up before the Testimony, to be kept.

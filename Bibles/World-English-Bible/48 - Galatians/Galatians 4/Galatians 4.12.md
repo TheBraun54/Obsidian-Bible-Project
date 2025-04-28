@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I beseech you, brethren, become as I [am], for I also [am become] as ye [are] . Ye did me no wrong:
+I beg you, brothers, become as I am, for I also have become as you are. You did me no wrong,

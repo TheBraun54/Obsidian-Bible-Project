@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The man, the lord of the land, spake roughly with us, and took us for spies of the country.
+"The man, the lord of the land, spoke roughly with us, and took us for spies of the country.

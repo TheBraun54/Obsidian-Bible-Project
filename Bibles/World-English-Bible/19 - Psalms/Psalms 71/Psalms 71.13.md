@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them be put to shame [and] consumed that are adversaries to my soul; Let them be covered with reproach and dishonor that seek my hurt.
+Let my accusers be disappointed and consumed. Let them be covered with disgrace and scorn who want to harm me.

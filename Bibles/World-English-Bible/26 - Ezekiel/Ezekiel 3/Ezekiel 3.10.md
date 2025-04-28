@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover he said unto me, Son of man, all my words that I shall speak unto thee receive in thy heart, and hear with thine ears.
+Moreover he said to me, Son of man, all my words that I shall speak to you receive in your heart, and hear with your ears.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will smite thee with madness, and with blindness, and with astonishment of heart;
+Yahweh will strike you with madness, and with blindness, and with astonishment of heart;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall not alter it, nor change it, a good for a bad, or a bad for a good: and if he shall at all change beast for beast, then both it and that for which it is changed shall be holy.
+He shall not alter it, nor change it, a good for a bad, or a bad for a good: and if he shall at all change animal for animal, then both it and that for which it is changed shall be holy.

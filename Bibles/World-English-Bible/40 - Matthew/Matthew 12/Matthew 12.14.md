@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the Pharisees went out, and took counsel against him, how they might destroy him.
+But the Pharisees went out, and conspired against him, how they might destroy him.

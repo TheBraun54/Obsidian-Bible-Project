@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then will I visit their transgression with the rod, And their iniquity with stripes.
+then I will punish their sin with the rod, and their iniquity with stripes.

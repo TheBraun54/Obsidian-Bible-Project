@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seven days shalt thou prepare every day a goat for a sin-offering: they shall also prepare a young bullock, and a ram out of the flock, without blemish.
+Seven days you shall prepare every day a goat for a sin offering: they shall also prepare a young bull, and a ram out of the flock, without blemish.

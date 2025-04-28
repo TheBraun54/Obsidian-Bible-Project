@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember unto me, O my God, for good, all that I have done for this people.
+Remember to me, my God, for good, all that I have done for this people.

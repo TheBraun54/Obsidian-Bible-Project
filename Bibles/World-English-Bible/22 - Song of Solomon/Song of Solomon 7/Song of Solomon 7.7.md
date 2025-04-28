@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This thy stature is like to a palm-tree, And thy breasts to its clusters.
+This, your stature, is like a palm tree, your breasts like its fruit.

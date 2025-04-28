@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if, while we sought to be justified in Christ, we ourselves also were found sinners, is Christ a minister of sin? God forbid.
+But if, while we sought to be justified in Christ, we ourselves also were found sinners, is Christ a servant of sin? Certainly not!

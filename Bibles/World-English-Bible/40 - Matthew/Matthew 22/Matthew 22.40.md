@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On these two commandments the whole law hangeth, and the prophets.
+The whole law and the prophets depend on these two commandments."

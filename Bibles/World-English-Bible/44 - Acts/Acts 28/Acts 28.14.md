@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-where we found brethren, and were entreated to tarry with them seven days: and so we came to Rome.
+where we found brothers, and were entreated to stay with them for seven days. So we came to Rome.

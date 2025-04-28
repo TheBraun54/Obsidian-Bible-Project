@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will send the sword, the famine, and the pestilence, among them, till they be consumed from off the land that I gave unto them and to their fathers.
+I will send the sword, the famine, and the pestilence, among them, until they be consumed from off the land that I gave to them and to their fathers.

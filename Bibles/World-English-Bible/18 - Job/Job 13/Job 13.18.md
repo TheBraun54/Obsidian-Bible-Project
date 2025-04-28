@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold now, I have set my cause in order; I know that I am righteous.
+See now, I have set my cause in order. I know that I am righteous.

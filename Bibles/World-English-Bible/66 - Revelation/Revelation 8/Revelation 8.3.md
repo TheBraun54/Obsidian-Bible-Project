@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And another angel came and stood over the altar, having a golden censer; and there was given unto him much incense, that he should add it unto the prayers of all the saints upon the golden altar which was before the throne.
+Another angel came and stood over the altar, having a golden censer. Much incense was given to him, that he should add it to the prayers of all the saints on the golden altar which was before the throne.

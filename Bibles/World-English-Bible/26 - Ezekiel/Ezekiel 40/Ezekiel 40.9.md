@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then measured he the porch of the gate, eight cubits; and the posts thereof, two cubits; and the porch of the gate was toward the house.
+Then measured he the porch of the gate, eight cubits; and its posts, two cubits; and the porch of the gate was toward the house.

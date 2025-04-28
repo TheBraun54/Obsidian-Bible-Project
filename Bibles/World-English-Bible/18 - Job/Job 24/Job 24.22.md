@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yet [God] preserveth the mighty by his power: He riseth up that hath no assurance of life.
+Yet God preserves the mighty by his power. He rises up who has no assurance of life.

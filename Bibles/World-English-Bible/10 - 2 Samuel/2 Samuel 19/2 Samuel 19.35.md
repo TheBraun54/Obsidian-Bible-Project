@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am this day fourscore years old: can I discern between good and bad? can thy servant taste what I eat or what I drink? can I hear any more the voice of singing men and singing women? wherefore then should thy servant be yet a burden unto my lord the king?
+I am this day eighty years old. Can I discern between good and bad? Can your servant taste what I eat or what I drink? Can I hear any more the voice of singing men and singing women? Why then should your servant be yet a burden to my lord the king?

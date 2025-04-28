@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass at the seventh time, when the priests blew the trumpets, Joshua said unto the people, Shout; for Jehovah hath given you the city.
+It happened at the seventh time, when the priests blew the trumpets, Joshua said to the people, "Shout, for Yahweh has given you the city!

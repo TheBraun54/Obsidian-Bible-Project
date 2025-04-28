@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for the mighty man, he had the earth; And the honorable man, he dwelt in it.
+But as for the mighty man, he had the earth. The honorable man, he lived in it.

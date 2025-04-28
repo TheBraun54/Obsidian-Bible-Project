@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And from that city many of the Samaritans believed on him because of the word of the woman, who testified, He told me all things that [ever] I did.
+From that city many of the Samaritans believed in him because of the word of the woman, who testified, "He told me everything that I did."

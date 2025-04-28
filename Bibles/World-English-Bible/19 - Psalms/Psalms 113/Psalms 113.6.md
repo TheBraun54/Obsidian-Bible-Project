@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That humbleth himself to behold [The things that are] in heaven and in the earth?
+Who stoops down to see in heaven and in the earth?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But she said, Yea, Lord: for even the dogs eat of the crumbs which fall from their masters' table.
+But she said, "Yes, Lord, but even the dogs eat the crumbs which fall from their masters' table."

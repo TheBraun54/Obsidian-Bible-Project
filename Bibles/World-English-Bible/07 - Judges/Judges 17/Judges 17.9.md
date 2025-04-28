@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Micah said unto him, Whence comest thou? And he said unto him, I am a Levite of Beth-lehem-judah, and I go to sojourn where I may find [a place] .
+Micah said to him, "Where did you come from?" He said to him, "I am a Levite of Bethlehem Judah, and I am looking for a place to live."

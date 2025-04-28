@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Adam lived a hundred and thirty years, and begat [a son] in his own likeness, after his image; and called his name Seth:
+Adam lived one hundred thirty years, and became the father of a son in his own likeness, after his image, and named him Seth.

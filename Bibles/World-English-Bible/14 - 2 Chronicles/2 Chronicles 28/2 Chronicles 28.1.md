@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ahaz was twenty years old when he began to reign; and he reigned sixteen years in Jerusalem: and he did not that which was right in the eyes of Jehovah, like David his father;
+Ahaz was twenty years old when he began to reign; and he reigned sixteen years in Jerusalem: and he didn't do that which was right in the eyes of Yahweh, like David his father;

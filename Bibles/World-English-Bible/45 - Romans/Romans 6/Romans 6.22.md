@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But now being made free from sin and become servants to God, ye have your fruit unto sanctification, and the end eternal life.
+But now, being made free from sin, and having become servants of God, you have your fruit of sanctification, and the result of eternal life.

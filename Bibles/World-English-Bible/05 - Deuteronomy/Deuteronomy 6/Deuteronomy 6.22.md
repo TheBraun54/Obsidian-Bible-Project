@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and Jehovah showed signs and wonders, great and sore, upon Egypt, upon Pharaoh, and upon all his house, before our eyes;
+and Yahweh showed great and awesome signs and wonders on Egypt, on Pharaoh, and on all his house, before our eyes;

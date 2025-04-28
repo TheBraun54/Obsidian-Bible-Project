@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not uncover the nakedness of a woman and her daughter; thou shalt not take her son's daughter, or her daughter's daughter, to uncover her nakedness; they are near kinswomen: it is wickedness.
+"'You shall not uncover the nakedness of a woman and her daughter. You shall not take her son's daughter, or her daughter's daughter, to uncover her nakedness; they are near kinswomen: it is wickedness.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul abode in the uttermost part of Gibeah under the pomegranate-tree which is in Migron: and the people that were with him were about six hundred men;
+Saul stayed in the uttermost part of Gibeah under the pomegranate tree which is in Migron: and the people who were with him were about six hundred men;

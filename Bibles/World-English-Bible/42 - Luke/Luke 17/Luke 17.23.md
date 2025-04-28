@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall say to you, Lo, there! Lo, here! go not away, nor follow after [them] :
+They will tell you, 'Look, here!' or 'Look, there!' Don't go away, nor follow after them,

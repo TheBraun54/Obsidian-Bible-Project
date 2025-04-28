@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But from those who were reputed to be somewhat (whatsoever they were, it maketh no matter to me: God accepteth not man's person)--they, I say, who were of repute imparted nothing to me:
+But from those who were reputed to be important (whatever they were, it makes no difference to me; God doesn't show partiality to man)--they, I say, who were respected imparted nothing to me,

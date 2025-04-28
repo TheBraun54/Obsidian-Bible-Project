@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As an eagle that stirreth up her nest, That fluttereth over her young, He spread abroad his wings, he took them, He bare them on his pinions.
+As an eagle that stirs up her nest, that flutters over her young, he spread abroad his wings, he took them, he bore them on his feathers.

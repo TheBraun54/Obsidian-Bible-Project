@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Ahaz sent messengers to Tiglath-pileser king of Assyria, saying, I am thy servant and thy son: come up, and save me out of the hand of the king of Syria, and out of the hand of the king of Israel, who rise up against me.
+So Ahaz sent messengers to Tiglath Pileser king of Assyria, saying, "I am your servant and your son. Come up, and save me out of the hand of the king of Syria, and out of the hand of the king of Israel, who rise up against me."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ebed-melech went forth out of the king's house, and spake to the king, saying,
+Ebedmelech went forth out of the king's house, and spoke to the king, saying,

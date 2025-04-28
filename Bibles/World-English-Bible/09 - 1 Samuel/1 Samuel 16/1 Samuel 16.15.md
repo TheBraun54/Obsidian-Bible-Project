@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul's servants said unto him, Behold now, an evil spirit from God troubleth thee.
+Saul's servants said to him, "See now, an evil spirit from God troubles you.

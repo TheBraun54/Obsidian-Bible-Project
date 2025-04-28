@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thy servants take pleasure in her stones, And have pity upon her dust.
+For your servants take pleasure in her stones, and have pity on her dust.

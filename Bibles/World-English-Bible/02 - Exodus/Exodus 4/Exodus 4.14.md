@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the anger of Jehovah was kindled against Moses, and he said, Is there not Aaron thy brother the Levite? I know that he can speak well. And also, behold, he cometh forth to meet thee: and when he seeth thee, he will be glad in his heart.
+The anger of Yahweh was kindled against Moses, and he said, "What about Aaron, your brother, the Levite? I know that he can speak well. Also, behold, he comes forth to meet you. When he sees you, he will be glad in his heart.

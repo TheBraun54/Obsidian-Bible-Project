@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Set thou a wicked man over him; And let an adversary stand at his right hand.
+Set a wicked man over him. Let an adversary stand at his right hand.

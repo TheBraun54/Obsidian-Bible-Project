@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass in that day, that I will make Jerusalem a burdensome stone for all the peoples; all that burden themselves with it shall be sore wounded; and all the nations of the earth shall be gathered together against it.
+It will happen in that day, that I will make Jerusalem a burdensome stone for all the peoples. All who burden themselves with it will be severely wounded, and all the nations of the earth will be gathered together against it.

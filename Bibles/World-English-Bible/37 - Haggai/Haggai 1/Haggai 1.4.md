@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Is it a time for you yourselves to dwell in your ceiled houses, while this house lieth waste?
+"Is it a time for you yourselves to dwell in your paneled houses, while this house lies waste?

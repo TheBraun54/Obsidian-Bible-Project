@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and to bring the first-fruits of our ground, and the first-fruits of all fruit of all manner of trees, year by year, unto the house of Jehovah;
+and to bring the first fruits of our ground, and the first fruits of all fruit of all kinds of trees, year by year, to the house of Yahweh;

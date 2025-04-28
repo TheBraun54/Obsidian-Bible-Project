@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-What then is Apollos? and what is Paul? Ministers through whom ye believed; and each as the Lord gave to him.
+Who then is Apollos, and who is Paul, but servants through whom you believed; and each as the Lord gave to him?

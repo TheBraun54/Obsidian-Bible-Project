@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The children of Immer, a thousand fifty and two.
+The children of Immer, one thousand fifty-two.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they spake, saying unto him, Tell us: By what authority doest thou these things? or who is he that gave thee this authority?
+They asked him, "Tell us: by what authority do you do these things? Or who is giving you this authority?"

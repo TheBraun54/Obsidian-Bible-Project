@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He bindeth up the waters in his thick clouds; And the cloud is not rent under them.
+He binds up the waters in his thick clouds, and the cloud is not burst under them.

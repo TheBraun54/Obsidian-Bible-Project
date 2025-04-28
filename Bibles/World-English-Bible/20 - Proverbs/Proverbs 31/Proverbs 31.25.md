@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Strength and dignity are her clothing; And she laugheth at the time to come.
+Strength and dignity are her clothing. She laughs at the time to come.

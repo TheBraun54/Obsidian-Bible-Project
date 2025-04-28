@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the third angel sounded, and there fell from heaven a great star, burning as a torch, and it fell upon the third part of the rivers, and upon the fountains of the waters;
+The third angel sounded, and a great star fell from the sky, burning like a torch, and it fell on one third of the rivers, and on the springs of the waters.

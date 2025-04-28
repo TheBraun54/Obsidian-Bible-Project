@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah turned an exceeding strong west wind, which took up the locusts, and drove them into the Red Sea; there remained not one locust in all the border of Egypt.
+Yahweh turned an exceeding strong west wind, which took up the locusts, and drove them into the Red Sea. There remained not one locust in all the borders of Egypt.

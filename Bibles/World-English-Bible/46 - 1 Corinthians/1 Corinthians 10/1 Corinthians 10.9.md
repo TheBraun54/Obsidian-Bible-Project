@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Neither let us make trial of the Lord, as some of them made trial, and perished by the serpents.
+Neither let us test the Lord, as some of them tested, and perished by the serpents.

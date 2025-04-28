@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And another came, saying, Lord, behold, [here is] thy pound, which I kept laid up in a napkin:
+Another came, saying, 'Lord, behold, your mina, which I kept laid away in a handkerchief,

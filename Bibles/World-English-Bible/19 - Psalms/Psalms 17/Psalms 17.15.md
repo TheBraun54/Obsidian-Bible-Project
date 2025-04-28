@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As for me, I shall behold thy face in righteousness; I shall be satisfied, when I awake, with [beholding] thy form.
+As for me, I shall see your face in righteousness. I shall be satisfied, when I awake, with seeing your form. For the Chief Musician. By David the servant of Yahweh, who spoke to Yahweh the words of this song in the day that Yahweh delivered him from the hand of all his enemies, and from the hand of Saul. He said,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Of these were the isles of the nations divided in their lands, every one after his tongue, after their families, in their nations.
+Of these were the islands of the nations divided in their lands, everyone after his language, after their families, in their nations.

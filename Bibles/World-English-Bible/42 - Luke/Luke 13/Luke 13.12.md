@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Jesus saw her, he called her, and said to her, Woman, thou art loosed from thine infirmity.
+When Jesus saw her, he called her, and said to her, "Woman, you are freed from your infirmity."

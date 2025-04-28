@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus answered them, I told you, and ye believe not: the works that I do in my Father's name, these bear witness of me.
+Jesus answered them, "I told you, and you don't believe. The works that I do in my Father's name, these testify about me.

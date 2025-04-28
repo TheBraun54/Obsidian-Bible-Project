@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-by glory and dishonor, by evil report and good report; as deceivers, and [yet] true;
+by glory and dishonor, by evil report and good report; as deceivers, and yet true;

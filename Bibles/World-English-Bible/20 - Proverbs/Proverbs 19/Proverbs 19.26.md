@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that doeth violence to his father, and chaseth away his mother, Is a son that causeth shame and bringeth reproach.
+He who robs his father and drives away his mother, is a son who causes shame and brings reproach.

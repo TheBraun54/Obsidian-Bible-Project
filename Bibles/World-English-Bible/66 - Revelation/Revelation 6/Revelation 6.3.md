@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he opened the second seal, I heard the second living creature saying, Come.
+When he opened the second seal, I heard the second living creature saying, "Come!"

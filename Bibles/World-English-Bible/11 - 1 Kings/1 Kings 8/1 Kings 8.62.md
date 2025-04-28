@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king, and all Israel with him, offered sacrifice before Jehovah.
+The king, and all Israel with him, offered sacrifice before Yahweh.

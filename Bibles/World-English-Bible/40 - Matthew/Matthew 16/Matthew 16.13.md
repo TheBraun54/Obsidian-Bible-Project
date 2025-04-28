@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when Jesus came into the parts of Caesarea Philippi, he asked his disciples, saying, Who do men say that the Son of man is?
+Now when Jesus came into the parts of Caesarea Philippi, he asked his disciples, saying, "Who do men say that I, the Son of Man, am?"

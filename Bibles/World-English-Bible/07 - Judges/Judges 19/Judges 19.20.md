@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the old man said, Peace be unto thee; howsoever let all thy wants lie upon me; only lodge not in the street.
+The old man said, "Peace be to you; howsoever let all your wants lie on me; only don't lodge in the street."

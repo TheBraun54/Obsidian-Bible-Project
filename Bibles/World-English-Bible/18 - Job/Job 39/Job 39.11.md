@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wilt thou trust him, because his strength is great? Or wilt thou leave to him thy labor?
+Will you trust him, because his strength is great? Or will you leave to him your labor?

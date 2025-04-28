@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I said, O my God, I am ashamed and blush to lift up my face to thee, my God; for our iniquities are increased over our head, and our guiltiness is grown up unto the heavens.
+and I said, "My God, I am ashamed and blush to lift up my face to you, my God; for our iniquities have increased over our head, and our guiltiness has grown up to the heavens.

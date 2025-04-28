@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician; [set to] Al-tashheth. [A Psalm] of David. Michtam]. Do ye indeed in silence speak righteousness? Do ye judge uprightly, O ye sons of men?
+Do you indeed speak righteousness, silent ones? Do you judge blamelessly, you sons of men?

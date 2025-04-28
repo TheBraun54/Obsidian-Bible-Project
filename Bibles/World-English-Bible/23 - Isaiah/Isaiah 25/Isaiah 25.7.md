@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he will destroy in this mountain the face of the covering that covereth all peoples, and the veil that is spread over all nations.
+He will destroy in this mountain the surface of the covering that covers all peoples, and the veil that is spread over all nations.

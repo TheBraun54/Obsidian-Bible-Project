@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Verily I say unto you, I shall no more drink of the fruit of the vine, until that day when I drink it new in the kingdom of God.
+Most certainly I tell you, I will no more drink of the fruit of the vine, until that day when I drink it anew in the Kingdom of God."

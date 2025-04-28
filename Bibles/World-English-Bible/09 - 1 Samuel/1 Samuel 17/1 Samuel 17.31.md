@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the words were heard which David spake, they rehearsed them before Saul; and he sent for him.
+When the words were heard which David spoke, they rehearsed them before Saul; and he sent for him.

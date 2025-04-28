@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-both male and female shall ye put out, without the camp shall ye put them; that they defile not their camp, in the midst whereof I dwell.
+Both you shall put male and female outside of the camp; that they not defile their camp, in the midst of which I dwell."

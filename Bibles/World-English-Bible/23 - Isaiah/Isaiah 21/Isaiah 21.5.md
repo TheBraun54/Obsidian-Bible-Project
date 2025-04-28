@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They prepare the table, they set the watch, they eat, they drink: rise up, ye princes, anoint the shield.
+They prepare the table. They set the watch. They eat. They drink. Rise up, you princes, oil the shield!

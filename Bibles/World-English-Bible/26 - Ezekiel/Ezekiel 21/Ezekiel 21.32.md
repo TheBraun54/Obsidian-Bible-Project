@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt be for fuel to the fire; thy blood shall be in the midst of the land; thou shalt be no more remembered: for I, Jehovah, have spoken it.
+You shall be for fuel to the fire; your blood shall be in the midst of the land; you shall be remembered no more: for I, Yahweh, have spoken it.

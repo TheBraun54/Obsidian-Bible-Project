@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and so all Israel shall be saved: even as it is written, There shall come out of Zion the Deliverer; He shall turn away ungodliness from Jacob:
+and so all Israel will be saved. Even as it is written, "There will come out of Zion the Deliverer, and he will turn away ungodliness from Jacob.

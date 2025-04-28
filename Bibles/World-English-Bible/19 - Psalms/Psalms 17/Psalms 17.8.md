@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Keep me as the apple of the eye; Hide me under the shadow of thy wings,
+Keep me as the apple of your eye. Hide me under the shadow of your wings,

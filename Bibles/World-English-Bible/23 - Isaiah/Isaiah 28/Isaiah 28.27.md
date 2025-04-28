@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the fitches are not threshed with a sharp [threshing] instrument, neither is a cart wheel turned about upon the cummin; but the fitches are beaten out with a staff, and the cummin with a rod.
+For the dill are not threshed with a sharp instrument, neither is a cart wheel turned over the cumin; but the dill is beaten out with a stick, and the cumin with a rod.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore he brought down their heart with labor; They fell down, and there was none to help.
+Therefore he brought down their heart with labor. They fell down, and there was none to help.

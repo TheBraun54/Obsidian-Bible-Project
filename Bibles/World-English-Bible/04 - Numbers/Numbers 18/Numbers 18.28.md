@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus ye also shall offer a heave-offering unto Jehovah of all your tithes, which ye receive of the children of Israel; and thereof ye shall give Jehovah's heave-offering to Aaron the priest.
+Thus you also shall offer a wave offering to Yahweh of all your tithes, which you receive of the children of Israel; and of it you shall give Yahweh's wave offering to Aaron the priest.

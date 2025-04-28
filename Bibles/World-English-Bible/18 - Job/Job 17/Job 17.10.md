@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as for you all, come on now again; And I shall not find a wise man among you.
+But as for you all, come on now again; I shall not find a wise man among you.

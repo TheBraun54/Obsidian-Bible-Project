@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And even as they refused to have God in [their] knowledge, God gave them up unto a reprobate mind, to do those things which are not fitting;
+Even as they refused to have God in their knowledge, God gave them up to a reprobate mind, to do those things which are not fitting;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Egyptians pursued, and went in after them into the midst of the sea, all Pharaoh's horses, his chariots, and his horsemen.
+The Egyptians pursued, and went in after them into the midst of the sea: all of Pharaoh's horses, his chariots, and his horsemen.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel shall pitch their tents, every man by his own camp, and every man by his own standard, according to their hosts.
+The children of Israel shall pitch their tents, every man by his own camp, and every man by his own standard, according to their divisions.

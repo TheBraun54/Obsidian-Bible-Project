@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in covetousness shall they with feigned words make merchandise of you: whose sentence now from of old lingereth not, and their destruction slumbereth not.
+In covetousness they will exploit you with deceptive words: whose sentence now from of old doesn't linger, and their destruction will not slumber.

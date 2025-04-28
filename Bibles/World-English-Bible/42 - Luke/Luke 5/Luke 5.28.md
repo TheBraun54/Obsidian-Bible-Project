@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he forsook all, and rose up and followed him.
+He left everything, and rose up and followed him.

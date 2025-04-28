@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will cause the noise of thy songs to cease; and the sound of thy harps shall be no more heard.
+I will cause the noise of your songs to cease; and the sound of your harps shall be no more heard.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua took Makkedah on that day, and smote it with the edge of the sword, and the king thereof: he utterly destroyed them and all the souls that were therein; he left none remaining; and he did to the king of Makkedah as he had done unto the king of Jericho.
+Joshua took Makkedah on that day, and struck it with the edge of the sword, with its king. He utterly destroyed them and all the souls who were in it. He left none remaining. He did to the king of Makkedah as he had done to the king of Jericho.

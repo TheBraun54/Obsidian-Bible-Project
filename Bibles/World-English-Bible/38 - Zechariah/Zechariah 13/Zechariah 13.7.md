@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Awake, O sword, against my shepherd, and against the man that is my fellow, saith Jehovah of hosts: smite the shepherd, and the sheep shall be scattered; and I will turn my hand upon the little ones.
+"Awake, sword, against my shepherd, and against the man who is close to me," says Yahweh of Armies. "Strike the shepherd, and the sheep will be scattered; and I will turn my hand against the little ones.

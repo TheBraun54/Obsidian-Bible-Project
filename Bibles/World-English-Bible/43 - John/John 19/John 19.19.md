@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pilate wrote a title also, and put it on the cross. And there was written, JESUS OF NAZARETH, THE KING OF THE JEWS.
+Pilate wrote a title also, and put it on the cross. There was written, "JESUS OF NAZARETH, THE KING OF THE JEWS."

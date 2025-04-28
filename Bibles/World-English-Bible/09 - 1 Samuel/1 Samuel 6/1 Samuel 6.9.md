@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And see; if it goeth up by the way of its own border to Beth-shemesh, then he hath done us this great evil: but if not, then we shall know that it is not his hand that smote us; it was a chance that happened to us.
+Behold; if it goes up by the way of its own border to Beth Shemesh, then he has done us this great evil: but if not, then we shall know that it is not his hand that struck us; it was a chance that happened to us."

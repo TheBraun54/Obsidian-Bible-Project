@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Jesus stood before the governor: and the governor asked him, saying, Art thou the King of the Jews? And Jesus said unto him, Thou sayest.
+Now Jesus stood before the governor: and the governor asked him, saying, "Are you the King of the Jews?" Jesus said to him, "So you say."

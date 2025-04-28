@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elisha the prophet called one of the sons of the prophets, and said unto him, Gird up thy loins, and take this vial of oil in thy hand, and go to Ramoth-gilead.
+Elisha the prophet called one of the sons of the prophets, and said to him, "Put your belt on your waist, take this vial of oil in your hand, and go to Ramoth Gilead.

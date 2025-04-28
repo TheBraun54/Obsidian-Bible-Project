@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made the holy anointing oil, and the pure incense of sweet spices, after the art of the perfumer.
+He made the holy anointing oil and the pure incense of sweet spices, after the art of the perfumer.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A gracious woman obtaineth honor; And violent men obtain riches.
+A gracious woman obtains honor, but violent men obtain riches.

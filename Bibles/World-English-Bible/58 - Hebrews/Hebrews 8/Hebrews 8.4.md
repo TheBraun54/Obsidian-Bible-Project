@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now if he were on earth, he would not be a priest at all, seeing there are those who offer the gifts according to the law;
+For if he were on earth, he would not be a priest at all, seeing there are priests who offer the gifts according to the law;

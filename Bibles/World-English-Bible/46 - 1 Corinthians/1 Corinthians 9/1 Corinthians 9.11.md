@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If we sowed unto you spiritual things, is it a great matter if we shall reap your carnal things?
+If we sowed to you spiritual things, is it a great thing if we reap your fleshly things?

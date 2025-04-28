@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king sent, and they gathered unto him all the elders of Judah and of Jerusalem.
+The king sent, and they gathered to him all the elders of Judah and of Jerusalem.

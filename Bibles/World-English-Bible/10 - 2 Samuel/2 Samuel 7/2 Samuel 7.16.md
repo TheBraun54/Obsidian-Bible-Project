@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thy house and thy kingdom shall be made sure for ever before thee: thy throne shall be established for ever.
+Your house and your kingdom shall be made sure forever before you. Your throne shall be established forever."'"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when the crowd was put forth, he entered in, and took her by the hand; and the damsel arose.
+But when the crowd was put out, he entered in, took her by the hand, and the girl arose.

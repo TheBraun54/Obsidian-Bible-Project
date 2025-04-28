@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall burn them upon the altar: it is the food of the offering made by fire, for a sweet savor; all the fat is Jehovah's.
+The priest shall burn them on the altar: it is the food of the offering made by fire, for a pleasant aroma; all the fat is Yahweh's.

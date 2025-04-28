@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For all the people that came out were circumcised; but all the people that were born in the wilderness by the way as they came forth out of Egypt, they had not circumcised.
+For all the people who came out were circumcised; but all the people who were born in the wilderness by the way as they came out of Egypt had not been circumcised.

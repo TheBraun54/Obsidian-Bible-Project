@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then shall the lame man leap as a hart, and the tongue of the dumb shall sing; for in the wilderness shall waters break out, and streams in the desert.
+Then the lame man will leap like a deer, and the tongue of the mute will sing; for waters will break out in the wilderness, and streams in the desert.

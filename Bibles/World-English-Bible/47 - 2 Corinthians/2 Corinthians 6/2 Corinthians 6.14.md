@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not unequally yoked with unbelievers: for what fellowship have righteousness and iniquity? or what communion hath light with darkness?
+Don't be unequally yoked with unbelievers, for what fellowship have righteousness and iniquity? Or what fellowship has light with darkness?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will pay my vows unto Jehovah, Yea, in the presence of all his people,
+I will pay my vows to Yahweh, yes, in the presence of all his people,

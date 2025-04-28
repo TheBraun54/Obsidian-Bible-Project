@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts, the God of Israel: Take these deeds, this deed of the purchase which is sealed, and this deed which is open, and put them in an earthen vessel; that they may continue many days.
+Thus says Yahweh of Armies, the God of Israel: Take these deeds, this deed of the purchase which is sealed, and this deed which is open, and put them in an earthen vessel; that they may continue many days.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The Philistines also had invaded the cities of the lowland, and of the South of Judah, and had taken Beth-shemesh, and Aijalon, and Gederoth, and Soco with the towns thereof, and Timnah with the towns thereof, Gimzo also and the towns thereof: and they dwelt there.
+The Philistines also had invaded the cities of the lowland, and of the South of Judah, and had taken Beth Shemesh, and Aijalon, and Gederoth, and Soco with its towns, and Timnah with its towns, Gimzo also and its towns: and they lived there.

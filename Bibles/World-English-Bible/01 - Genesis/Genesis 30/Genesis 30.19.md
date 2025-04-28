@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Leah conceived again, and bare a sixth son to Jacob.
+Leah conceived again, and bore a sixth son to Jacob.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou makest us a reproach to our neighbors, A scoffing and a derision to them that are round about us.
+You make us a reproach to our neighbors, a scoffing and a derision to those who are around us.

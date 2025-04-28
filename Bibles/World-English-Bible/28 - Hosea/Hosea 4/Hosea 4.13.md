@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They sacrifice upon the tops of the mountains, and burn incense upon the hills, under oaks and poplars and terebinths, because the shadow thereof is good: therefore your daughters play the harlot, and your brides commit adultery.
+They sacrifice on the tops of the mountains, and burn incense on the hills, under oaks and poplars and terebinths, because its shade is good. Therefore your daughters play the prostitute, and your brides commit adultery.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, These seven ewe lambs shalt thou take of my hand, that it may be a witness unto me, that I have digged this well.
+He said, "You shall take these seven ewe lambs from my hand, that it may be a witness to me, that I have dug this well."

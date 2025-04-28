@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is a sabbath of solemn rest unto you, and ye shall afflict your souls; it is a statute for ever.
+It is a Sabbath of solemn rest to you, and you shall afflict your souls; it is a statute forever.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I planted, Apollos watered; but God gave the increase.
+I planted. Apollos watered. But God gave the increase.

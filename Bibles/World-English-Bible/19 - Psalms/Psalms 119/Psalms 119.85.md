@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The proud have digged pits for me, Who are not according to thy law.
+The proud have dug pits for me, contrary to your law.

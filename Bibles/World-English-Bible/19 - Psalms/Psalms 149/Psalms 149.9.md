@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To execute upon them the judgment written: This honor have all his saints. Praise ye Jehovah.
+to execute on them the written judgment. All his saints have this honor. Praise Yah!

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-wisdom and knowledge is granted unto thee; and I will give thee riches, and wealth, and honor, such as none of the kings have had that have been before thee; neither shall there any after thee have the like.
+wisdom and knowledge is granted to you. I will give you riches, wealth, and honor, such as none of the kings have had who have been before you; neither shall there any after you have the like."

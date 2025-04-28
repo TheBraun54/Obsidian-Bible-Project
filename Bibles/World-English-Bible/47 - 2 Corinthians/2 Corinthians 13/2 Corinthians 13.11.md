@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Finally, brethren, farewell. Be perfected; be comforted; be of the same mind; live in peace: and the God of love and peace shall be with you.
+Finally, brothers, rejoice. Be perfected, be comforted, be of the same mind, live in peace, and the God of love and peace will be with you.

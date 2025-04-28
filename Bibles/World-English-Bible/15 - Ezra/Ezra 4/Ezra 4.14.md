@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now because we eat the salt of the palace, and it is not meet for us to see the king's dishonor, therefore have we sent and certified the king;
+Now because we eat the salt of the palace, and it is not appropriate for us to see the king's dishonor, therefore have we sent and informed the king;

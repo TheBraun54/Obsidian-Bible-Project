@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now to him that worketh, the reward is not reckoned as of grace, but as of debt.
+Now to him who works, the reward is not counted as grace, but as something owed.

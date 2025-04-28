@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the commandment which I command thee this day shall ye observe to do, that ye may live, and multiply, and go in and possess the land which Jehovah sware unto your fathers.
+You shall observe to do all the commandment which I command you this day, that you may live, and multiply, and go in and possess the land which Yahweh swore to your fathers.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thy servant vowed a vow while I abode at Geshur in Syria, saying, If Jehovah shall indeed bring me again to Jerusalem, then I will serve Jehovah.
+For your servant vowed a vow while I stayed at Geshur in Syria, saying, 'If Yahweh shall indeed bring me again to Jerusalem, then I will serve Yahweh.'"

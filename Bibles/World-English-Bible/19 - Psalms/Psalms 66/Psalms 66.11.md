@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou broughtest us into the net; Thou layedst a sore burden upon our loins.
+You brought us into prison. You laid a burden on our backs.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the tabernacle of Jehovah, which Moses made in the wilderness, and the altar of burnt-offering, were at that time in the high place at Gibeon.
+For the tabernacle of Yahweh, which Moses made in the wilderness, and the altar of burnt offering, were at that time in the high place at Gibeon.

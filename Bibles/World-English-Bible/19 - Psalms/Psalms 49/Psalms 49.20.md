@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Man that is in honor, and understandeth not, Is like the beasts that perish.
+A man who has riches without understanding, is like the animals that perish. A Psalm by Asaph.

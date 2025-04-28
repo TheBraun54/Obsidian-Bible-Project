@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall only bow down under the prisoners, and shall fall under the slain. For all this his anger is not turned away, but his hand is stretched out still.
+They will only bow down under the prisoners, and will fall under the slain. For all this his anger is not turned away, but his hand is stretched out still.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the ark of God remained with the family of Obed-edom in his house three months: and Jehovah blessed the house of Obed-edom, and all that he had.
+The ark of God remained with the family of Obed-Edom in his house three months: and Yahweh blessed the house of Obed-Edom, and all that he had.

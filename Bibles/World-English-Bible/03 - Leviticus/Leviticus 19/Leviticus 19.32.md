@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt rise up before the hoary head, and honor the face of the old man, and thou shalt fear thy God: I am Jehovah.
+"'You shall rise up before the gray head, and honor the face of an old man, and you shall fear your God. I am Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he also rebelled against king Nebuchadnezzar, who had made him swear by God: but he stiffened his neck, and hardened his heart against turning unto Jehovah, the God of Israel.
+He also rebelled against king Nebuchadnezzar, who had made him swear by God: but he stiffened his neck, and hardened his heart against turning to Yahweh, the God of Israel.

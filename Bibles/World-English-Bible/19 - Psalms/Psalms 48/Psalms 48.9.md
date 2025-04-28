@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We have thought on thy lovingkindness, O God, In the midst of thy temple.
+We have thought about your loving kindness, God, in the midst of your temple.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I was envious at the arrogant, When I saw the prosperity of the wicked.
+For I was envious of the arrogant, when I saw the prosperity of the wicked.

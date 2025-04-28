@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because to you it hath been granted in the behalf of Christ, not only to believe on him, but also to suffer in his behalf:
+Because it has been granted to you on behalf of Christ, not only to believe in him, but also to suffer on his behalf,

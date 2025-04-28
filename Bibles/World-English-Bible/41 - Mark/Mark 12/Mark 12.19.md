@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Teacher, Moses wrote unto us, If a man's brother die, and leave a wife behind him, and leave no child, that his brother should take his wife, and raise up seed unto his brother.
+"Teacher, Moses wrote to us, 'If a man's brother dies, and leaves a wife behind him, and leaves no children, that his brother should take his wife, and raise up offspring for his brother.'

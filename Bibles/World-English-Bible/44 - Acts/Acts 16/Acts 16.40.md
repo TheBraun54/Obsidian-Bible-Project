@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went out of the prison, and entered into [the house] of Lydia: and when they had seen the brethren, they comforted them, and departed.
+They went out of the prison, and entered into Lydia's house. When they had seen the brothers, they encouraged them, and departed.

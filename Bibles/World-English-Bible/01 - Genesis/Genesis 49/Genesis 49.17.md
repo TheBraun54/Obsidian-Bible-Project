@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Dan shall be a serpent in the way, An adder in the path, That biteth the horse's heels, So that his rider falleth backward.
+Dan will be a serpent in the way, an adder in the path, That bites the horse's heels, so that his rider falls backward.

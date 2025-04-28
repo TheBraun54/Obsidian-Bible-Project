@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-teaching them to observe all things whatsoever I commanded you: and lo, I am with you always, even unto the end of the world.
+teaching them to observe all things that I commanded you. Behold, I am with you always, even to the end of the age." Amen.

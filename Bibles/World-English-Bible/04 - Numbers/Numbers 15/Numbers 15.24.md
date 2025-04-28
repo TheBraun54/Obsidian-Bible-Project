@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-then it shall be, if it be done unwittingly, without the knowledge of the congregation, that all the congregation shall offer one young bullock for a burnt-offering, for a sweet savor unto Jehovah, with the meal-offering thereof, and the drink-offering thereof, according to the ordinance, and one he-goat for a sin-offering.
+then it shall be, if it be done unwittingly, without the knowledge of the congregation, that all the congregation shall offer one young bull for a burnt offering, for a pleasant aroma to Yahweh, with the meal offering of it, and the drink offering of it, according to the ordinance, and one male goat for a sin offering.

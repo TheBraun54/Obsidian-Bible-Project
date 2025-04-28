@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that begetteth a fool [doeth it] to his sorrow; And the father of a fool hath no joy.
+He who becomes the father of a fool grieves. The father of a fool has no joy.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then was our mouth filled with laughter, And our tongue with singing: Then said they among the nations, Jehovah hath done great things for them.
+Then our mouth was filled with laughter, and our tongue with singing. Then they said among the nations, "Yahweh has done great things for them."

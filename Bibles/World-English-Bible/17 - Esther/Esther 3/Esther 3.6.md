@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But he thought scorn to lay hands on Mordecai alone; for they had made known to him the people of Mordecai: wherefore Haman sought to destroy all the Jews that were throughout the whole kingdom of Ahasuerus, even the people of Mordecai.
+But he scorned the thought of laying hands on Mordecai alone, for they had made known to him Mordecai's people. Therefore Haman sought to destroy all the Jews who were throughout the whole kingdom of Ahasuerus, even Mordecai's people.

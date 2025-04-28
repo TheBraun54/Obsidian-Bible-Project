@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David saith, Let their table be made a snare, and a trap, And a stumblingblock, and a recompense unto them:
+David says, "Let their table be made a snare, and a trap, a stumbling block, and a retribution to them.

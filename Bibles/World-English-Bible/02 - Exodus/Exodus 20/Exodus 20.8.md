@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Remember the sabbath day, to keep it holy.
+"Remember the Sabbath day, to keep it holy.

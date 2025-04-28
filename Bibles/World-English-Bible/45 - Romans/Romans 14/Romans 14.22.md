@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The faith which thou hast, have thou to thyself before God. Happy is he that judgeth not himself in that which he approveth.
+Do you have faith? Have it to yourself before God. Happy is he who doesn't judge himself in that which he approves.

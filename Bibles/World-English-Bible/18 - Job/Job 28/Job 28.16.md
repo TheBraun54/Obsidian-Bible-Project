@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It cannot be valued with the gold of Ophir, With the precious onyx, or the sapphire.
+It can't be valued with the gold of Ophir, with the precious onyx, or the sapphire.

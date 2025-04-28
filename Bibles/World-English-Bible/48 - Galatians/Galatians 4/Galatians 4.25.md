@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now this Hagar is mount Sinai in Arabia and answereth to the Jerusalem that now is: for she is in bondage with her children.
+For this Hagar is Mount Sinai in Arabia, and answers to the Jerusalem that exists now, for she is in bondage with her children.

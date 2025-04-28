@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Joshua, Fear them not: for I have delivered them into thy hands; there shall not a man of them stand before thee.
+Yahweh said to Joshua, "Don't fear them, for I have delivered them into your hands. Not a man of them will stand before you."

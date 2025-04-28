@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ye shall be unto me a kingdom of priests, and a holy nation. These are the words which thou shalt speak unto the children of Israel.
+and you shall be to me a kingdom of priests, and a holy nation.' These are the words which you shall speak to the children of Israel."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For all the armor of the armed man in the tumult, and the garments rolled in blood, shall be for burning, for fuel of fire.
+For all the armor of the armed man in the noisy battle, and the garments rolled in blood, will be for burning, fuel for the fire.

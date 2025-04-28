@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they forsook the house of Jehovah, the God of their fathers, and served the Asherim and the idols: and wrath came upon Judah and Jerusalem for this their guiltiness.
+They forsook the house of Yahweh, the God of their fathers, and served the Asherim and the idols: and wrath came on Judah and Jerusalem for this their guiltiness.

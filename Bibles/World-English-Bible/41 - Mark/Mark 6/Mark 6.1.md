@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went out from thence; and he cometh into his own country; and his disciples follow him.
+He went out from there. He came into his own country, and his disciples followed him.

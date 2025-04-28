@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Deliver me out of the mire, and let me not sink: Let me be delivered from them that hate me, and out of the deep waters.
+Deliver me out of the mire, and don't let me sink. Let me be delivered from those who hate me, and out of the deep waters.

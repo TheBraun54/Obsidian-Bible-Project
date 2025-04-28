@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Better is it that thou shouldest not vow, than that thou shouldest vow and not pay.
+It is better that you should not vow, than that you should vow and not pay.

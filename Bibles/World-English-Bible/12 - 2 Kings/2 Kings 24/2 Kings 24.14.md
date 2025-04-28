@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he carried away all Jerusalem, and all the princes, and all the mighty men of valor, even ten thousand captives, and all the craftsmen and the smiths; none remained, save the poorest sort of the people of the land.
+He carried away all Jerusalem, and all the princes, and all the mighty men of valor, even ten thousand captives, and all the craftsmen and the smiths; none remained, except the poorest sort of the people of the land.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So then neither is he that planteth anything, neither he that watereth; but God that giveth the increase.
+So then neither he who plants is anything, nor he who waters, but God who gives the increase.

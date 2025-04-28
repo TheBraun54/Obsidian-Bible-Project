@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-House and riches are an inheritance from fathers; But a prudent wife is from Jehovah.
+House and riches are an inheritance from fathers, but a prudent wife is from Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Javan, Tubal, and Meshech, they were thy traffickers; they traded the persons of men and vessels of brass for thy merchandise.
+Javan, Tubal, and Meshech, they were your traffickers; they traded the persons of men and vessels of brass for your merchandise.

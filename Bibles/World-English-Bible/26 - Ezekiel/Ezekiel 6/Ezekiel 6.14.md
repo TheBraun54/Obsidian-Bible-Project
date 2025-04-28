@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will stretch out my hand upon them, and make the land desolate and waste, from the wilderness toward Diblah, throughout all their habitations: and they shall know that I am Jehovah.
+I will stretch out my hand on them, and make the land desolate and waste, from the wilderness toward Diblah, throughout all their habitations: and they shall know that I am Yahweh.

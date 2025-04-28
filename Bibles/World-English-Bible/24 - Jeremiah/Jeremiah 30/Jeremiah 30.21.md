@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And their prince shall be of themselves, and their ruler shall proceed from the midst of them; and I will cause him to draw near, and he shall approach unto me: for who is he that hath had boldness to approach unto me? saith Jehovah.
+Their prince shall be of themselves, and their ruler shall proceed from the midst of them; and I will cause him to draw near, and he shall approach to me: for who is he who has had boldness to approach to me? says Yahweh.

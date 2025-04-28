@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And straightway he called them: and they left their father Zebedee in the boat with the hired servants, and went after him.
+Immediately he called them, and they left their father, Zebedee, in the boat with the hired servants, and went after him.

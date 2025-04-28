@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then would I speak, and not fear him; For I am not so in myself.
+then I would speak, and not fear him, for I am not so in myself.

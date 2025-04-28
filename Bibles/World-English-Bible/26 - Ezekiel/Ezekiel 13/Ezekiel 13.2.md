@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, prophesy against the prophets of Israel that prophesy, and say thou unto them that prophesy out of their own heart, Hear ye the word of Jehovah:
+Son of man, prophesy against the prophets of Israel who prophesy, and say to those who prophesy out of their own heart, Hear the word of Yahweh:

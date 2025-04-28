@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Spirit entered into me when he spake unto me, and set me upon my feet; and I heard him that spake unto me.
+The Spirit entered into me when he spoke to me, and set me on my feet; and I heard him who spoke to me.

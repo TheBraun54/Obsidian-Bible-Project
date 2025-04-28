@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall make atonement for him as touching his sin that he hath sinned in any of these things, and he shall be forgiven: and [the remnant] shall be the priest's, as the meal-offering.
+The priest shall make atonement for him concerning his sin that he has sinned in any of these things, and he will be forgiven; and the rest shall be the priest's, as the meal offering.'"

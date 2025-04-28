@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I cleave unto thy testimonies: O Jehovah, put me not to shame.
+I cling to your statutes, Yahweh. Don't let me be disappointed.

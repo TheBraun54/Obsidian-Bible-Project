@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joseph was the governor over the land; he it was that sold to all the people of the land. And Joseph's brethren came, and bowed down themselves to him with their faces to the earth.
+Joseph was the governor over the land. It was he who sold to all the people of the land. Joseph's brothers came, and bowed themselves down to him with their faces to the earth.

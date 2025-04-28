@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These things speak and exhort and reprove with all authority. Let no man despise thee.
+Say these things and exhort and reprove with all authority. Let no man despise you.

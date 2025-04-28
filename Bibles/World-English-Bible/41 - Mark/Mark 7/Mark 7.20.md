@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, That which proceedeth out of the man, that defileth the man.
+He said, "That which proceeds out of the man, that defiles the man.

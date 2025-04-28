@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Also the foreigners that join themselves to Jehovah, to minister unto him, and to love the name of Jehovah, to be his servants, every one that keepeth the sabbath from profaning it, and holdeth fast my covenant;
+Also the foreigners who join themselves to Yahweh, to minister to him, and to love the name of Yahweh, to be his servants, everyone who keeps the Sabbath from profaning it, and holds fast my covenant;

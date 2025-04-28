@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the word of Jehovah came to Jehu the son of Hanani against Baasha, saying,
+The word of Yahweh came to Jehu the son of Hanani against Baasha, saying,

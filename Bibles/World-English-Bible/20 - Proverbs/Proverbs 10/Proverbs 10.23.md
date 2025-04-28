@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is as sport to a fool to do wickedness; And [so is] wisdom to a man of understanding.
+It is a fool's pleasure to do wickedness, but wisdom is a man of understanding's pleasure.

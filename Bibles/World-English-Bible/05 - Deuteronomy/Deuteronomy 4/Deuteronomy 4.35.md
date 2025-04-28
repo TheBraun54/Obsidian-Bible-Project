@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Unto thee it was showed, that thou mightest know that Jehovah he is God; there is none else besides him.
+It was shown to you so that you might know that Yahweh is God. There is no one else besides him.

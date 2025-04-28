@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he breaketh me with a tempest, And multiplieth my wounds without cause.
+For he breaks me with a storm, and multiplies my wounds without cause.

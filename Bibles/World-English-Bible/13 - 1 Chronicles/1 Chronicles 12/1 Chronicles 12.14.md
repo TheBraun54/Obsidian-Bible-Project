@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These of the sons of Gad were captains of the host: he that was least was equal to a hundred, and the greatest to a thousand.
+These of the sons of Gad were captains of the army: he who was least was equal to one hundred, and the greatest to one thousand.

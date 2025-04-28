@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And for the hinder part of the tabernacle westward he made six boards.
+For the far part of the tabernacle westward he made six boards.

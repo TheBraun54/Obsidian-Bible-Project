@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe to thee, Moab! Thou art undone, O people of Chemosh: He hath given his sons as fugitives, And his daughters into captivity, Unto Sihon king of the Amorites.
+Woe to you, Moab! You are undone, people of Chemosh! He has given his sons as fugitives, and his daughters into captivity, to Sihon king of the Amorites.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-No soldier on service entangleth himself in the affairs of [this] life; that he may please him who enrolled him as a soldier.
+No soldier on duty entangles himself in the affairs of life, that he may please him who enrolled him as a soldier.

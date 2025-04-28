@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It is another that beareth witness of me; and I know that the witness which he witnesseth of me is true.
+It is another who testifies about me. I know that the testimony which he testifies about me is true.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but we preach Christ crucified, unto Jews a stumblingblock, and unto Gentiles foolishness;
+but we preach Christ crucified; a stumbling block to Jews, and foolishness to Greeks,

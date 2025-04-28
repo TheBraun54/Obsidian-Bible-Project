@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they saw the star, they rejoiced with exceeding great joy.
+When they saw the star, they rejoiced with exceedingly great joy.

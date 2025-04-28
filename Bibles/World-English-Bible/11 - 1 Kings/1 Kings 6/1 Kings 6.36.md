@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he built the inner court with three courses of hewn stone, and a course of cedar beams.
+He built the inner court with three courses of cut stone, and a course of cedar beams.

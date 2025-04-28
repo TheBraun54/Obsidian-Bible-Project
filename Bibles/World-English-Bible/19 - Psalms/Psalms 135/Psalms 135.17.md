@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have ears, but they hear not; Neither is there any breath in their mouths.
+They have ears, but they can't hear; neither is there any breath in their mouths.

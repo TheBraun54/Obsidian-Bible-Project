@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who can discern [his] errors? Clear thou me from hidden [faults] .
+Who can discern his errors? Forgive me from hidden errors.

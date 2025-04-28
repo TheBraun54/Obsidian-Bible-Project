@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thy Maker is thy husband; Jehovah of hosts is his name: and the Holy One of Israel is thy Redeemer; the God of the whole earth shall he be called.
+For your Maker is your husband; Yahweh of Armies is his name: and the Holy One of Israel is your Redeemer; the God of the whole earth shall he be called.

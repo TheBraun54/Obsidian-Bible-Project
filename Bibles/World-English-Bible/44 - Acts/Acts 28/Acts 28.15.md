@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And from thence the brethren, when they heard of us, came to meet us as far as The Market of Appius and The Three Taverns; whom when Paul saw, he thanked God, and took courage.
+From there the brothers, when they heard of us, came to meet us as far as The Market of Appius and The Three Taverns. When Paul saw them, he thanked God, and took courage.

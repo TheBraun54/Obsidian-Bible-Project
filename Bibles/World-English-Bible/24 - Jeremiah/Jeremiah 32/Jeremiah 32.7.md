@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, Hanamel the son of Shallum thine uncle shall come unto thee, saying, Buy thee my field that is in Anathoth; for the right of redemption is thine to buy it.
+Behold, Hanamel the son of Shallum your uncle shall come to you, saying, Buy my field that is in Anathoth; for the right of redemption is yours to buy it.

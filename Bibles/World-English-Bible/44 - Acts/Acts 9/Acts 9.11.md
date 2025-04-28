@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Lord [said] unto him, Arise, and go to the street which is called Straight, and inquire in the house of Judas for one named Saul, a man of Tarsus: for behold, he prayeth;
+The Lord said to him, "Arise, and go to the street which is called Straight, and inquire in the house of Judah for one named Saul, a man of Tarsus. For behold, he is praying,

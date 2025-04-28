@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or when the flesh hath in the skin thereof a burning by fire, and the quick [flesh] of the burning become a bright spot, reddish-white, or white;
+"Or when the body has a burn from fire on its skin, and the raw flesh of the burn becomes a bright spot, reddish-white, or white,

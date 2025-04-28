@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thy brother, the son of thy mother, or thy son, or thy daughter, or the wife of thy bosom, or thy friend, that is as thine own soul, entice thee secretly, saying, Let us go and serve other gods, which thou hast not known, thou, nor thy fathers;
+If your brother, the son of your mother, or your son, or your daughter, or the wife of your bosom, or your friend, who is as your own soul, entice you secretly, saying, "Let us go and serve other gods," which you have not known, you, nor your fathers;

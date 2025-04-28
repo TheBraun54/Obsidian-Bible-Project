@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a woman, who had an issue of blood twelve years,
+A certain woman, who had an issue of blood for twelve years,

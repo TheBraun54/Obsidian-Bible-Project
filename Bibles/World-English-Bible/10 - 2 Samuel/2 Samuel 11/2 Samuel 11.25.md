@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then David said unto the messenger, Thus shalt thou say unto Joab, Let not this thing displease thee, for the sword devoureth one as well as another; make thy battle more strong against the city, and overthrow it: and encourage thou him.
+Then David said to the messenger, "Thus you shall tell Joab, 'Don't let this thing displease you, for the sword devours one as well as another. Make your battle stronger against the city, and overthrow it.' Encourage him."

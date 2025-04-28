@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Look on [my] right hand, and see; For there is no man that knoweth me: Refuge hath failed me; No man careth for my soul.
+Look on my right, and see; for there is no one who is concerned for me. Refuge has fled from me. No one cares for my soul.

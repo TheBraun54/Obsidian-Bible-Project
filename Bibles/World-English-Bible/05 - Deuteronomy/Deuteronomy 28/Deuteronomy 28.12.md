@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah will open unto thee his good treasure the heavens, to give the rain of thy land in its season, and to bless all the work of thy hand: and thou shalt lend unto many nations, and thou shalt not borrow.
+Yahweh will open to you his good treasure in the sky, to give the rain of your land in its season, and to bless all the work of your hand: and you shall lend to many nations, and you shall not borrow.

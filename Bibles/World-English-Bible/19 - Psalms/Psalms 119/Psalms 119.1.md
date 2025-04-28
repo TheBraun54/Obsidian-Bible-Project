@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-ALEPH. Blessed are they that are perfect in the way, Who walk in the law of Jehovah.
+Blessed are those whose ways are blameless, who walk according to Yahweh's law.

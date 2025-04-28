@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Abraham saith, They have Moses and the prophets; let them hear them.
+"But Abraham said to him, 'They have Moses and the prophets. Let them listen to them.'

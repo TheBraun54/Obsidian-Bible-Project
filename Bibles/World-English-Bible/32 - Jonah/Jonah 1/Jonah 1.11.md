@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said they unto him, What shall we do unto thee, that the sea may be calm unto us? for the sea grew more and more tempestuous.
+Then they said to him, "What shall we do to you, that the sea may be calm to us?" For the sea grew more and more stormy.

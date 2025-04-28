@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Go not forth into the field, nor walk by the way; for the sword of the enemy, [and] terror, are on every side.
+Don't go forth into the field, nor walk by the way; for the sword of the enemy, [and] terror, are on every side.

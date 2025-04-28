@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou art my hope, O Lord Jehovah: [Thou art] my trust from my youth.
+For you are my hope, Lord Yahweh; my confidence from my youth.

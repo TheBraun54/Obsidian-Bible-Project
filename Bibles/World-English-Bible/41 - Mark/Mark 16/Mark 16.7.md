@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But go, tell his disciples and Peter, He goeth before you into Galilee: there shall ye see him, as he said unto you.
+But go, tell his disciples and Peter, 'He goes before you into Galilee. There you will see him, as he said to you.'"

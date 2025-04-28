@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Unto you, O men, I call; And my voice is to the sons of men.
+"To you men, I call! I send my voice to the sons of mankind.

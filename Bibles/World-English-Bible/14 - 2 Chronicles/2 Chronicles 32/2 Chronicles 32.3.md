@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-he took counsel with his princes and his mighty men to stop the waters of the fountains which were without the city; and they helped him.
+he took counsel with his princes and his mighty men to stop the waters of the springs which were outside of the city; and they helped him.

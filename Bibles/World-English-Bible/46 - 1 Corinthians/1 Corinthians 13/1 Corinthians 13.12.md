@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For now we see in a mirror, darkly; but then face to face: now I know in part; but then shall I know fully even as also I was fully known.
+For now we see in a mirror, dimly, but then face to face. Now I know in part, but then I will know fully, even as I was also fully known.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the lords of the Philistines brought up to her seven green withes which had not been dried, and she bound him with them.
+Then the lords of the Philistines brought up to her seven green cords which had not been dried, and she bound him with them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Not that I seek for the gift; but I seek for the fruit that increaseth to your account.
+Not that I seek for the gift, but I seek for the fruit that increases to your account.

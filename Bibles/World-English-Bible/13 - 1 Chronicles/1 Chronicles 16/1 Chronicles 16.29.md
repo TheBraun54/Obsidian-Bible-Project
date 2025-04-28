@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ascribe unto Jehovah the glory due unto his name: Bring an offering, and come before him: Worship Jehovah in holy array.
+Ascribe to Yahweh the glory due to his name. Bring an offering, and come before him. Worship Yahweh in holy array.

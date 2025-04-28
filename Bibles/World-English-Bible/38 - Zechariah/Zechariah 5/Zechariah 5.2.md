@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto me, What seest thou? And I answered, I see a flying roll; the length thereof is twenty cubits, and the breadth thereof ten cubits.
+He said to me, "What do you see?" I answered, "I see a flying scroll; its length is twenty cubits, and its breadth ten cubits."

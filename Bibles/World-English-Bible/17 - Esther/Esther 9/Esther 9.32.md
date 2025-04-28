@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the commandment of Esther confirmed these matters of Purim; and it was written in the book.
+The commandment of Esther confirmed these matters of Purim; and it was written in the book.

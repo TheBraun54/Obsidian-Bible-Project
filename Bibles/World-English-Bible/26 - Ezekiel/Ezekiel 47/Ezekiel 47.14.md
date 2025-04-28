@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall inherit it, one as well as another; for I sware to give it unto your fathers: and this land shall fall unto you for inheritance.
+You shall inherit it, one as well as another; for I swore to give it to your fathers: and this land shall fall to you for inheritance.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will take away his blood out of his mouth, and his abominations from between his teeth; and he also shall be a remnant for our God; and he shall be as a chieftain in Judah, and Ekron as a Jebusite.
+I will take away his blood out of his mouth, and his abominations from between his teeth; and he also will be a remnant for our God; and he will be as a chieftain in Judah, and Ekron as a Jebusite.

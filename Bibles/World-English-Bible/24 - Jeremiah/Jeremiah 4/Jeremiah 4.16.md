@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-make ye mention to the nations; behold, publish against Jerusalem, [that] watchers come from a far country, and give out their voice against the cities of Judah.
+"Tell the nations; behold, publish against Jerusalem, 'Watchers come from a far country, and raise their voice against the cities of Judah.

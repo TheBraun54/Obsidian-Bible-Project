@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I will not drive them out from before thee in one year, lest the land become desolate, and the beasts of the field multiply against thee.
+I will not drive them out from before you in one year, lest the land become desolate, and the animals of the field multiply against you.

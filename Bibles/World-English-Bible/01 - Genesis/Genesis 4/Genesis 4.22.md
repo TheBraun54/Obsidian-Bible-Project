@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Zillah, she also bare Tubal-cain, the forger of every cutting instrument of brass and iron: and the sister of Tubal-cain was Naamah.
+Zillah also gave birth to Tubal Cain, the forger of every cutting instrument of brass and iron. Tubal Cain's sister was Naamah.

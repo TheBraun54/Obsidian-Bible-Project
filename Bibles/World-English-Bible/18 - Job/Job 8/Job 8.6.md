@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou wert pure and upright: Surely now he would awake for thee, And make the habitation of thy righteousness prosperous.
+If you were pure and upright, surely now he would awaken for you, and make the habitation of your righteousness prosperous.

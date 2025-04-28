@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-if ye then have dealt truly and uprightly with Jerubbaal and with his house this day, then rejoice ye in Abimelech, and let him also rejoice in you:
+if you then have dealt truly and righteously with Jerubbaal and with his house this day, then rejoice in Abimelech, and let him also rejoice in you:

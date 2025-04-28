@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, I am Jehovah that brought thee out of Ur of the Chaldees, to give thee this land to inherit it.
+He said to him, "I am Yahweh who brought you out of Ur of the Chaldees, to give you this land to inherit it."

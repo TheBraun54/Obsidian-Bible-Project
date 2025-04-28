@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, as Peter went throughout all parts, he came down also to the saints that dwelt at Lydda.
+It happened, as Peter went throughout all those parts, he came down also to the saints who lived at Lydda.

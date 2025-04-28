@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-save thyself, and come down from the cross.
+save yourself, and come down from the cross!"

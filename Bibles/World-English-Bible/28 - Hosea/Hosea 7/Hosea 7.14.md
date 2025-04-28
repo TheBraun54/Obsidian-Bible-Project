@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they have not cried unto me with their heart, but they howl upon their beds: they assemble themselves for grain and new wine; they rebel against me.
+They haven't cried to me with their heart, but they howl on their beds. They assemble themselves for grain and new wine. They turn away from me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto the people, Be ready against the third day: come not near a woman.
+He said to the people, "Be ready by the third day. Don't have sexual relations with a woman."

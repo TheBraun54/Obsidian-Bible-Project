@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they shall bring the glory and the honor of the nations into it:
+and they shall bring the glory and the honor of the nations into it so that they may enter.

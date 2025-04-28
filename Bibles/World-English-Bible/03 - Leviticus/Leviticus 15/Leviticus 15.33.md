@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and of her that is sick with her impurity, and of him that hath an issue, of the man, and of the woman, and of him that lieth with her that is unclean.
+and of her who has her period, and of a man or woman who has a discharge, and of him who lies with her who is unclean.

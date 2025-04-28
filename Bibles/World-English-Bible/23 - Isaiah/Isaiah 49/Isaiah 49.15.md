@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Can a woman forget her sucking child, that she should not have compassion on the son of her womb? yea, these may forget, yet will not I forget thee.
+"Can a woman forget her nursing child, that she should not have compassion on the son of her womb? Yes, these may forget, yet I will not forget you!

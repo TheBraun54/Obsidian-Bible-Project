@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for God is not [a God] of confusion, but of peace. As in all the churches of the saints,
+for God is not a God of confusion, but of peace. As in all the assemblies of the saints,

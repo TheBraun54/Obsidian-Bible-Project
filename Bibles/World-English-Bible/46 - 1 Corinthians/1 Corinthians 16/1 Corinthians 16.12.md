@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But as touching Apollos the brother, I besought him much to come unto you with the brethren: and it was not all [his] will to come now; but he will come when he shall have opportunity. [
+Now concerning Apollos, the brother, I strongly urged him to come to you with the brothers; and it was not at all his desire to come now; but he will come when he has an opportunity.

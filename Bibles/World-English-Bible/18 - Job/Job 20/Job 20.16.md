@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall suck the poison of asps: The viper's tongue shall slay him.
+He shall suck cobra venom. The viper's tongue shall kill him.

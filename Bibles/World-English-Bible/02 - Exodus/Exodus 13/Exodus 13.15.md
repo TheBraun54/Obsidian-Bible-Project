@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it came to pass, when Pharaoh would hardly let us go, that Jehovah slew all the first-born in the land of Egypt, both the first-born of man, and the first-born of beast: therefore I sacrifice to Jehovah all that openeth the womb, being males; but all the first-born of my sons I redeem.
+and it happened, when Pharaoh would hardly let us go, that Yahweh killed all the firstborn in the land of Egypt, both the firstborn of man, and the firstborn of animal. Therefore I sacrifice to Yahweh all that opens the womb, being males; but all the firstborn of my sons I redeem.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to enjoin them that they should keep the fourteenth day of the month Adar, and the fifteenth day of the same, yearly,
+to enjoin them that they should keep the fourteenth and fifteenth days of the month Adar yearly,

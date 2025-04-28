@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but let him that glorieth glory in this, that he hath understanding, and knoweth me, that I am Jehovah who exerciseth lovingkindness, justice, and righteousness, in the earth: for in these things I delight, saith Jehovah.
+but let him who glories glory in this, that he has understanding, and knows me, that I am Yahweh who exercises loving kindness, justice, and righteousness, in the earth: for in these things I delight, says Yahweh.

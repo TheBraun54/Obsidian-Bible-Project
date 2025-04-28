@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he cried unto Jehovah, and said, O Jehovah my God, hast thou also brought evil upon the widow with whom I sojourn, by slaying her son?
+He cried to Yahweh, and said, "Yahweh my God, have you also brought evil on the widow with whom I stay, by killing her son?"

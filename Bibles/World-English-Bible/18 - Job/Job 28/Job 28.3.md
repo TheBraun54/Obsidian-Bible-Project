@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Man] setteth an end to darkness, And searcheth out, to the furthest bound, The stones of obscurity and of thick darkness.
+Man sets an end to darkness, and searches out, to the furthest bound, the stones of obscurity and of thick darkness.

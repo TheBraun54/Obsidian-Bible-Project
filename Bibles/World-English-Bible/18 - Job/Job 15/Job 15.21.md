@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A sound of terrors is in his ears; In prosperity the destroyer shall come upon him.
+A sound of terrors is in his ears. In prosperity the destroyer shall come on him.

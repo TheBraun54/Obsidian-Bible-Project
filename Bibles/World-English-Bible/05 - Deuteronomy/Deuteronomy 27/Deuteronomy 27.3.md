@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and thou shalt write upon them all the words of this law, when thou art passed over; that thou mayest go in unto the land which Jehovah thy God giveth thee, a land flowing with milk and honey, as Jehovah, the God of thy fathers, hath promised thee.
+and you shall write on them all the words of this law, when you have passed over; that you may go in to the land which Yahweh your God gives you, a land flowing with milk and honey, as Yahweh, the God of your fathers, has promised you.

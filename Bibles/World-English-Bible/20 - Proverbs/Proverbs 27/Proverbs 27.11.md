@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My son, be wise, and make my heart glad, That I may answer him that reproacheth me.
+Be wise, my son, and bring joy to my heart, then I can answer my tormentor.

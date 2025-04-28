@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And, behold, ye are risen up in your fathers' stead, an increase of sinful men, to augment yet the fierce anger of Jehovah toward Israel.
+"Behold, you have risen up in your fathers' place, an increase of sinful men, to augment yet the fierce anger of Yahweh toward Israel.

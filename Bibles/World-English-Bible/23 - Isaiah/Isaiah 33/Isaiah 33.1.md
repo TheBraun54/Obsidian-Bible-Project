@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Woe to thee that destroyest, and thou wast not destroyed; and dealest treacherously, and they dealt not treacherously with thee! When thou hast ceased to destroy, thou shalt be destroyed; and when thou hast made an end of dealing treacherously, they shall deal treacherously with thee.
+Woe to you who destroy, but you weren't destroyed; and who betray, but nobody betrayed you! When you have finished destroying, you will be destroyed; and when you have made an end of betrayal, you will be betrayed.

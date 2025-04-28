@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will bring distress upon men, that they shall walk like blind men, because they have sinned against Jehovah; and their blood shall be poured out as dust, and their flesh as dung.
+I will bring distress on men, that they will walk like blind men, because they have sinned against Yahweh, and their blood will be poured out like dust, and their flesh like dung.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Damascus was thy merchant for the multitude of thy handiworks, by reason of the multitude of all kinds of riches, with the wine of Helbon, and white wool.
+Damascus was your merchant for the multitude of your handiworks, by reason of the multitude of all kinds of riches, with the wine of Helbon, and white wool.

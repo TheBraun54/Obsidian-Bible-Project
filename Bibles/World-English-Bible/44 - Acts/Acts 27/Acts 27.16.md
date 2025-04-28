@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And running under the lee of a small island called Cauda, we were able, with difficulty, to secure the boat:
+Running under the lee of a small island called Clauda, we were able, with difficulty, to secure the boat.

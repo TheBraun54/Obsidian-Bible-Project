@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehoshaphat his son reigned in his stead, and strengthened himself against Israel.
+Jehoshaphat his son reigned in his place, and strengthened himself against Israel.

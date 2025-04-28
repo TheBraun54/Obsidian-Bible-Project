@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of Asher he said, Blessed be Asher with children; Let him be acceptable unto his brethren, And let him dip his foot in oil.
+Of Asher he said, "Asher is blessed with children. Let him be acceptable to his brothers. Let him dip his foot in oil.

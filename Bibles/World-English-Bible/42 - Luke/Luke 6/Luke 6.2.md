@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But certain of the Pharisees said, Why do ye that which it is not lawful to do on the sabbath day?
+But some of the Pharisees said to them, "Why do you do that which is not lawful to do on the Sabbath day?"

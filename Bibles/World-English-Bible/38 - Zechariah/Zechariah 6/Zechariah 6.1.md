@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And again I lifted up mine eyes, and saw, and, behold, there came four chariots out from between two mountains; and the mountains were mountains of brass.
+Again I lifted up my eyes, and saw, and behold, four chariots came out from between two mountains; and the mountains were mountains of brass.

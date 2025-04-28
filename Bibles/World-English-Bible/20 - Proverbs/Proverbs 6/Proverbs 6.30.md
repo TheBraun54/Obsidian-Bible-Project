@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Men do not despise a thief, if he steal To satisfy himself when he is hungry:
+Men don't despise a thief, if he steals to satisfy himself when he is hungry:

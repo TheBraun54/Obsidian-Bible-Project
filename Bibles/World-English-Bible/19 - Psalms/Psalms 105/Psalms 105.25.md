@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He turned their heart to hate his people, To deal subtly with his servants.
+He turned their heart to hate his people, to conspire against his servants.

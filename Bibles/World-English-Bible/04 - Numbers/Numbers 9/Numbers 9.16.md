@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So it was alway: the cloud covered it, and the appearance of fire by night.
+So it was continually. The cloud covered it, and the appearance of fire by night.

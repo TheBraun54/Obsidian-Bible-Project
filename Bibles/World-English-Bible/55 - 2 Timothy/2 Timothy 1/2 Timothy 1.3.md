@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I thank God, whom I serve from my forefathers in a pure conscience, how unceasing is my remembrance of thee in my supplications, night and day
+I thank God, whom I serve as my forefathers did, with a pure conscience. How unceasing is my memory of you in my petitions, night and day

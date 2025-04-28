@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye that have escaped the sword, go ye, stand not still; remember Jehovah from afar, and let Jerusalem come into your mind.
+You who have escaped the sword, go, don't stand still; remember Yahweh from afar, and let Jerusalem come into your mind.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And his sons did unto him according as he commanded them:
+His sons did to him just as he commanded them,

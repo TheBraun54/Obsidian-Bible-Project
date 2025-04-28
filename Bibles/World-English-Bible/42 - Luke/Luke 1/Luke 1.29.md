@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But she was greatly troubled at the saying, and cast in her mind what manner of salutation this might be.
+But when she saw him, she was greatly troubled at the saying, and considered what kind of salutation this might be.

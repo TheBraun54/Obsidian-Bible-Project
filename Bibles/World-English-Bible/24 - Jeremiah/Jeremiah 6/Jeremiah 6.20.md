@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To what purpose cometh there to me frankincense from Sheba, and the sweet cane from a far country? your burnt-offerings are not acceptable, nor your sacrifices pleasing unto me.
+To what purpose comes there to me frankincense from Sheba, and the sweet cane from a far country? your burnt offerings are not acceptable, nor your sacrifices pleasing to me."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let my soul live, and it shall praise thee; And let thine ordinances help me.
+Let my soul live, that I may praise you. Let your ordinances help me.

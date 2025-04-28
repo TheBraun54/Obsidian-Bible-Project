@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear, O heavens, and give ear, O earth; for Jehovah hath spoken: I have nourished and brought up children, and they have rebelled against me.
+Hear, heavens, and listen, earth; for Yahweh has spoken: "I have nourished and brought up children, and they have rebelled against me.

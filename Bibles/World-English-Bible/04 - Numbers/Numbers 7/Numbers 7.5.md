@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take it of them, that they may be [used] in doing the service of the tent of meeting; and thou shalt give them unto the Levites, to every man according to his service.
+"Accept these from them, that they may be used in doing the service of the Tent of Meeting; and you shall give them to the Levites, to every man according to his service."

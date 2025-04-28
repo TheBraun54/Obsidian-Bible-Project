@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The sword of Jehovah is filled with blood, it is made fat with fatness, with the blood of lambs and goats, with the fat of the kidneys of rams; for Jehovah hath a sacrifice in Bozrah, and a great slaughter in the land of Edom.
+Yahweh's sword is filled with blood. It is covered with fat, with the blood of lambs and goats, with the fat of the kidneys of rams; for Yahweh has a sacrifice in Bozrah, And a great slaughter in the land of Edom.

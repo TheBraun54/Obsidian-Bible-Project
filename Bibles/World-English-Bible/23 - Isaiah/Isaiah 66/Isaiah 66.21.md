@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of them also will I take for priests [and] for Levites, saith Jehovah.
+Of them also will I take for priests [and] for Levites," says Yahweh.

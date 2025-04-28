@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Baldness is come upon Gaza; Ashkelon is brought to nought, the remnant of their valley: how long wilt thou cut thyself?
+Baldness is come on Gaza; Ashkelon is brought to nothing, the remnant of their valley: how long will you cut yourself?

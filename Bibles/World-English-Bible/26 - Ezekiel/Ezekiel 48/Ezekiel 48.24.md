@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And by the border of Benjamin, from the east side unto the west side, Simeon, one [portion] .
+By the border of Benjamin, from the east side to the west side, Simeon, one [portion].

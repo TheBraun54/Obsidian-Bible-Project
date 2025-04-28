@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore hearken unto me, ye men of understanding: Far be it from God, that he should do wickedness, And from the Almighty, that he should commit iniquity.
+"Therefore listen to me, you men of understanding: far be it from God, that he should do wickedness, from the Almighty, that he should commit iniquity.

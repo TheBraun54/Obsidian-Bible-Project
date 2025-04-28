@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the Arabah unto the sea of Chinneroth, eastward, and unto the sea of the Arabah, even the Salt Sea, eastward, the way to Beth-jeshimoth; and on the south, under the slopes of Pisgah:
+and the Arabah to the sea of Chinneroth, eastward, and to the sea of the Arabah, even the Salt Sea, eastward, the way to Beth Jeshimoth; and on the south, under the slopes of Pisgah:

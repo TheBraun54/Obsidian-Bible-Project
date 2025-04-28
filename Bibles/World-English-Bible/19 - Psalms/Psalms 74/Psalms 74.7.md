@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They have set thy sanctuary on fire; They have profaned the dwelling-place of thy name [by casting it] to the ground.
+They have burned your sanctuary to the ground. They have profaned the dwelling place of your Name.

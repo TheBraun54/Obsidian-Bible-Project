@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A wicked messenger falleth into evil; But a faithful ambassador is health.
+A wicked messenger falls into trouble, but a trustworthy envoy gains healing.

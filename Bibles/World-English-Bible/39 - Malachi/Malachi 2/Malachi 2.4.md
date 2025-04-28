@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall know that I have sent this commandment unto you, that my covenant may be with Levi, saith Jehovah of hosts.
+You will know that I have sent this commandment to you, that my covenant may be with Levi," says Yahweh of Armies.

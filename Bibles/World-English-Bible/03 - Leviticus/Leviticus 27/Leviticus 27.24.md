@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the year of jubilee the field shall return unto him of whom it was bought, even to him to whom the possession of the land belongeth.
+In the Year of Jubilee the field shall return to him from whom it was bought, even to him to whom the possession of the land belongs.

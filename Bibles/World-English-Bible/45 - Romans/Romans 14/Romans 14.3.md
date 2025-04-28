@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let not him that eateth set at nought him that eateth not; and let not him that eateth not judge him that eateth: for God hath received him.
+Don't let him who eats despise him who doesn't eat. Don't let him who doesn't eat judge him who eats, for God has accepted him.

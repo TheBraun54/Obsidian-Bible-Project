@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that separateth himself seeketh [his own] desire, And rageth against all sound wisdom.
+An unfriendly man pursues selfishness, and defies all sound judgment.

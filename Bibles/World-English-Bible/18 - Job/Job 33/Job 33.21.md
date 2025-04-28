@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-His flesh is consumed away, that it cannot be seen; And his bones that were not seen stick out.
+His flesh is so consumed away, that it can't be seen. His bones that were not seen stick out.

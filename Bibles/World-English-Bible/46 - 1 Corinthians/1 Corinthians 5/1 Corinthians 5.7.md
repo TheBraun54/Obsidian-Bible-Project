@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Purge out the old leaven, that ye may be a new lump, even as ye are unleavened. For our passover also hath been sacrificed, [even] Christ:
+Purge out the old yeast, that you may be a new lump, even as you are unleavened. For indeed Christ, our Passover, has been sacrificed in our place.

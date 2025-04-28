@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there was again war at Gath, where was a man of great stature, whose fingers and toes were four and twenty, six [on each hand], and six [on each foot] ; and he also was born unto the giant.
+There was again war at Gath, where there was a man of great stature, whose fingers and toes were twenty-four, six [on each hand], and six [on each foot]; and he also was born to the giant.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and join them for thee one to another into one stick, that they may become one in thy hand.
+and join them for you one to another into one stick, that they may become one in your hand.

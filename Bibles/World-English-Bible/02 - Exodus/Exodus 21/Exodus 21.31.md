@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whether it have gored a son, or have gored a daughter, according to this judgment shall it be done unto him.
+Whether it has gored a son or has gored a daughter, according to this judgment it shall be done to him.

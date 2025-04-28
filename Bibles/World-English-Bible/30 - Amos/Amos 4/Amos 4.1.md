@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hear this word, ye kine of Bashan, that are in the mountain of Samaria, that oppress the poor, that crush the needy, that say unto their lords, Bring, and let us drink.
+Listen to this word, you cows of Bashan, who are on the mountain of Samaria, who oppress the poor, who crush the needy, who tell their husbands, "Bring us drinks!"

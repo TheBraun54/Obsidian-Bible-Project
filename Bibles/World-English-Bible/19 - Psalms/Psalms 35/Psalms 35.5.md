@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them be as chaff before the wind, And the angel of Jehovah driving [them] on.
+Let them be as chaff before the wind, Yahweh's angel driving them on.

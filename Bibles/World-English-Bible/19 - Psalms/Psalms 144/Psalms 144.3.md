@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah, what is man, that thou takest knowledge of him? Or the son of man, that thou makest account of him?
+Yahweh, what is man, that you care for him? Or the son of man, that you think of him?

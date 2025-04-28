@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and ye have seen all that Jehovah your God hath done unto all these nations because of you; for Jehovah your God, he it is that hath fought for you.
+You have seen all that Yahweh your God has done to all these nations because of you; for it is Yahweh your God who has fought for you.

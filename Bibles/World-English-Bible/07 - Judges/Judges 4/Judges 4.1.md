@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel again did that which was evil in the sight of Jehovah, when Ehud was dead.
+The children of Israel again did that which was evil in the sight of Yahweh, when Ehud was dead.

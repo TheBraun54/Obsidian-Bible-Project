@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A gin shall take [him] by the heel, [And] a snare shall lay hold on him.
+A snare will take him by the heel. A trap will catch him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-gather the people, sanctify the assembly, assemble the old men, gather the children, and those that suck the breasts; let the bridegroom go forth from his chamber, and the bride out of her closet.
+Gather the people. Sanctify the assembly. Assemble the elders. Gather the children, and those who nurse from breasts. Let the bridegroom go forth from his room, and the bride out of her room.

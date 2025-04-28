@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the elders of Gilead said unto Jephthah, Therefore are we turned again to thee now, that thou mayest go with us, and fight with the children of Ammon; and thou shalt be our head over all the inhabitants of Gilead.
+The elders of Gilead said to Jephthah, "Therefore we have turned again to you now, that you may go with us, and fight with the children of Ammon; and you shall be our head over all the inhabitants of Gilead."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and have no fellowship with the unfruitful works of darkness, but rather even reprove them;
+Have no fellowship with the unfruitful works of darkness, but rather even reprove them.

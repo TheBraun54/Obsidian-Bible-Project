@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that loveth pureness of heart, [For] the grace of his lips the king will be his friend.
+He who loves purity of heart and speaks gracefully is the king's friend.

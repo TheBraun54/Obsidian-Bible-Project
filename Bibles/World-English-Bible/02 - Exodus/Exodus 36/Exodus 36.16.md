@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he coupled five curtains by themselves, and six curtains by themselves.
+He coupled five curtains by themselves, and six curtains by themselves.

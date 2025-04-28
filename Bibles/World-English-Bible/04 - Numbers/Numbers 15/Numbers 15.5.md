@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and wine for the drink-offering, the fourth part of a hin, shalt thou prepare with the burnt-offering, or for the sacrifice, for each lamb.
+and wine for the drink offering, the fourth part of a hin, you shall prepare with the burnt offering, or for the sacrifice, for each lamb.

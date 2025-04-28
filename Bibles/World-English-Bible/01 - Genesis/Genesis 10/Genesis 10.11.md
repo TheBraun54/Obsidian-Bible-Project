@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Out of that land he went forth into Assyria, and builded Nineveh, and Rehoboth-Ir, and Calah,
+Out of that land he went forth into Assyria, and built Nineveh, Rehoboth Ir, Calah,

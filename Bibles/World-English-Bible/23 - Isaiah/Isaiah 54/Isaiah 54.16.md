@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I have created the smith that bloweth the fire of coals, and bringeth forth a weapon for his work; and I have created the waster to destroy.
+"Behold, I have created the smith who blows the fire of coals, and brings forth a weapon for his work; and I have created the waster to destroy.

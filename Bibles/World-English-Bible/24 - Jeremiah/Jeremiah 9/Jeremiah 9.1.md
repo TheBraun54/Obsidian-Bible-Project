@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh that my head were waters, and mine eyes a fountain of tears, that I might weep day and night for the slain of the daughter of my people!
+Oh that my head were waters, and my eyes a spring of tears, that I might weep day and night for the slain of the daughter of my people!

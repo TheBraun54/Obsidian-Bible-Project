@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He burneth part thereof in the fire; with part thereof he eateth flesh; he roasteth roast, and is satisfied; yea, he warmeth himself, and saith, Aha, I am warm, I have seen the fire.
+He burns part of it in the fire. With part of it, he eats meat. He roasts a roast, and is satisfied. Yes, he warms himself, and says, "Aha! I am warm. I have seen the fire."

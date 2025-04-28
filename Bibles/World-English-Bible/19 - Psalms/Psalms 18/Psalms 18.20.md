@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah hath rewarded me according to my righteousness; According to the cleanness of my hands hath he recompensed me.
+Yahweh has rewarded me according to my righteousness. According to the cleanness of my hands has he recompensed me.

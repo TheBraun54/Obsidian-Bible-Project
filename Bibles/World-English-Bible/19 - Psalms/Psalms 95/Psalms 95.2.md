@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let us come before his presence with thanksgiving; Let us make a joyful noise unto him with psalms.
+Let's come before his presence with thanksgiving. Let's extol him with songs!

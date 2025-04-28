@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if ye are Christ's, then are ye Abraham's seed, heirs according to promise.
+If you are Christ's, then you are Abraham's seed and heirs according to promise.

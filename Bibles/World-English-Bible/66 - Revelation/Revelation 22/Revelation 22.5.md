@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there shall be night no more; and they need no light of lamp, neither light of sun; for the Lord God shall give them light: and they shall reign for ever and ever.
+There will be no night, and they need no lamp light; for the Lord God will illuminate them. They will reign forever and ever.

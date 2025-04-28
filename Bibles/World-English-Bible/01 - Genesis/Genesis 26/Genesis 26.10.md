@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abimelech said, What is this thou hast done unto us? One of the people might easily have lain with thy wife, and thou wouldest have brought guiltiness upon us.
+Abimelech said, "What is this you have done to us? One of the people might easily have lain with your wife, and you would have brought guilt on us!"

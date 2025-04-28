@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now the king was sitting in the winter-house in the ninth month: and [there was a fire in] the brazier burning before him.
+Now the king was sitting in the winter house in the ninth month: and [there was a fire in] the brazier burning before him.

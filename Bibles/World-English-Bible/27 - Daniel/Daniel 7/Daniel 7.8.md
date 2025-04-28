@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I considered the horns, and, behold, there came up among them another horn, a little one, before which three of the first horns were plucked up by the roots: and, behold, in this horn were eyes like the eyes of a man, and a mouth speaking great things.
+I considered the horns, and behold, there came up among them another horn, a little one, before which three of the first horns were plucked up by the roots: and behold, in this horn were eyes like the eyes of a man, and a mouth speaking great things.

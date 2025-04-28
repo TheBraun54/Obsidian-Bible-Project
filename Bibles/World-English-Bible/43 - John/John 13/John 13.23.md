@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There was at the table reclining in Jesus' bosom one of his disciples, whom Jesus loved.
+One of his disciples, whom Jesus loved, was at the table, leaning against Jesus' breast.

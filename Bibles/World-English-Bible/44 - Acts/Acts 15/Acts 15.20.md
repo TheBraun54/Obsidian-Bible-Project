@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but that we write unto them, that they abstain from the pollutions of idols, and from fornication, and from what is strangled, and from blood.
+but that we write to them that they abstain from the pollution of idols, from sexual immorality, from what is strangled, and from blood.

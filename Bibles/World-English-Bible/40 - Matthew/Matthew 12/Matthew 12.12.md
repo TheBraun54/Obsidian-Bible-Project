@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-How much then is a man of more value than a sheep! Wherefore it is lawful to do good on the sabbath day.
+Of how much more value then is a man than a sheep! Therefore it is lawful to do good on the Sabbath day."

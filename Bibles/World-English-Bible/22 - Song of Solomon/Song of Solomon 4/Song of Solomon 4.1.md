@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, thou art fair, my love; behold, thou art fair; Thine eyes are [as] doves behind thy veil. Thy hair is as a flock of goats, That lie along the side of mount Gilead.
+Behold, you are beautiful, my love. Behold, you are beautiful. Your eyes are doves behind your veil. Your hair is as a flock of goats, that descend from Mount Gilead.

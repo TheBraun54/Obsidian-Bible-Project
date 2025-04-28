@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So they sat down, and did eat and drink, both of them together: and the damsel's father said unto the man, Be pleased, I pray thee, to tarry all night, and let thy heart be merry.
+So they sat down, ate, and drank, both of them together: and the young lady's father said to the man, "Please be pleased to stay all night, and let your heart be merry."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass, if they will diligently learn the ways of my people, to swear by my name, As Jehovah liveth; even as they taught my people to swear by Baal; then shall they be built up in the midst of my people.
+It shall happen, if they will diligently learn the ways of my people, to swear by my name, As Yahweh lives; even as they taught my people to swear by Baal; then shall they be built up in the midst of my people.

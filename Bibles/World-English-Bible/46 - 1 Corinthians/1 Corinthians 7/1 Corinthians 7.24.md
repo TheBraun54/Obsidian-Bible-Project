@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Brethren, let each man, wherein he was called, therein abide with God.
+Brothers, let each man, in whatever condition he was called, stay in that condition with God.

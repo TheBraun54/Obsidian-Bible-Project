@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A continual dropping in a very rainy day And a contentious woman are alike:
+A continual dropping on a rainy day and a contentious wife are alike:

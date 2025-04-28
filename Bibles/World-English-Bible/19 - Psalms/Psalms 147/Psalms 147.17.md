@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He casteth forth his ice like morsels: Who can stand before his cold?
+He hurls down his hail like pebbles. Who can stand before his cold?

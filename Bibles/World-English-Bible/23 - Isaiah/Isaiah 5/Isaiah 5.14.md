@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore Sheol hath enlarged its desire, and opened its mouth without measure; and their glory, and their multitude, and their pomp, and he that rejoiceth among them, descend [into it] . [
+Therefore Sheol has enlarged its desire, and opened its mouth without measure; and their glory, their multitude, their pomp, and he who rejoices among them, descend into it.

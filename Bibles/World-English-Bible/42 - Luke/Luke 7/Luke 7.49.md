@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they that sat at meat with him began to say within themselves, Who is this that even forgiveth sins?
+Those who sat at the table with him began to say to themselves, "Who is this who even forgives sins?"

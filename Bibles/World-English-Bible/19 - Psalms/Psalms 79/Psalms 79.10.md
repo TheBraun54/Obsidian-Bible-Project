@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore should the nations say, Where is their God? Let the avenging of the blood of thy servants which is shed Be known among the nations in our sight.
+Why should the nations say, "Where is their God?" Let it be known among the nations, before our eyes, that vengeance for your servants' blood is being poured out.

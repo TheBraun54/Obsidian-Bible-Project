@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and be ye yourselves like unto men looking for their lord, when he shall return from the marriage feast; that, when he cometh and knocketh, they may straightway open unto him.
+Be like men watching for their lord, when he returns from the marriage feast; that, when he comes and knocks, they may immediately open to him.

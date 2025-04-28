@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-PERES; thy kingdom is divided, and given to the Medes and Persians.
+PERES; your kingdom is divided, and given to the Medes and Persians.

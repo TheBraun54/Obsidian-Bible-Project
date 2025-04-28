@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Amaziah was twenty and five years old when he began to reign; and he reigned twenty and nine years in Jerusalem: and his mother's name was Jehoaddan, of Jerusalem.
+Amaziah was twenty-five years old when he began to reign; and he reigned twenty-nine years in Jerusalem: and his mother's name was Jehoaddan, of Jerusalem.

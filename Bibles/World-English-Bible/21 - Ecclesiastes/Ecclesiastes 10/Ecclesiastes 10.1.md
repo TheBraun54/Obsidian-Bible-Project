@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Dead flies cause the oil of the perfumer to send forth an evil odor; [so] doth a little folly outweigh wisdom and honor.
+Dead flies cause the oil of the perfumer to send forth an evil odor; so does a little folly outweigh wisdom and honor.

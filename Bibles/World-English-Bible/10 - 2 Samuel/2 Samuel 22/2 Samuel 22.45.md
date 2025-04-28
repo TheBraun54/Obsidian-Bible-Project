@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The foreigners shall submit themselves unto me: As soon as they hear of me, they shall obey me.
+The foreigners will submit themselves to me. As soon as they hear of me, they will obey me.

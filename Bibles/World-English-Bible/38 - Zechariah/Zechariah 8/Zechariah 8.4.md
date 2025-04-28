@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah of hosts: There shall yet old men and old women dwell in the streets of Jerusalem, every man with his staff in his hand for very age.
+Thus says Yahweh of Armies: "Old men and old women will again dwell in the streets of Jerusalem, every man with his staff in his hand for very age.

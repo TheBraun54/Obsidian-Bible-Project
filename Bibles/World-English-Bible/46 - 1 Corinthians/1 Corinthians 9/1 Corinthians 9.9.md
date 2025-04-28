@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For it is written in the law of Moses, Thou shalt not muzzle the ox when he treadeth out the corn. Is it for the oxen that God careth,
+For it is written in the law of Moses, "You shall not muzzle an ox while it treads out the grain." Is it for the oxen that God cares,

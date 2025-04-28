@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day there shall be a fountain opened to the house of David and to the inhabitants of Jerusalem, for sin and for uncleanness.
+"In that day there will be a spring opened to the house of David and to the inhabitants of Jerusalem, for sin and for uncleanness.

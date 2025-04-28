@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall take the basket out of thy hand, and set it down before the altar of Jehovah thy God.
+The priest shall take the basket out of your hand, and set it down before the altar of Yahweh your God.

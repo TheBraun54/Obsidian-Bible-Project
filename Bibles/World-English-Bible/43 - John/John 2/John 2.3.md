@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the wine failed, the mother of Jesus saith unto him, They have no wine.
+When the wine ran out, Jesus' mother said to him, "They have no wine."

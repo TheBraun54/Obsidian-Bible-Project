@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I pray not that thou shouldest take them from the world, but that thou shouldest keep them from the evil [one] .
+I pray not that you would take them from the world, but that you would keep them from the evil one.

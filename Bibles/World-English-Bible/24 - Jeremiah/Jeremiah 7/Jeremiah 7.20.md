@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith the Lord Jehovah: Behold, mine anger and my wrath shall be poured out upon this place, upon man, and upon beast, and upon the trees of the field, and upon the fruit of the ground; and it shall burn, and shall not be quenched.
+Therefore thus says the Lord Yahweh: Behold, my anger and my wrath shall be poured out on this place, on man, and on animal, and on the trees of the field, and on the fruit of the ground; and it shall burn, and shall not be quenched.

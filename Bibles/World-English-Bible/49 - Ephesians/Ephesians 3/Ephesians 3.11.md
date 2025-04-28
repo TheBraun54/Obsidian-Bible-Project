@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-according to the eternal purpose which he purposed in Christ Jesus our Lord:
+according to the eternal purpose which he purposed in Christ Jesus our Lord;

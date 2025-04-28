@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On the cliff she dwelleth, and maketh her home, Upon the point of the cliff, and the stronghold.
+On the cliff he dwells, and makes his home, on the point of the cliff, and the stronghold.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus saith Jehovah, who maketh a way in the sea, and a path in the mighty waters;
+Thus says Yahweh, who makes a way in the sea, and a path in the mighty waters;

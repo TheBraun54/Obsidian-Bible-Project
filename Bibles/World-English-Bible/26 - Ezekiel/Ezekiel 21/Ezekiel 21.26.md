@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-thus saith the Lord Jehovah: Remove the mitre, and take off the crown; this [shall be] no more the same; exalt that which is low, and abase that which is high. [
+thus says the Lord Yahweh: Remove the turban, and take off the crown; this [shall be] no more the same; exalt that which is low, and abase that which is high.

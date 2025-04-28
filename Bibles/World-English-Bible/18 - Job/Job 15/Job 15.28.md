@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he hath dwelt in desolate cities, In houses which no man inhabited, Which were ready to become heaps;
+He has lived in desolate cities, in houses which no one inhabited, which were ready to become heaps.

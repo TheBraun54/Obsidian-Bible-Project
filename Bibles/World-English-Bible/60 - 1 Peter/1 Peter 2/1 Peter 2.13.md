@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be subject to every ordinance of man for the Lord's sake: whether to the king, as supreme;
+Therefore subject yourselves to every ordinance of man for the Lord's sake: whether to the king, as supreme;

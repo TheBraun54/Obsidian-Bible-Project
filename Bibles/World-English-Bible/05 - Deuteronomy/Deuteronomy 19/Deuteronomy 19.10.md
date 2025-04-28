@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that innocent blood be not shed in the midst of thy land, which Jehovah thy God giveth thee for an inheritance, and so blood be upon thee.
+that innocent blood not be shed in the midst of your land, which Yahweh your God gives you for an inheritance, and so blood be on you.

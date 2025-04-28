@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed be God, Who hath not turned away my prayer, Nor his lovingkindness from me.
+Blessed be God, who has not turned away my prayer, nor his loving kindness from me. For the Chief Musician. With stringed instruments. A Psalm. A song.

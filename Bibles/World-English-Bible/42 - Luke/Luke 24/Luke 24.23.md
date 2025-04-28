@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when they found not his body, they came, saying, that they had also seen a vision of angels, who said that he was alive.
+and when they didn't find his body, they came saying that they had also seen a vision of angels, who said that he was alive.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when they perceived that he was a Jew, all with one voice about the space of two hours cried out, Great is Diana of the Ephesians.
+But when they perceived that he was a Jew, all with one voice for a time of about two hours cried out, "Great is Artemis of the Ephesians!"

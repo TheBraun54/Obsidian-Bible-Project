@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Your memorable sayings are proverbs of ashes, Your defences are defences of clay.
+Your memorable sayings are proverbs of ashes, Your defenses are defenses of clay.

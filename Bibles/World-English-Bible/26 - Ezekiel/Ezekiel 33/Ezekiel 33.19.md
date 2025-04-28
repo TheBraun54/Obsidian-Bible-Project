@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the wicked turneth from his wickedness, and doeth that which is lawful and right, he shall live thereby.
+When the wicked turns from his wickedness, and does that which is lawful and right, he shall live thereby.

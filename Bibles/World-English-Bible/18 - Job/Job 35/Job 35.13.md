@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Surely God will not hear an empty [cry], Neither will the Almighty regard it.
+Surely God will not hear an empty cry, neither will the Almighty regard it.

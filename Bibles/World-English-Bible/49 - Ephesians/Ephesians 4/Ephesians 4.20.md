@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But ye did not so learn Christ;
+But you did not learn Christ that way;

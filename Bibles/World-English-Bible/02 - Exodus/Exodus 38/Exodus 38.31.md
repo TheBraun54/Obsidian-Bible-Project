@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the sockets of the court round about, and the sockets of the gate of the court, and all the pins of the tabernacle, and all the pins of the court round about.
+the sockets around the court, the sockets of the gate of the court, all the pins of the tabernacle, and all the pins around the court.

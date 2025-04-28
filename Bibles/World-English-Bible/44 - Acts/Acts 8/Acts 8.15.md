@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who, when they were come down, prayed for them, that they might receive the Holy Spirit:
+who, when they had come down, prayed for them, that they might receive the Holy Spirit;

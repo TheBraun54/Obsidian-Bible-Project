@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And between the chambers was a breadth of twenty cubits round about the house on every side.
+Between the rooms was a breadth of twenty cubits around the house on every side.

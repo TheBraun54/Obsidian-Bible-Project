@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he brought me through the entry, which was at the side of the gate, into the holy chambers for the priests, which looked toward the north: and, behold, there was a place on the hinder part westward.
+Then he brought me through the entry, which was at the side of the gate, into the holy rooms for the priests, which looked toward the north: and behold, there was a place on the hinder part westward.

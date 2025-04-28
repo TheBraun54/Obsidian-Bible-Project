@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had considered [the thing], he came to the house of Mary the mother of John whose surname was Mark; where many were gathered together and were praying.
+Thinking about that, he came to the house of Mary, the mother of John whose surname was Mark, where many were gathered together and were praying.

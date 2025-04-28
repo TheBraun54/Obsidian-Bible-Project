@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah visited Hannah, and she conceived, and bare three sons and two daughters. And the child Samuel grew before Jehovah.
+Yahweh visited Hannah, and she conceived, and bore three sons and two daughters. The child Samuel grew before Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king said, Fetch me a sword. And they brought a sword before the king.
+The king said, "Get me a sword." They brought a sword before the king.

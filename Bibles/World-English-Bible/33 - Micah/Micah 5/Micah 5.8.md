@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the remnant of Jacob shall be among the nations, in the midst of many peoples, as a lion among the beasts of the forest, as a young lion among the flocks of sheep; who, if he go through, treadeth down and teareth in pieces, and there is none to deliver.
+The remnant of Jacob will be among the nations, in the midst of many peoples, like a lion among the animals of the forest, like a young lion among the flocks of sheep; who, if he goes through, treads down and tears in pieces, and there is no one to deliver.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the eleventh year, in the month Bul, which is the eighth month, was the house finished throughout all the parts thereof, and according to all the fashion of it. So was he seven years in building it.
+In the eleventh year, in the month Bul, which is the eighth month, was the house finished throughout all its parts, and according to all its fashion. So was he seven years in building it.

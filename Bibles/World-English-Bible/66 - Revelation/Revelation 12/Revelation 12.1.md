@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a great sign was seen in heaven: a woman arrayed with the sun, and the moon under her feet, and upon her head a crown of twelve stars;
+A great sign was seen in heaven: a woman clothed with the sun, and the moon under her feet, and on her head a crown of twelve stars.

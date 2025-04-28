@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-We are not again commending ourselves unto you, but [speak] as giving you occasion of glorying on our behalf, that ye may have wherewith to answer them that glory in appearance, and not in heart.
+For we are not commending ourselves to you again, but speak as giving you occasion of boasting on our behalf, that you may have something to answer those who boast in appearance, and not in heart.

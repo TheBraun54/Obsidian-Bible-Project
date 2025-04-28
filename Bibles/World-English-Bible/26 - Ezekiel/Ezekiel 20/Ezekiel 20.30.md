@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Wherefore say unto the house of Israel, Thus saith the Lord Jehovah: Do ye pollute yourselves after the manner of your fathers? and play ye the harlot after their abominations?
+Therefore tell the house of Israel, Thus says the Lord Yahweh: Do you pollute yourselves in the way of your fathers? and do you play the prostitute after their abominations?

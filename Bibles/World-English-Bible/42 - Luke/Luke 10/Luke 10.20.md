@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Nevertheless in this rejoice not, that the spirits are subject unto you; but rejoice that your names are written in heaven.
+Nevertheless, don't rejoice in this, that the spirits are subject to you, but rejoice that your names are written in heaven."

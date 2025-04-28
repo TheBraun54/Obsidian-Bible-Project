@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be no longer a drinker of water, but use a little wine for thy stomach's sake and thine often infirmities.
+Be no longer a drinker of water only, but use a little wine for your stomach's sake and your frequent infirmities.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And while they were looking stedfastly into heaven as he went, behold, two men stood by them in white apparel;
+While they were looking steadfastly into the sky as he went, behold, two men stood by them in white clothing,

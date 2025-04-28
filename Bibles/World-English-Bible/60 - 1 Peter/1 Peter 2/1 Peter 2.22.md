@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who did no sin, neither was guile found in his mouth:
+who did not sin, "neither was deceit found in his mouth."

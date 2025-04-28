@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abraham was a hundred years old, when his son Isaac was born unto him.
+Abraham was one hundred years old when his son, Isaac, was born to him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto them, Nay, but to see the nakedness of the land ye are come.
+He said to them, "No, but you have come to see the nakedness of the land!"

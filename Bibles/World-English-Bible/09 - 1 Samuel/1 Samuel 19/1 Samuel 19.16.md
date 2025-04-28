@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the messengers came in, behold, the teraphim was in the bed, with the pillow of goats' [hair] at the head thereof.
+When the messengers came in, behold, the teraphim was in the bed, with the pillow of goats' hair at its head.

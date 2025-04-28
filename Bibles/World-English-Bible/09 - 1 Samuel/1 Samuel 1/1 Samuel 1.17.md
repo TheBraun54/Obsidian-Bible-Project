@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Eli answered and said, Go in peace; and the God of Israel grant thy petition that thou hast asked of him.
+Then Eli answered, "Go in peace; and may the God of Israel grant your petition that you have asked of him."

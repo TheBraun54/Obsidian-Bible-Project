@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And inasmuch as [it is] not without the taking of an oath
+Inasmuch as he was not made priest without the taking of an oath

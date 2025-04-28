@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore say, Thus saith the Lord Jehovah: I will gather you from the peoples, and assemble you out of the countries where ye have been scattered, and I will give you the land of Israel.
+Therefore say, Thus says the Lord Yahweh: I will gather you from the peoples, and assemble you out of the countries where you have been scattered, and I will give you the land of Israel.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But there is forgiveness with thee, That thou mayest be feared.
+But there is forgiveness with you, therefore you are feared.

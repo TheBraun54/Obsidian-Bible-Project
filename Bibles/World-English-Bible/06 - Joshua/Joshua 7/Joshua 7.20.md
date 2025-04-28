@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Achan answered Joshua, and said, Of a truth I have sinned against Jehovah, the God of Israel, and thus and thus have I done:
+Achan answered Joshua, and said, "I have truly sinned against Yahweh, the God of Israel, and this is what I have done.

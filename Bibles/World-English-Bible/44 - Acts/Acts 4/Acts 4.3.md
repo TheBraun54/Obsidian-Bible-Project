@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they laid hands on them, and put them in ward unto the morrow: for it was now eventide.
+They laid hands on them, and put them in custody until the next day, for it was now evening.

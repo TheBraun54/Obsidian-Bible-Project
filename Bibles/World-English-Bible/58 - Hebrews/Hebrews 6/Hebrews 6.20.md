@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-whither as a forerunner Jesus entered for us, having become a high priest for ever after the order of Melchizedek.
+where as a forerunner Jesus entered for us, having become a high priest forever after the order of Melchizedek.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh bless our God, ye peoples, And make the voice of his praise to be heard;
+Praise our God, you peoples! Make the sound of his praise heard,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I beheld the mountains, and, lo, they trembled, and all the hills moved to and fro.
+I saw the mountains, and behold, they trembled, and all the hills moved back and forth.

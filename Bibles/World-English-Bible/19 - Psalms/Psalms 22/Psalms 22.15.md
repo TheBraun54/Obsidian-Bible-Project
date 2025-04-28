@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-My strength is dried up like a potsherd; And my tongue cleaveth to my jaws; And thou hast brought me into the dust of death.
+My strength is dried up like a potsherd. My tongue sticks to the roof of my mouth. You have brought me into the dust of death.

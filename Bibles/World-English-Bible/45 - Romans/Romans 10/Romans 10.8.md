@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But what saith it? The word is nigh thee, in thy mouth, and in thy heart: that is, the word of faith, which we preach:
+But what does it say? "The word is near you, in your mouth, and in your heart;" that is, the word of faith, which we preach:

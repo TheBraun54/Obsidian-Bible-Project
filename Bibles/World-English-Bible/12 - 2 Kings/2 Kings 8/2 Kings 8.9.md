@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Hazael went to meet him, and took a present with him, even of every good thing of Damascus, forty camels' burden, and came and stood before him, and said, Thy son Benhadad king of Syria hath sent me to thee, saying, Shall I recover of this sickness?
+So Hazael went to meet him, and took a present with him, even of every good thing of Damascus, forty camels' burden, and came and stood before him, and said, "Your son Benhadad king of Syria has sent me to you, saying, 'Will I recover from this sickness?'"

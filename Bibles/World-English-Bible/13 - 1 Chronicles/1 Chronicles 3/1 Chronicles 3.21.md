@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Hananiah: Pelatiah, and Jeshaiah; the sons of Rephaiah, the sons of Arnan, the sons of Obadiah, the sons of Shecaniah.
+The sons of Hananiah: Pelatiah, and Jeshaiah; the sons of Rephaiah, the sons of Arnan, the sons of Obadiah, the sons of Shecaniah.

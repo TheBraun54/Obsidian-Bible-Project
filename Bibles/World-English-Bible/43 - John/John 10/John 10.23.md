@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-it was winter; and Jesus was walking in the temple in Solomon's porch.
+It was winter, and Jesus was walking in the temple, in Solomon's porch.

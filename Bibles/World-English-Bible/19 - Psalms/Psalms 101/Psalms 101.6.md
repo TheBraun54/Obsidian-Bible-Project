@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Mine eyes shall be upon the faithful of the land, that they may dwell with me: He that walketh in a perfect way, he shall minister unto me.
+My eyes will be on the faithful of the land, that they may dwell with me. He who walks in a perfect way, he will serve me.

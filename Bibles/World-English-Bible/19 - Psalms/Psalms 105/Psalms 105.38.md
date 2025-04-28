@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Egypt was glad when they departed; For the fear of them had fallen upon them.
+Egypt was glad when they departed, for the fear of them had fallen on them.

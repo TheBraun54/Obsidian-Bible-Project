@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he had tarried among them not more than eight or ten days, he went down unto Caesarea; and on the morrow he sat on the judgment-seat, and commanded Paul to be brought.
+When he had stayed among them more than ten days, he went down to Caesarea, and on the next day he sat on the judgment seat, and commanded Paul to be brought.

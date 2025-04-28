@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And men shall dwell therein, and there shall be no more curse; but Jerusalem shall dwell safely.
+Men will dwell therein, and there will be no more curse; but Jerusalem will dwell safely.

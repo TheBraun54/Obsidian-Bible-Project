@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let us go, we pray thee, unto the Jordan, and take thence every man a beam, and let us make us a place there, where we may dwell. And he answered, Go ye.
+Please let us go to the Jordan, and every man take a beam from there, and let us make us a place there, where we may dwell." He answered, "Go!"

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If ye were of the world, the world would love its own: but because ye are not of the world, but I chose you out of the world, therefore the world hateth you.
+If you were of the world, the world would love its own. But because you are not of the world, since I chose you out of the world, therefore the world hates you.

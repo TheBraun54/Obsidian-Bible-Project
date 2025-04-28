@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they called the name of the city Dan, after the name of Dan their father, who was born unto Israel: howbeit the name of the city was Laish at the first.
+They called the name of the city Dan, after the name of Dan their father, who was born to Israel: however the name of the city was Laish at the first.

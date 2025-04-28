@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that is wounded in the stones, or hath his privy member cut off, shall not enter into the assembly of Jehovah.
+He who is wounded in the stones, or has his privy member cut off, shall not enter into the assembly of Yahweh.

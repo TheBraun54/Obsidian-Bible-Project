@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And brother shall deliver up brother to death, and the father his child: and children shall rise up against parents, and cause them to be put to death.
+"Brother will deliver up brother to death, and the father his child. Children will rise up against parents, and cause them to be put to death.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For through thy knowledge he that is weak perisheth, the brother for whose sake Christ died.
+And through your knowledge, he who is weak perishes, the brother for whose sake Christ died.

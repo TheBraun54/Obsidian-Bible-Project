@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I fell unto the ground, and heard a voice saying unto me, Saul, Saul, why persecutest thou me?
+I fell to the ground, and heard a voice saying to me, 'Saul, Saul, why are you persecuting me?'

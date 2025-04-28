@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They shall be left together unto the ravenous birds of the mountains, and to the beasts of the earth; and the ravenous birds shall summer upon them, and all the beasts of the earth shall winter upon them.
+They will be left together for the ravenous birds of the mountains, and for the animals of the earth. The ravenous birds will summer on them, and all the animals of the earth will winter on them.

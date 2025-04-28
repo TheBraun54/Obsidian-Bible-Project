@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they consider not in their hearts that I remember all their wickedness: now have their own doings beset them about; they are before my face.
+They don't consider in their hearts that I remember all their wickedness. Now their own deeds have engulfed them. They are before my face.

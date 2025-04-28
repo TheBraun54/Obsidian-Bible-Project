@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And of the sons of Shephatiah, Zebadiah the son of Michael; and with him fourscore males.
+Of the sons of Shephatiah, Zebadiah the son of Michael; and with him eighty males.

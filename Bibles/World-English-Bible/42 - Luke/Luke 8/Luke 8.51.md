@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when he came to the house, he suffered not any man to enter in with him, save Peter, and John, and James, and the father of the maiden and her mother.
+When he came to the house, he didn't allow anyone to enter in, except Peter, John, James, the father of the child, and her mother.

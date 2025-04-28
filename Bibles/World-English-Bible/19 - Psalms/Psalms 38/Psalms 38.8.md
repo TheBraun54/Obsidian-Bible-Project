@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I am faint and sore bruised: I have groaned by reason of the disquietness of my heart.
+I am faint and severely bruised. I have groaned by reason of the anguish of my heart.

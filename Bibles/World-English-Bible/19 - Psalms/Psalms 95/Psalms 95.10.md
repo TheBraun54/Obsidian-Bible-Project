@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Forty years long was I grieved with [that] generation, And said, It is a people that do err in their heart, And they have not known my ways:
+Forty long years I was grieved with that generation, and said, "It is a people that errs in their heart. They have not known my ways."

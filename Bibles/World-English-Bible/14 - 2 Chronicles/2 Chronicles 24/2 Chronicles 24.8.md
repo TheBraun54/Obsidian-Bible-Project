@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the king commanded, and they made a chest, and set it without at the gate of the house of Jehovah.
+So the king commanded, and they made a chest, and set it outside at the gate of the house of Yahweh.

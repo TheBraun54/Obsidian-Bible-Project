@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-(as it is written, A father of many nations have I made thee) before him whom he believed, [even] God, who giveth life to the dead, and calleth the things that are not, as though they were.
+As it is written, "I have made you a father of many nations." This is in the presence of him whom he believed: God, who gives life to the dead, and calls the things that are not, as though they were.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he carved [thereon] cherubim and palm-trees and open flowers; and he overlaid them with gold fitted upon the graven work.
+He carved [thereon] cherubim and palm trees and open flowers; and he overlaid them with gold fitted on the engraved work.

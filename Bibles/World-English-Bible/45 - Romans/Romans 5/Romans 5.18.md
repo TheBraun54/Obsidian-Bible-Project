@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So then as through one trespass [the judgment came] unto all men to condemnation; even so through one act of righteousness [the free gift came] unto all men to justification of life.
+So then as through one trespass, all men were condemned; even so through one act of righteousness, all men were justified to life.

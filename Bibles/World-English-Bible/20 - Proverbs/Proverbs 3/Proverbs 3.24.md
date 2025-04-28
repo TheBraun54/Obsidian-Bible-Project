@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thou liest down, thou shalt not be afraid: Yea, thou shalt lie down, and thy sleep shall be sweet.
+When you lie down, you will not be afraid. Yes, you will lie down, and your sleep will be sweet.

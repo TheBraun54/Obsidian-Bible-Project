@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he is gone down this day, and hath slain oxen and fatlings and sheep in abundance, and hath called all the king's sons, and the captains of the host, and Abiathar the priest; and, behold, they are eating and drinking before him, and say, [Long] live king Adonijah.
+For he is gone down this day, and has slain cattle and fatlings and sheep in abundance, and has called all the king's sons, and the captains of the army, and Abiathar the priest. Behold, they are eating and drinking before him, and say, 'Long live king Adonijah!'

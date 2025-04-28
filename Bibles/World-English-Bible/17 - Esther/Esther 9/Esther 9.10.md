@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the ten sons of Haman the son of Hammedatha, the Jew's enemy, slew they; but on the spoil they laid not their hand.
+the ten sons of Haman the son of Hammedatha, the Jew's enemy, but they didn't lay their hand on the plunder.

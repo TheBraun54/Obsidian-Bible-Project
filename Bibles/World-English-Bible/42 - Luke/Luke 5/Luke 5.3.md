@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he entered into one of the boats, which was Simon's, and asked him to put out a little from the land. And he sat down and taught the multitudes out of the boat.
+He entered into one of the boats, which was Simon's, and asked him to put out a little from the land. He sat down and taught the multitudes from the boat.

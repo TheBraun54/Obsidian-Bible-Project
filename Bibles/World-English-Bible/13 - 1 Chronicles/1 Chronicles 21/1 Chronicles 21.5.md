@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joab gave up the sum of the numbering of the people unto David. And all they of Israel were a thousand thousand and a hundred thousand men that drew sword: and Judah was four hundred threescore and ten thousand men that drew sword.
+Joab gave up the sum of the numbering of the people to David. All those of Israel were one million one hundred thousand men who drew sword: and in Judah were four hundred seventy thousand men who drew sword.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-on the east were three gates; and on the north three gates; and on the south three gates; and on the west three gates.
+On the east were three gates; and on the north three gates; and on the south three gates; and on the west three gates.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I have not sent them, saith Jehovah, but they prophesy falsely in my name; that I may drive you out, and that ye may perish, ye, and the prophets that prophesy unto you.
+For I have not sent them, says Yahweh, but they prophesy falsely in my name; that I may drive you out, and that you may perish, you, and the prophets who prophesy to you.

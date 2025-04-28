@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the fat thereof shall he burn upon the altar, as the fat of the sacrifice of peace-offerings; and the priest shall make atonement for him as concerning his sin, and he shall be forgiven.
+All its fat he shall burn on the altar, like the fat of the sacrifice of peace offerings; and the priest shall make atonement for him concerning his sin, and he will be forgiven.

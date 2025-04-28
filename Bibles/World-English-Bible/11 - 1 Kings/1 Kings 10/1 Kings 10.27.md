@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king made silver to be in Jerusalem as stones, and cedars made he to be as the sycomore-trees that are in the lowland, for abundance.
+The king made silver to be in Jerusalem as stones, and cedars made he to be as the sycamore trees that are in the lowland, for abundance.

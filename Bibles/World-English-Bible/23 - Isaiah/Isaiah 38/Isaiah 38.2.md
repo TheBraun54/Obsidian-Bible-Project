@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Hezekiah turned his face to the wall, and prayed unto Jehovah,
+Then Hezekiah turned his face to the wall and prayed to Yahweh,

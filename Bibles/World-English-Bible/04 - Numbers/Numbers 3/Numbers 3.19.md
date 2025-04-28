@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Kohath by their families: Amram, and Izhar, Hebron, and Uzziel.
+The sons of Kohath by their families: Amram, and Izhar, Hebron, and Uzziel.

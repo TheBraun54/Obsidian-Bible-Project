@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said, Like as my servant Isaiah hath walked naked and barefoot three years for a sign and a wonder concerning Egypt and concerning Ethiopia;
+Yahweh said, "As my servant Isaiah has walked naked and barefoot three years for a sign and a wonder concerning Egypt and concerning Ethiopia,

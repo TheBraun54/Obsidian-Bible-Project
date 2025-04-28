@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when the sun was going down, a deep sleep fell upon Abram; and, lo, a horror of great darkness fell upon him.
+When the sun was going down, a deep sleep fell on Abram. Now terror and great darkness fell on him.

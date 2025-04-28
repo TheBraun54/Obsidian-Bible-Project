@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the saying which he cried by the word of Jehovah against the altar in Beth-el, and against all the houses of the high places which are in the cities of Samaria, shall surely come to pass.
+For the saying which he cried by the word of Yahweh against the altar in Bethel, and against all the houses of the high places which are in the cities of Samaria, will surely happen."

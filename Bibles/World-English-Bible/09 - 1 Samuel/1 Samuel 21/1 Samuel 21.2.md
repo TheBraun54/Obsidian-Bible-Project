@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said unto Ahimelech the priest, The king hath commanded me a business, and hath said unto me, Let no man know anything of the business whereabout I send thee, and what I have commanded thee: and I have appointed the young men to such and such a place.
+David said to Ahimelech the priest, "The king has commanded me a business, and has said to me, 'Let no man know anything of the business about which I send you, and what I have commanded you; and I have appointed the young men to such and such a place.'

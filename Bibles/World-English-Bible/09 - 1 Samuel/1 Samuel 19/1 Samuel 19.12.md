@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So Michal let David down through the window: and he went, and fled, and escaped.
+So Michal let David down through the window. He went, fled, and escaped.

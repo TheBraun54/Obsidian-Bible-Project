@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After these things came Jesus and his disciples into the land of Judea; and there he tarried with them, and baptized.
+After these things, Jesus came with his disciples into the land of Judea. He stayed there with them, and baptized.

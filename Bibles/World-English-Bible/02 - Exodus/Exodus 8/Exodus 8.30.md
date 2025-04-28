@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses went out from Pharaoh, and entreated Jehovah.
+Moses went out from Pharaoh, and prayed to Yahweh.

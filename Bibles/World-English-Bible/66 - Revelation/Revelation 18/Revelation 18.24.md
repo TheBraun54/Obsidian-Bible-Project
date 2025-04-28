@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in her was found the blood of prophets and of saints, and of all that have been slain upon the earth.
+In her was found the blood of prophets and of saints, and of all who have been slain on the earth."

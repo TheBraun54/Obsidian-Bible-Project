@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the anointed priest shall take of the blood of the bullock, and bring it to the tent of meeting:
+The anointed priest shall take some of the blood of the bull, and bring it to the Tent of Meeting.

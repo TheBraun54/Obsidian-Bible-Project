@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when they believed Philip preaching good tidings concerning the kingdom of God and the name of Jesus Christ, they were baptized, both men and women.
+But when they believed Philip preaching good news concerning the Kingdom of God and the name of Jesus Christ, they were baptized, both men and women.

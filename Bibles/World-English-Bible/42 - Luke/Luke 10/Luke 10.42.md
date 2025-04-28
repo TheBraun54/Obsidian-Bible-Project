@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but one thing is needful: for Mary hath chosen the good part, which shall not be taken away from her.
+but one thing is needed. Mary has chosen the good part, which will not be taken away from her."

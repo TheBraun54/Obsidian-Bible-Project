@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When thy wares went forth out of the seas, thou filledst many peoples; thou didst enrich the kings of the earth with the multitude of thy riches and of thy merchandise.
+When your wares went forth out of the seas, you filled many peoples; you did enrich the kings of the earth with the multitude of your riches and of your merchandise.

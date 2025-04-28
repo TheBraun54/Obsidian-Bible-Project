@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-These things said his parents, because they feared the Jews: for the Jews had agreed already, that if any man should confess him [to be] Christ, he should be put out of the synagogue.
+His parents said these things because they feared the Jews; for the Jews had already agreed that if any man would confess him as Christ, he would be put out of the synagogue.

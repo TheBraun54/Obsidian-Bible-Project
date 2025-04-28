@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Take the sum of all the congregation of the children of Israel, from twenty years old and upward, by their fathers' houses, all that are able to go forth to war in Israel.
+"Take a census of all the congregation of the children of Israel, from twenty years old and upward, by their fathers' houses, all who are able to go forth to war in Israel."

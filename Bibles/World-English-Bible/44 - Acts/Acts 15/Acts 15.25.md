@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-it seemed good unto us, having come to one accord, to choose out men and send them unto you with our beloved Barnabas and Paul,
+it seemed good to us, having come to one accord, to choose out men and send them to you with our beloved Barnabas and Paul,

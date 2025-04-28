@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And after these things Jesus walked in Galilee: for he would not walk in Judaea, because the Jews sought to kill him.
+After these things, Jesus was walking in Galilee, for he wouldn't walk in Judea, because the Jews sought to kill him.

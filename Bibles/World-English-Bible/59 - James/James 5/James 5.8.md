@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be ye also patient; establish your hearts: for the coming of the Lord is at hand.
+You also be patient. Establish your hearts, for the coming of the Lord is at hand.

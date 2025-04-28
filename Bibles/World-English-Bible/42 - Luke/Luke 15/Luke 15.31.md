@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him, Son, thou art ever with me, and all that is mine is thine.
+"He said to him, 'Son, you are always with me, and all that is mine is yours.

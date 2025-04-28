@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Saul said, Let us go down after the Philistines by night, and take spoil among them until the morning light, and let us not leave a man of them. And they said, Do whatsoever seemeth good unto thee. Then said the priest, Let us draw near hither unto God.
+Saul said, "Let us go down after the Philistines by night, and take spoil among them until the morning light, and let us not leave a man of them." They said, "Do whatever seems good to you." Then the priest said, "Let us draw near here to God."

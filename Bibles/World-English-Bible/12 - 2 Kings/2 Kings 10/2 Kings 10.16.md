@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Come with me, and see my zeal for Jehovah. So they made him ride in his chariot.
+He said, "Come with me, and see my zeal for Yahweh." So they made him ride in his chariot.

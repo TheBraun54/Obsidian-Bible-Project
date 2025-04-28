@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jesus no more answered anything; insomuch that Pilate marvelled.
+But Jesus made no further answer, so that Pilate marveled.

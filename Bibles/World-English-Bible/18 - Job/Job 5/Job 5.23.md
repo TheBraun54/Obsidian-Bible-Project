@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou shalt be in league with the stones of the field; And the beasts of the field shall be at peace with thee.
+For you shall be allied with the stones of the field. The animals of the field shall be at peace with you.

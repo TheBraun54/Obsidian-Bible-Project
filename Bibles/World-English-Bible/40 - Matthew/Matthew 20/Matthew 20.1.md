@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the kingdom of heaven is like unto a man that was a householder, who went out early in the morning to hire laborers into his vineyard.
+"For the Kingdom of Heaven is like a man who was the master of a household, who went out early in the morning to hire laborers for his vineyard.

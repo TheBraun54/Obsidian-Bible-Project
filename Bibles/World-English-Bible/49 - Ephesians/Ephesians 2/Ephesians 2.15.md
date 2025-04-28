@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-having abolished in his flesh the enmity, [even] the law of commandments [contained] in ordinances; that he might create in himself of the two one new man, [so] making peace;
+having abolished in the flesh the hostility, the law of commandments contained in ordinances, that he might create in himself one new man of the two, making peace;

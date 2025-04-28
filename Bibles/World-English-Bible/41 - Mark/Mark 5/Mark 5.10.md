@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he besought him much that he would not send them away out of the country.
+He begged him much that he would not send them away out of the country.

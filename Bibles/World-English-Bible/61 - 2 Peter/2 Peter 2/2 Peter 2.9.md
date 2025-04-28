@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-the Lord knoweth how to deliver the godly out of temptation, and to keep the unrighteous under punishment unto the day of judgment;
+the Lord knows how to deliver the godly out of temptation and to keep the unrighteous under punishment for the day of judgment;

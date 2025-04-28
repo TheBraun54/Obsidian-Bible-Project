@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this deed of the queen will come abroad unto all women, to make their husbands contemptible in their eyes, when it shall be reported, The king Ahasuerus commanded Vashti the queen to be brought in before him, but she came not.
+For this deed of the queen will become known to all women, causing them to show contempt for their husbands, when it is reported, 'King Ahasuerus commanded Vashti the queen to be brought in before him, but she didn't come.'

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, prophesy against the shepherds of Israel, prophesy, and say unto them, even to the shepherds, Thus saith the Lord Jehovah: Woe unto the shepherds of Israel that do feed themselves! should not the shepherds feed the sheep?
+Son of man, prophesy against the shepherds of Israel, prophesy, and tell them, even to the shepherds, Thus says the Lord Yahweh: Woe to the shepherds of Israel who feed themselves! Shouldn't the shepherds feed the sheep?

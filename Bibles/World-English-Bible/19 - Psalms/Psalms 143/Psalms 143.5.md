@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I remember the days of old; I meditate on all thy doings; I muse on the work of thy hands.
+I remember the days of old. I meditate on all your doings. I contemplate the work of your hands.

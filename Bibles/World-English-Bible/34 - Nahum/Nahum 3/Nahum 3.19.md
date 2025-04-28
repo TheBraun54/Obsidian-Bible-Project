@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There is no assuaging of thy hurt: thy wound is grievous: all that hear the report of thee clap their hands over thee; for upon whom hath not thy wickedness passed continually?
+There is no healing your wound, for your injury is fatal. All who hear the report of you clap their hands over you; for who hasn't felt your endless cruelty?

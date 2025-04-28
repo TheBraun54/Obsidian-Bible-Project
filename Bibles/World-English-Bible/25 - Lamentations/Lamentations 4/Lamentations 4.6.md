@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the iniquity of the daughter of my people is greater than the sin of Sodom, That was overthrown as in a moment, and no hands were laid upon her.
+For the iniquity of the daughter of my people is greater than the sin of Sodom, That was overthrown as in a moment, and no hands were laid on her.

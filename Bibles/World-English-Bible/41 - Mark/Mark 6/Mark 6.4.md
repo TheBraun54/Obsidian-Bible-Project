@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus said unto them, A prophet is not without honor, save in his own country, and among his own kin, and in his own house.
+Jesus said to them, "A prophet is not without honor, except in his own country, and among his own relatives, and in his own house."

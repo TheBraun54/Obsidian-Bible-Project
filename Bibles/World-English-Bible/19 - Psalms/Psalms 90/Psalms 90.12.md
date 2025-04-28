@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So teach us to number our days, That we may get us a heart of wisdom.
+So teach us to number our days, that we may gain a heart of wisdom.

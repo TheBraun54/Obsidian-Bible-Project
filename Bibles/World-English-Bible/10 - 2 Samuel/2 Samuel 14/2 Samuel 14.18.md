@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the king answered and said unto the woman, Hide not from me, I pray thee, aught that I shall ask thee. And the woman said, Let my lord the king now speak.
+Then the king answered the woman, "Please don't hide anything from me that I ask you." The woman said, "Let my lord the king now speak."

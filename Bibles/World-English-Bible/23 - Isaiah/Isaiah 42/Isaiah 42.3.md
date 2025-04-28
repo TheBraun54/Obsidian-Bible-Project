@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A bruised reed will he not break, and a dimly burning wick will he not quench: he will bring forth justice in truth.
+He won't break a bruised reed. He won't quench a dimly burning wick. He will faithfully bring justice.

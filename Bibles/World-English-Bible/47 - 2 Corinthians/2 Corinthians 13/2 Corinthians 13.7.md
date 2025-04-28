@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now we pray to God that ye do no evil; not that we may appear approved, but that ye may do that which is honorable, though we be as reprobate.
+Now I pray to God that you do no evil; not that we may appear approved, but that you may do that which is honorable, though we are as reprobate.

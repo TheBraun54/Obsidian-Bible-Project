@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the way of peace have they not known:
+The way of peace, they haven't known."

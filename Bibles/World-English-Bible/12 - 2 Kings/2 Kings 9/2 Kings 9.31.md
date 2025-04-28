@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as Jehu entered in at the gate, she said, Is it peace, thou Zimri, thy master's murderer?
+As Jehu entered in at the gate, she said, "Do you come in peace, Zimri, you murderer of your master?"

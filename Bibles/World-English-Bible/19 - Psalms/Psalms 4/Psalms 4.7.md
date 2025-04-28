@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou hast put gladness in my heart, More than [they have] when their grain and their new wine are increased.
+You have put gladness in my heart, more than when their grain and their new wine are increased.

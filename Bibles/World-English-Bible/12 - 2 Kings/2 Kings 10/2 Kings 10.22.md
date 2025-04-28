@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said unto him that was over the vestry, Bring forth vestments for all the worshippers of Baal. And he brought them forth vestments.
+He said to him who was over the vestry, "Bring out robes for all the worshippers of Baal!" He brought robes out to them.

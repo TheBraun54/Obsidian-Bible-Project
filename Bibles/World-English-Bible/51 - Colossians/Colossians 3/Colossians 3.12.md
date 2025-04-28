@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Put on therefore, as God's elect, holy and beloved, a heart of compassion, kindness, lowliness, meekness, longsuffering;
+Put on therefore, as God's chosen ones, holy and beloved, a heart of compassion, kindness, lowliness, humility, and perseverance;

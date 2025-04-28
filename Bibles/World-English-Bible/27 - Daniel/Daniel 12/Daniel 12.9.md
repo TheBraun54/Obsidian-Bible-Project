@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he said, Go thy way, Daniel; for the words are shut up and sealed till the time of the end.
+He said, Go your way, Daniel; for the words are shut up and sealed until the time of the end.

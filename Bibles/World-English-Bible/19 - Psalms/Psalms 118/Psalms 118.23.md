@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This is Jehovah's doing; It is marvellous in our eyes.
+This is Yahweh's doing. It is marvelous in our eyes.

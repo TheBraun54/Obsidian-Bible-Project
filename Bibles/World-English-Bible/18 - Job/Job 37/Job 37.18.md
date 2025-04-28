@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Canst thou with him spread out the sky, Which is strong as a molten mirror?
+Can you, with him, spread out the sky, which is strong as a cast metal mirror?

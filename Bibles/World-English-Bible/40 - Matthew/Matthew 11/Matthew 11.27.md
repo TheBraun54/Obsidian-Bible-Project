@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All things have been delivered unto me of my Father: and no one knoweth the Son, save the Father; neither doth any know the Father, save the Son, and he to whomsoever the Son willeth to reveal [him] .
+All things have been delivered to me by my Father. No one knows the Son, except the Father; neither does anyone know the Father, except the Son, and he to whom the Son desires to reveal him.

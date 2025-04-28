@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So she caught him, and kissed him, [And] with an impudent face she said unto him:
+So she caught him, and kissed him. With an impudent face she said to him:

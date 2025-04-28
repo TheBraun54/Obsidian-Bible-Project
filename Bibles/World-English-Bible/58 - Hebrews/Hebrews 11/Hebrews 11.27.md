@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-By faith he forsook Egypt, not fearing the wrath of the king: for he endured, as seeing him who is invisible.
+By faith, he left Egypt, not fearing the wrath of the king; for he endured, as seeing him who is invisible.

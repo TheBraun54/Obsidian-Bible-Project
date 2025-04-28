@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he flattereth himself in his own eyes, That his iniquity will not be found out and be hated.
+For he flatters himself in his own eyes, too much to detect and hate his sin.

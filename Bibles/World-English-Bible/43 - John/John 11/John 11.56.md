@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They sought therefore for Jesus, and spake one with another, as they stood in the temple, What think ye? That he will not come to the feast?
+Then they sought for Jesus and spoke one with another, as they stood in the temple, "What do you think--that he isn't coming to the feast at all?"

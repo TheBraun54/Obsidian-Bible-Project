@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not deceived: Evil companionships corrupt good morals.
+Don't be deceived! "Evil companionships corrupt good morals."

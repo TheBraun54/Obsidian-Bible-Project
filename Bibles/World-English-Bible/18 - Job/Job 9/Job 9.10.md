@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That doeth great things past finding out, Yea, marvellous things without number.
+He does great things past finding out; yes, marvelous things without number.

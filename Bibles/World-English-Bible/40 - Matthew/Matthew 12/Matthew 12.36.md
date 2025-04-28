@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I say unto you, that every idle word that men shall speak, they shall give account thereof in the day of judgment.
+I tell you that every idle word that men speak, they will give account of it in the day of judgment.

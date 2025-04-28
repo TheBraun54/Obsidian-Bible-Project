@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Reuben built Heshbon, and Elealeh, and Kiriathaim,
+The children of Reuben built Heshbon, and Elealeh, and Kiriathaim,

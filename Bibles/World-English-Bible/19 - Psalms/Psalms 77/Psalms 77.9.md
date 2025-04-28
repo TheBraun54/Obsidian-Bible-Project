@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hath God forgotten to be gracious? Hath he in anger shut up his tender mercies? {{Selah
+Has God forgotten to be gracious? Has he, in anger, withheld his compassion?" Selah.

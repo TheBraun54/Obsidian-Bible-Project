@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, when he went into the house of one of the rulers of the Pharisees on a sabbath to eat bread, that they were watching him.
+It happened, when he went into the house of one of the rulers of the Pharisees on a Sabbath to eat bread, that they were watching him.

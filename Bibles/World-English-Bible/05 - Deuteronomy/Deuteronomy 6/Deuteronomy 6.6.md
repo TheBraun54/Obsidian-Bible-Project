@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these words, which I command thee this day, shall be upon thy heart;
+These words, which I command you this day, shall be on your heart;

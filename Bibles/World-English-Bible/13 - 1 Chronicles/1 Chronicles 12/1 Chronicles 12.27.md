@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehoiada was the leader of [the house of] Aaron; and with him were three thousand and seven hundred,
+Jehoiada was the leader of [the house of] Aaron; and with him were three thousand and seven hundred,

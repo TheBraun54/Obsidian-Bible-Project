@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The earth is given into the hand of the wicked; He covereth the faces of the judges thereof: If [it be] not [he], who then is it?
+The earth is given into the hand of the wicked. He covers the faces of its judges. If not he, then who is it?

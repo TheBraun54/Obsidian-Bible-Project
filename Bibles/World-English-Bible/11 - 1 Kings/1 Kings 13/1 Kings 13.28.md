@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he went and found his body cast in the way, and the ass and the lion standing by the body: the lion had not eaten the body, nor torn the ass.
+He went and found his body cast in the way, and the donkey and the lion standing by the body. The lion had not eaten the body, nor mauled the donkey.

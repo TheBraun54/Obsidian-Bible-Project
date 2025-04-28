@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I have no man likeminded, who will care truly for your state.
+For I have no one else like-minded, who will truly care about you.

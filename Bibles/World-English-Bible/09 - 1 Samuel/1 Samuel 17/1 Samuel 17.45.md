@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then said David to the Philistine, Thou comest to me with a sword, and with a spear, and with a javelin: but I come to thee in the name of Jehovah of hosts, the God of the armies of Israel, whom thou hast defied.
+Then David said to the Philistine, "You come to me with a sword, and with a spear, and with a javelin: but I come to you in the name of Yahweh of Armies, the God of the armies of Israel, whom you have defied.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and let us arise, and go up to Beth-el; and I will make there an altar unto God, who answered me in the day of my distress, and was with me in the way which I went.
+Let us arise, and go up to Bethel. I will make there an altar to God, who answered me in the day of my distress, and was with me in the way which I went."

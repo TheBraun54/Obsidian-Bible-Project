@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Israel [was] holiness unto Jehovah, the first-fruits of his increase: all that devour him shall be held guilty; evil shall come upon them, saith Jehovah.
+Israel [was] holiness to Yahweh, the first fruits of his increase. All who devour him shall be held guilty. Evil shall come on them,"' says Yahweh."

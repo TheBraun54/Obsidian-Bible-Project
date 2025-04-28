@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in the hill-country, Shamir, and Jattir, and Socoh,
+In the hill country, Shamir, Jattir, Socoh,

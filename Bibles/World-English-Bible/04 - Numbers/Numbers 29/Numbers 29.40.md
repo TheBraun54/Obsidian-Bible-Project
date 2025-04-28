@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses told the children of Israel according to all that Jehovah commanded Moses.
+Moses told the children of Israel according to all that Yahweh commanded Moses.

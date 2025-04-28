@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore the anger of Jehovah was kindled against Israel, and he sold them into the hand of Cushan-rishathaim king of Mesopotamia: and the children of Israel served Cushan-rishathaim eight years.
+Therefore the anger of Yahweh was kindled against Israel, and he sold them into the hand of Cushan Rishathaim king of Mesopotamia: and the children of Israel served Cushan Rishathaim eight years.

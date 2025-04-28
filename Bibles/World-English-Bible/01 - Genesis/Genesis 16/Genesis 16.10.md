@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the angel of Jehovah said unto her, I will greatly multiply thy seed, that it shall not be numbered for multitude.
+The angel of Yahweh said to her, "I will greatly multiply your seed, that they will not be numbered for multitude."

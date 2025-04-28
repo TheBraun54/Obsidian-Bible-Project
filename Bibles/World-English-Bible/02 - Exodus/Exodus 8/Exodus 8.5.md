@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto Moses, Say unto Aaron, Stretch forth thy hand with thy rod over the rivers, over the streams, and over the pools, and cause frogs to come up upon the land of Egypt.
+Yahweh said to Moses, "Tell Aaron, 'Stretch forth your hand with your rod over the rivers, over the streams, and over the pools, and cause frogs to come up on the land of Egypt.'"

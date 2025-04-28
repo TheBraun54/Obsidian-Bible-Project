@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-This was the word of Jehovah which he spake unto Jehu, saying, Thy sons to the fourth generation shall sit upon the throne of Israel. And so it came to pass.
+This was the word of Yahweh which he spoke to Jehu, saying, "Your sons to the fourth generation shall sit on the throne of Israel." So it came to pass.

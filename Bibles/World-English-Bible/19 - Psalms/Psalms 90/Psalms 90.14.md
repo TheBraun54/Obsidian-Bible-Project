@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh satisfy us in the morning with thy lovingkindness, That we may rejoice and be glad all our days.
+Satisfy us in the morning with your loving kindness, that we may rejoice and be glad all our days.

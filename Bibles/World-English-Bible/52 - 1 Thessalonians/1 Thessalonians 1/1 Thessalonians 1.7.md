@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-so that ye became an ensample to all that believe in Macedonia and in Achaia.
+so that you became an example to all who believe in Macedonia and in Achaia.

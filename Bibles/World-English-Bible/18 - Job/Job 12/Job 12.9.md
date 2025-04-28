@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who knoweth not in all these, That the hand of Jehovah hath wrought this,
+Who doesn't know that in all these, the hand of Yahweh has done this,

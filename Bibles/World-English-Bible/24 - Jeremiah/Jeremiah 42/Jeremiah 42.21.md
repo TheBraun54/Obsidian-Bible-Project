@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I have this day declared it to you; but ye have not obeyed the voice of Jehovah your God in anything for which he hath sent me unto you.
+and I have this day declared it to you; but you have not obeyed the voice of Yahweh your God in anything for which he has sent me to you.

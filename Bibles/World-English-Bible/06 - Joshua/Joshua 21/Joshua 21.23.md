@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And out of the tribe of Dan, Elteke with its suburbs, Gibbethon with its suburbs,
+Out of the tribe of Dan, Elteke with its suburbs, Gibbethon with its suburbs,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It shall be accomplished before his time, And his branch shall not be green.
+It shall be accomplished before his time. His branch shall not be green.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And as soon as she saw them she doted upon them, and sent messengers unto them into Chaldea.
+As soon as she saw them she doted on them, and sent messengers to them into Chaldea.

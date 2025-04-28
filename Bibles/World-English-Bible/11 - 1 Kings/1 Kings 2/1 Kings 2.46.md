@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the king commanded Benaiah the son of Jehoiada; and he went out, and fell upon him, so that he died. And the kingdom was established in the hand of Solomon.
+So the king commanded Benaiah the son of Jehoiada; and he went out, and fell on him, so that he died. The kingdom was established in the hand of Solomon.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brought that which Moses commanded before the tent of meeting: and all the congregation drew near and stood before Jehovah.
+They brought what Moses commanded before the Tent of Meeting: and all the congregation drew near and stood before Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He that receiveth a prophet in the name of a prophet shall receive a prophet's reward: and he that receiveth a righteous man in the name of a righteous man shall receive a righteous man's reward.
+He who receives a prophet in the name of a prophet will receive a prophet's reward. He who receives a righteous man in the name of a righteous man will receive a righteous man's reward.

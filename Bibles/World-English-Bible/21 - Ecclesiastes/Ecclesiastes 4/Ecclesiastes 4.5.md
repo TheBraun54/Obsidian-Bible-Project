@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The fool foldeth his hands together, and eateth his own flesh.
+The fool folds his hands together and ruins himself.

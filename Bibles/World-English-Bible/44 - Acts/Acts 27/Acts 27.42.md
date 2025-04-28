@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the soldiers' counsel was to kill the prisoners, lest any [of them] should swim out, and escape.
+The soldiers' counsel was to kill the prisoners, so that none of them would swim out and escape.

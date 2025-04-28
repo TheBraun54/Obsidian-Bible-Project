@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt therefore keep this ordinance in its season from year to year.
+You shall therefore keep this ordinance in its season from year to year.

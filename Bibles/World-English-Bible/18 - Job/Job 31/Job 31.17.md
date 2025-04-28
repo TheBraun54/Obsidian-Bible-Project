@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or have eaten my morsel alone, And the fatherless hath not eaten thereof
+or have eaten my morsel alone, and the fatherless has not eaten of it

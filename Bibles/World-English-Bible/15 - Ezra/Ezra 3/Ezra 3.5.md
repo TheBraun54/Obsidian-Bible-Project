@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and afterward the continual burnt-offering, and [the offerings] of the new moons, and of all the set feasts of Jehovah that were consecrated, and of every one that willingly offered a freewill-offering unto Jehovah.
+and afterward the continual burnt offering, and [the offerings] of the new moons, and of all the set feasts of Yahweh that were consecrated, and of everyone who willingly offered a freewill offering to Yahweh.

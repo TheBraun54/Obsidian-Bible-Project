@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh keep my soul, and deliver me: Let me not be put to shame, for I take refuge in thee.
+Oh keep my soul, and deliver me. Let me not be disappointed, for I take refuge in you.

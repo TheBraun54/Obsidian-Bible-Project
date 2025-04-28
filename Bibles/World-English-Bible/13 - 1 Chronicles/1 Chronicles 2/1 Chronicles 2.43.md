@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Hebron: Korah, and Tappuah, and Rekem, and Shema.
+The sons of Hebron: Korah, and Tappuah, and Rekem, and Shema.

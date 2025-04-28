@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He among the sons of Aaron that offereth the blood of the peace-offerings, and the fat, shall have the right thigh for a portion.
+He among the sons of Aaron who offers the blood of the peace offerings, and the fat, shall have the right thigh for a portion.

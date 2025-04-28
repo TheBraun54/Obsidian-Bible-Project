@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Faithful is the saying, and worthy of all acceptation, that Christ Jesus came into the world to save sinners; of whom I am chief:
+The saying is faithful and worthy of all acceptance, that Christ Jesus came into the world to save sinners; of whom I am chief.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He sendeth out his word, and melteth them: He causeth his wind to blow, and the waters flow.
+He sends out his word, and melts them. He causes his wind to blow, and the waters flow.

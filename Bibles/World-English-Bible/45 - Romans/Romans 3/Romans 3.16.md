@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Destruction and misery are in their ways;
+Destruction and misery are in their ways.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-After him repaired Nehemiah the son of Azbuk, the ruler of half the district of Beth-zur, unto the place over against the sepulchres of David, and unto the pool that was made, and unto the house of the mighty men.
+After him repaired Nehemiah the son of Azbuk, the ruler of half the district of Beth Zur, to the place over against the tombs of David, and to the pool that was made, and to the house of the mighty men.

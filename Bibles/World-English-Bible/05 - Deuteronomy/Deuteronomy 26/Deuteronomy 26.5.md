@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt answer and say before Jehovah thy God, A Syrian ready to perish was my father; and he went down into Egypt, and sojourned there, few in number; and he became there a nation, great, mighty, and populous.
+You shall answer and say before Yahweh your God, "A Syrian ready to perish was my father; and he went down into Egypt, and lived there, few in number; and he became there a nation, great, mighty, and populous.

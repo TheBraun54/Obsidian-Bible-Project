@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and shall eat the fruit of thy cattle, and the fruit of thy ground, until thou be destroyed; that also shall not leave thee grain, new wine, or oil, the increase of thy cattle, or the young of thy flock, until they have caused thee to perish.
+and shall eat the fruit of your livestock, and the fruit of your ground, until you are destroyed; that also shall not leave you grain, new wine, or oil, the increase of your livestock, or the young of your flock, until they have caused you to perish.

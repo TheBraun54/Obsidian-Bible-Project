@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he took them the same hour of the night, and washed their stripes; and was baptized, he and all his, immediately.
+He took them the same hour of the night, and washed their stripes, and was immediately baptized, he and all his household.

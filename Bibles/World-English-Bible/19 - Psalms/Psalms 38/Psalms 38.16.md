@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For I said, Lest they rejoice over me: When my foot slippeth, they magnify themselves against me.
+For I said, "Don't let them gloat over me, or exalt themselves over me when my foot slips."

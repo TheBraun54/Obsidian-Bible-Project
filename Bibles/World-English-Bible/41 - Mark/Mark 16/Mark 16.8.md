@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they went out, and fled from the tomb; for trembling and astonishment had come upon them: and they said nothing to any one; for they were afraid.
+They went out, and fled from the tomb, for trembling and astonishment had come on them. They said nothing to anyone; for they were afraid.

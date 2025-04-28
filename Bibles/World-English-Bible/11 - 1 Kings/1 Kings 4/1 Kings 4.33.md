@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he spake of trees, from the cedar that is in Lebanon even unto the hyssop that springeth out of the wall; he spake also of beasts, and of birds, and of creeping things, and of fishes.
+He spoke of trees, from the cedar that is in Lebanon even to the hyssop that springs out of the wall; he spoke also of animals, and of birds, and of creeping things, and of fish.

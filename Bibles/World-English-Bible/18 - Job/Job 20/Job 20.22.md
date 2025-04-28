@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In the fulness of his sufficiency he shall be in straits: The hand of every one that is in misery shall come upon him.
+In the fullness of his sufficiency, distress shall overtake him. The hand of everyone who is in misery shall come on him.

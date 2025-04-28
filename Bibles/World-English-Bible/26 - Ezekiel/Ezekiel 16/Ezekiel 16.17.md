@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou didst also take thy fair jewels of my gold and of my silver, which I had given thee, and madest for thee images of men, and didst play the harlot with them;
+You also took your beautiful jewels of my gold and of my silver, which I had given you, and made for yourself images of men, and played the prostitute with them;

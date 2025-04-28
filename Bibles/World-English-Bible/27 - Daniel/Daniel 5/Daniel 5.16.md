@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I have heard of thee, that thou canst give interpretations, and dissolve doubts; now if thou canst read the writing, and make known to me the interpretation thereof, thou shalt be clothed with purple, and have a chain of gold about thy neck, and shalt be the third ruler in the kingdom.
+But I have heard of you, that you can give interpretations, and dissolve doubts; now if you can read the writing, and make known to me its interpretation, you shall be clothed with purple, and have a chain of gold about your neck, and shall be the third ruler in the kingdom.

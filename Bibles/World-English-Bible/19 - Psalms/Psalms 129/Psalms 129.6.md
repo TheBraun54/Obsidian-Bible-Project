@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them be as the grass upon the housetops, Which withereth before it groweth up;
+Let them be as the grass on the housetops, which withers before it grows up;

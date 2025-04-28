@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They profess that they know God; but by their works they deny him, being abominable, and disobedient, and unto every good work reprobate.
+They profess that they know God, but by their works they deny him, being abominable, disobedient, and unfit for any good work.

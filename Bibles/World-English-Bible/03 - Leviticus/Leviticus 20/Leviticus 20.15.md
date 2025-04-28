@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if a man lie with a beast, he shall surely be put to death: and ye shall slay the beast.
+"'If a man lies with an animal, he shall surely be put to death; and you shall kill the animal.

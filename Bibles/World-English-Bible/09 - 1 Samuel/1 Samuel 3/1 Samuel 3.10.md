@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah came, and stood, and called as at other times, Samuel, Samuel. Then Samuel said, Speak; for thy servant heareth.
+Yahweh came, and stood, and called as at other times, "Samuel! Samuel!" Then Samuel said, "Speak; for your servant hears."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all bare him witness, and wondered at the words of grace which proceeded out of his mouth: and they said, Is not this Joseph's son?
+All testified about him, and wondered at the gracious words which proceeded out of his mouth, and they said, "Isn't this Joseph's son?"

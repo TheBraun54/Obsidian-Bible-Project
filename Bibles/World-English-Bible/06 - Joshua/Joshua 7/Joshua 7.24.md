@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua, and all Israel with him, took Achan the son of Zerah, and the silver, and the mantle, and the wedge of gold, and his sons, and his daughters, and his oxen, and his asses, and his sheep, and his tent, and all that he had: and they brought them up unto the valley of Achor.
+Joshua, and all Israel with him, took Achan the son of Zerah, the silver, the robe, the wedge of gold, his sons, his daughters, his cattle, his donkeys, his sheep, his tent, and all that he had; and they brought them up to the valley of Achor.

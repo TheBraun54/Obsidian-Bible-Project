@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they journeyed from Oboth, and encamped at Iyeabarim, in the wilderness which is before Moab, toward the sunrising.
+They traveled from Oboth, and encamped at Iyeabarim, in the wilderness which is before Moab, toward the sunrise.

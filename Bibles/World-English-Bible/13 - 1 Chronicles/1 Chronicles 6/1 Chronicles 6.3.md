@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Amram: Aaron, and Moses, and Miriam. And the sons of Aaron: Nadab, and Abihu, Eleazar, and Ithamar.
+The children of Amram: Aaron, and Moses, and Miriam. The sons of Aaron: Nadab, and Abihu, Eleazar, and Ithamar.

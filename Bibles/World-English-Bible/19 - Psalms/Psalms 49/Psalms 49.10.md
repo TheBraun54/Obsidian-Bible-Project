@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For he shall see it. Wise men die; The fool and the brutish alike perish, And leave their wealth to others.
+For he sees that wise men die; likewise the fool and the senseless perish, and leave their wealth to others.

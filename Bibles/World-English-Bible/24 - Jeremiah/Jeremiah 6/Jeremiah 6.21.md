@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore thus saith Jehovah, Behold, I will lay stumbling-blocks before this people; and the fathers and the sons together shall stumble against them; the neighbor and his friend shall perish.
+Therefore thus says Yahweh, "Behold, I will lay stumbling blocks before this people. The fathers and the sons together shall stumble against them. The neighbor and his friend shall perish."

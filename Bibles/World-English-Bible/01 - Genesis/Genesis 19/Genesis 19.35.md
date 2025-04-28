@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they made their father drink wine that night also: and the younger arose, and lay with him; and he knew not when she lay down, nor when she arose.
+They made their father drink wine that night also. The younger went and lay with him. He didn't know when she lay down, nor when she got up.

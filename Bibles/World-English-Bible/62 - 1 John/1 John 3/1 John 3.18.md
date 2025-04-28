@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ My] Little children, let us not love in word, neither with the tongue; but in deed and truth.
+My little children, let's not love in word only, neither with the tongue only, but in deed and truth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the five pillars of it with their hooks: and he overlaid their capitals and their fillets with gold; and their five sockets were of brass.
+and the five pillars of it with their hooks. He overlaid their capitals and their fillets with gold, and their five sockets were of brass.

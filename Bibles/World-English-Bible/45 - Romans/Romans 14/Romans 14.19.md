@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So then let us follow after things which make for peace, and things whereby we may edify one another.
+So then, let us follow after things which make for peace, and things by which we may build one another up.

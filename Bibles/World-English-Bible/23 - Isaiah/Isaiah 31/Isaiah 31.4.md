@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thus saith Jehovah unto me, As the lion and the young lion growling over his prey, if a multitude of shepherds be called forth against him, will not be dismayed at their voice, nor abase himself for the noise of them: so will Jehovah of hosts come down to fight upon mount Zion, and upon the hill thereof.
+For thus says Yahweh to me, "As the lion and the young lion growling over his prey, if a multitude of shepherds is called together against him, will not be dismayed at their voice, nor abase himself for the noise of them, so Yahweh of Armies will come down to fight on Mount Zion and on its heights.

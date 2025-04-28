@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Sihon king of Heshbon would not let us pass by him; for Jehovah thy God hardened his spirit, and made his heart obstinate, that he might deliver him into thy hand, as at this day.
+But Sihon king of Heshbon would not let us pass by him; for Yahweh your God hardened his spirit, and made his heart obstinate, that he might deliver him into your hand, as at this day.

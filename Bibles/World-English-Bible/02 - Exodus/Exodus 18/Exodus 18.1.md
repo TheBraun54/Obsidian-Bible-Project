@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now Jethro, the priest of Midian, Moses' father-in-law, heard of all that God had done for Moses, and for Israel his people, how that Jehovah had brought Israel out of Egypt.
+Now Jethro, the priest of Midian, Moses' father-in-law, heard of all that God had done for Moses, and for Israel his people, how that Yahweh had brought Israel out of Egypt.

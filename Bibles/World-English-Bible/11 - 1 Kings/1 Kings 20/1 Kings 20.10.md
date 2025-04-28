@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Ben-hadad sent unto him, and said, The gods do so unto me, and more also, if the dust of Samaria shall suffice for handfuls for all the people that follow me.
+Ben Hadad sent to him, and said, "The gods do so to me, and more also, if the dust of Samaria shall suffice for handfuls for all the people who follow me."

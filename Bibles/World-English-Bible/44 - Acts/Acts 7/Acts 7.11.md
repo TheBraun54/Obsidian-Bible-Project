@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now there came a famine over all Egypt and Canaan, and great affliction: and our fathers found no sustenance.
+Now a famine came over all the land of Egypt and Canaan, and great affliction. Our fathers found no food.

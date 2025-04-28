@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The slothful man roasteth not that which he took in hunting; But the precious substance of men [is to] the diligent.
+The slothful man doesn't roast his game, but the possessions of diligent men are prized.

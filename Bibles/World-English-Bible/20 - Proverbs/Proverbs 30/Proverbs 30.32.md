@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou hast done foolishly in lifting up thyself, Or if thou hast thought evil, [Lay] thy hand upon thy mouth.
+"If you have done foolishly in lifting up yourself, or if you have thought evil, put your hand over your mouth.

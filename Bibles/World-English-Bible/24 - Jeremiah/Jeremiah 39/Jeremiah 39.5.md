@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the army of the Chaldeans pursued after them, and overtook Zedekiah in the plains of Jericho: and when they had taken him, they brought him up to Nebuchadrezzar king of Babylon to Riblah in the land of Hamath; and he [ gave judgment upon him.
+But the army of the Chaldeans pursued after them, and overtook Zedekiah in the plains of Jericho: and when they had taken him, they brought him up to Nebuchadnezzar king of Babylon to Riblah in the land of Hamath; and he gave judgment on him.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The words of the wise heard in quiet are better than the cry of him that ruleth among fools.
+The words of the wise heard in quiet are better than the cry of him who rules among fools.

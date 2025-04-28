@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For so hath the Lord commanded us, [saying], I have set thee for a light of the Gentiles, That thou shouldest be for salvation unto the uttermost part of the earth.
+For so has the Lord commanded us, saying, 'I have set you as a light for the Gentiles, that you should bring salvation to the uttermost parts of the earth.'"

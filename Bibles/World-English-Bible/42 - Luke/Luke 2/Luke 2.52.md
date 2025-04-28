@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus advanced in wisdom and stature, and in favor with God and men.
+And Jesus increased in wisdom and stature, and in favor with God and men.

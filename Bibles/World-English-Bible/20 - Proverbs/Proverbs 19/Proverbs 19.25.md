@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Smite a scoffer, and the simple will learn prudence; And reprove one that hath understanding, [and] he will understand knowledge.
+Flog a scoffer, and the simple will learn prudence; rebuke one who has understanding, and he will gain knowledge.

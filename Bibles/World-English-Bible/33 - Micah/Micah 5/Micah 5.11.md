@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will cut off the cities of thy land, and will throw down all thy strongholds.
+I will cut off the cities of your land, and will tear down all your strongholds.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass that, when they made an end of eating the grass of the land, then I said, O Lord Jehovah, forgive, I beseech thee: how shall Jacob stand? for he is small.
+It happened that, when they made an end of eating the grass of the land, then I said, "Lord Yahweh, forgive, I beg you! How could Jacob stand? For he is small."

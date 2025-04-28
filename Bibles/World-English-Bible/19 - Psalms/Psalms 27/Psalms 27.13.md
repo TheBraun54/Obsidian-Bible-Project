@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ I had fainted], unless I had believed to see the goodness of Jehovah In the land of the living.
+I am still confident of this: I will see the goodness of Yahweh in the land of the living.

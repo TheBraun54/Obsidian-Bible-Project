@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For thou delightest not in sacrifice; else would I give it: Thou hast no pleasure in burnt-offering.
+For you don't delight in sacrifice, or else I would give it. You have no pleasure in burnt offering.

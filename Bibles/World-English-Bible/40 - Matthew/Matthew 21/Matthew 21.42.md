@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jesus saith unto them, Did ye never read in the scriptures, The stone which the builders rejected, The same was made the head of the corner; This was from the Lord, And it is marvelous in our eyes?
+Jesus said to them, "Did you never read in the Scriptures, 'The stone which the builders rejected, the same was made the head of the corner. This was from the Lord. It is marvelous in our eyes?'

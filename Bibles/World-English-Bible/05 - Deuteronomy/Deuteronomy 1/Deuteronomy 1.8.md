@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Behold, I have set the land before you: go in and possess the land which Jehovah sware unto your fathers, to Abraham, to Isaac, and to Jacob, to give unto them and to their seed after them.
+Behold, I have set the land before you: go in and possess the land which Yahweh swore to your fathers, to Abraham, to Isaac, and to Jacob, to give to them and to their seed after them."

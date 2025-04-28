@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the battle was very sore that day: and Abner was beaten, and the men of Israel, before the servants of David.
+The battle was very severe that day: and Abner was beaten, and the men of Israel, before the servants of David.

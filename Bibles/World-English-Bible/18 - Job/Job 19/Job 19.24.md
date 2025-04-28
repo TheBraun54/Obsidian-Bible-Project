@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That with an iron pen and lead They were graven in the rock for ever!
+That with an iron pen and lead they were engraved in the rock forever!

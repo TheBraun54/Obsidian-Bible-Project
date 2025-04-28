@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the tribes of Israel sent men through all the tribe of Benjamin, saying, What wickedness is this that is come to pass among you?
+The tribes of Israel sent men through all the tribe of Benjamin, saying, "What wickedness is this that is happen among you?

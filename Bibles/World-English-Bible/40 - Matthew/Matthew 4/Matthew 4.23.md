@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jesus went about in all Galilee, teaching in their synagogues, and preaching the gospel of the kingdom, and healing all manner of disease and all manner of sickness among the people.
+Jesus went about in all Galilee, teaching in their synagogues, preaching the Good News of the Kingdom, and healing every disease and every sickness among the people.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the day long is my dishonor before me, And the shame of my face hath covered me,
+All day long my dishonor is before me, and shame covers my face,

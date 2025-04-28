@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to proclaim the year of Jehovah's favor, and the day of vengeance of our God; to comfort all that mourn;
+to proclaim the year of Yahweh's favor, and the day of vengeance of our God; to comfort all who mourn;

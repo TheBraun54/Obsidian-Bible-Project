@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A foolish son is the calamity of his father; And the contentions of a wife are a continual dropping.
+A foolish son is the calamity of his father. A wife's quarrels are a continual dripping.

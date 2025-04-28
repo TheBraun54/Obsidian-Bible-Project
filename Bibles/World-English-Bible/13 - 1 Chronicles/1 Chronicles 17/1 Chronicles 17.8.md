@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I have been with thee whithersoever thou hast gone, and have cut off all thine enemies from before thee; and I will make thee a name, like unto the name of the great ones that are in the earth.
+I have been with you wherever you have gone, and have cut off all your enemies from before you. I will make you a name, like the name of the great ones who are in the earth.

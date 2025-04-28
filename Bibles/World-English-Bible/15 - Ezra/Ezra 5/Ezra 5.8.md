@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be it known unto the king, that we went into the province of Judah, to the house of the great God, which is builded with great stones, and timber is laid in the walls; and this work goeth on with diligence and prospereth in their hands.
+Be it known to the king, that we went into the province of Judah, to the house of the great God, which is built with great stones, and timber is laid in the walls; and this work goes on with diligence and prospers in their hands.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The king said moreover to Shimei, Thou knowest all the wickedness which thy heart is privy to, that thou didst to David my father: therefore Jehovah shall return thy wickedness upon thine own head.
+The king said moreover to Shimei, "You know all the wickedness which your heart is privy to, that you did to David my father. Therefore Yahweh shall return your wickedness on your own head.

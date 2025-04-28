@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Blessed are those servants, whom the lord when he cometh shall find watching: verily I say unto you, that he shall gird himself, and make them sit down to meat, and shall come and serve them. [
+Blessed are those servants, whom the lord will find watching when he comes. Most certainly I tell you, that he will dress himself, and make them recline, and will come and serve them.

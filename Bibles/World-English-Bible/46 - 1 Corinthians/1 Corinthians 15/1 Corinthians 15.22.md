@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For as in Adam all die, so also in Christ shall all be made alive.
+For as in Adam all die, so also in Christ all will be made alive.

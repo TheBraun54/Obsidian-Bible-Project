@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Sing praise unto Jehovah, O ye saints of his, And give thanks to his holy memorial [name] .
+Sing praise to Yahweh, you saints of his. Give thanks to his holy name.

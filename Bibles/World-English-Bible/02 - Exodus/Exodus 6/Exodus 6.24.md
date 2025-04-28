@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of Korah: Assir, and Elkanah, and Abiasaph; these are the families of the Korahites.
+The sons of Korah: Assir, and Elkanah, and Abiasaph; these are the families of the Korahites.

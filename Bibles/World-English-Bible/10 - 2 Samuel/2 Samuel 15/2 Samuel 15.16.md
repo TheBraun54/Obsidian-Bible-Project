@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king went forth, and all his household after him. And the king left ten women, that were concubines, to keep the house.
+The king went forth, and all his household after him. The king left ten women, who were concubines, to keep the house.

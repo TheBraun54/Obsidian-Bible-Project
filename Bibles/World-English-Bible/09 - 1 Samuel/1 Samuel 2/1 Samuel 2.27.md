@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And there came a man of God unto Eli, and said unto him, Thus saith Jehovah, Did I reveal myself unto the house of thy father, when they were in Egypt [in bondage] to Pharaoh's house? [
+A man of God came to Eli, and said to him, "Thus says Yahweh, 'Did I reveal myself to the house of your father, when they were in Egypt [in bondage] to Pharaoh's house?

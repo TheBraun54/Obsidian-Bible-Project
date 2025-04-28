@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-speaking one to another in psalms and hymns and spiritual songs, singing and making melody with your heart to the Lord;
+speaking to one another in psalms, hymns, and spiritual songs; singing, and making melody in your heart to the Lord;

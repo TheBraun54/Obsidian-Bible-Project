@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou afflict them at all, and they cry at all unto me, I will surely hear their cry;
+If you take advantage of them at all, and they cry at all to me, I will surely hear their cry;

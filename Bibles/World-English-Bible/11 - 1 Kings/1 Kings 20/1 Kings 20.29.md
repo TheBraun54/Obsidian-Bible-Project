@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they encamped one over against the other seven days. And so it was, that in the seventh day the battle was joined; and the children of Israel slew of the Syrians a hundred thousand footmen in one day.
+They encamped one over against the other seven days. So it was, that in the seventh day the battle was joined; and the children of Israel killed one hundred thousand footmen of the Syrians in one day.

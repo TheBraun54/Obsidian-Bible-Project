@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Yea, and all that would live godly in Christ Jesus shall suffer persecution.
+Yes, and all who desire to live godly in Christ Jesus will suffer persecution.

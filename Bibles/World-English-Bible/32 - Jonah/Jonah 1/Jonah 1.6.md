@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-So the shipmaster came to him, and said unto him, What meanest thou, O sleeper? arise, call upon thy God, if so be that God will think upon us, that we perish not.
+So the shipmaster came to him, and said to him, "What do you mean, sleeper? Arise, call on your God! Maybe your God will notice us, so that we won't perish."

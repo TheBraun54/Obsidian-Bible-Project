@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Till I make thine enemies the footstool of thy feet.
+until I make your enemies the footstool of your feet."'

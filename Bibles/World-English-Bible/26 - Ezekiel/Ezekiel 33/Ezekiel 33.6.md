@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if the watchman see the sword come, and blow not the trumpet, and the people be not warned, and the sword come, and take any person from among them; he is taken away in his iniquity, but his blood will I require at the watchman's hand.
+But if the watchman sees the sword come, and doesn't blow the trumpet, and the people aren't warned, and the sword comes, and take any person from among them; he is taken away in his iniquity, but his blood will I require at the watchman's hand.

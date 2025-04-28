@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And having sent into Macedonia two of them that ministered unto him, Timothy and Erastus, he himself stayed in Asia for a while.
+Having sent into Macedonia two of those who served him, Timothy and Erastus, he himself stayed in Asia for a while.

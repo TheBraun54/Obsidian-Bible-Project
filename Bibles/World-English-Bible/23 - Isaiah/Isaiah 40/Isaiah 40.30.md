@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even the youths shall faint and be weary, and the young men shall utterly fall:
+Even the youths faint and get weary, and the young men utterly fall;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For from the top of the rocks I see him, And from the hills I behold him: lo, it is a people that dwelleth alone, And shall not be reckoned among the nations.
+For from the top of the rocks I see him. From the hills I see him. Behold, it is a people that dwells alone, and shall not be reckoned among the nations.

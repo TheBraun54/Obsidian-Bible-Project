@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he brought Aaron's sons; and Moses put of the blood upon the tip of their right ear, and upon the thumb of their right hand, and upon the great toe of their right foot: and Moses sprinkled the blood upon the altar round about.
+He brought Aaron's sons; and Moses put some of the blood on the tip of their right ear, and on the thumb of their right hand, and on the great toe of their right foot; and Moses sprinkled the blood around on the altar.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Commit thy works unto Jehovah, And thy purposes shall be established.
+Commit your deeds to Yahweh, and your plans shall succeed.

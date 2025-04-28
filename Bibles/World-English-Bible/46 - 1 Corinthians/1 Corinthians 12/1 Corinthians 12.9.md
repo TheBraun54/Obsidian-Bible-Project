@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-to another faith, in the same Spirit; and to another gifts of healings, in the one Spirit;
+to another faith, by the same Spirit; and to another gifts of healings, by the same Spirit;

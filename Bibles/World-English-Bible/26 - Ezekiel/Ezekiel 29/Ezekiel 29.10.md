@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-therefore, behold, I am against thee, and against thy rivers, and I will make the land of Egypt an utter waste and desolation, from the tower of Seveneh even unto the border of Ethiopia.
+therefore, behold, I am against you, and against your rivers, and I will make the land of Egypt an utter waste and desolation, from the tower of Seveneh even to the border of Ethiopia.

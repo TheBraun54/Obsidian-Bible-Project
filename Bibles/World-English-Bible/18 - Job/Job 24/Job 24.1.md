@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why are times not laid up by the Almighty? And why do not they that know him see his days?
+"Why aren't times laid up by the Almighty? Why don't those who know him see his days?

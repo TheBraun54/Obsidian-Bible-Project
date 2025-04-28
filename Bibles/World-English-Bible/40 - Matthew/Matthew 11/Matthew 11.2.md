@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when John heard in the prison the works of the Christ, he sent by his disciples
+Now when John heard in the prison the works of Christ, he sent two of his disciples

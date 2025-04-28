@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore have I also made you contemptible and base before all the people, according as ye have not kept my ways, but have had respect of persons in the law.
+"Therefore I have also made you contemptible and base before all the people, according to the way you have not kept my ways, but have had respect for persons in the law.

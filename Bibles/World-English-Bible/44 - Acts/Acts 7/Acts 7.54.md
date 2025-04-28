@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now when they heard these things, they were cut to the heart, and they gnashed on him with their teeth.
+Now when they heard these things, they were cut to the heart, and they gnashed at him with their teeth.

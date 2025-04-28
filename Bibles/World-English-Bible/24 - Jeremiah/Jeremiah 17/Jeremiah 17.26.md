@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they shall come from the cities of Judah, and from the places round about Jerusalem, and from the land of Benjamin, and from the lowland, and from the hill-country, and from the South, bringing burnt-offerings, and sacrifices, and meal-offerings, and frankincense, and bringing [sacrifices of] thanksgiving, unto the house of Jehovah.
+They shall come from the cities of Judah, and from the places around Jerusalem, and from the land of Benjamin, and from the lowland, and from the hill country, and from the South, bringing burnt offerings, and sacrifices, and meal offerings, and frankincense, and bringing [sacrifices of] thanksgiving, to the house of Yahweh.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou wilt surely wear away, both thou, and this people that is with thee: for the thing is too heavy for thee; thou art not able to perform it thyself alone.
+You will surely wear away, both you, and this people that is with you; for the thing is too heavy for you. You are not able to perform it yourself alone.

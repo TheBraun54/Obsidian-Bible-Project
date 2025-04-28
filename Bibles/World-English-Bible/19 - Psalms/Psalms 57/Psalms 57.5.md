@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be thou exalted, O God, above the heavens; [Let] thy glory [be] above all the earth.
+Be exalted, God, above the heavens! Let your glory be above all the earth!

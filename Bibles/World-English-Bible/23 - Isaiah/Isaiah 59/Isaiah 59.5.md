@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They hatch adders' eggs, and weave the spider's web: he that eateth of their eggs dieth; and that which is crushed breaketh out into a viper.
+They hatch adders' eggs, and weave the spider's web: he who eats of their eggs dies; and that which is crushed breaks out into a viper.

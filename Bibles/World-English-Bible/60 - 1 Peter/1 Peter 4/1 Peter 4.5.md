@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who shall give account to him that is ready to judge the living and the dead.
+who will give account to him who is ready to judge the living and the dead.

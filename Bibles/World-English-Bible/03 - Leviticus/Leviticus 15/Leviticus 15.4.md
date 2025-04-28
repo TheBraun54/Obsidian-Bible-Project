@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every bed whereon he that hath the issue lieth shall be unclean; and everything whereon he sitteth shall be unclean.
+"'Every bed whereon he who has the discharge lies shall be unclean; and everything he sits on shall be unclean.

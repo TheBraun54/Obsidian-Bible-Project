@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But man dieth, and is laid low: Yea, man giveth up the ghost, and where is he?
+But man dies, and is laid low. Yes, man gives up the spirit, and where is he?

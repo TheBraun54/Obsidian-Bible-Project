@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he gave them the lands of the nations; And they took the labor of the peoples in possession:
+He gave them the lands of the nations. They took the labor of the peoples in possession,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they began to sing and to praise, Jehovah set liers-in-wait against the children of Ammon, Moab, and mount Seir, that were come against Judah; and they were smitten.
+When they began to sing and to praise, Yahweh set ambushers against the children of Ammon, Moab, and Mount Seir, who had come against Judah; and they were struck.

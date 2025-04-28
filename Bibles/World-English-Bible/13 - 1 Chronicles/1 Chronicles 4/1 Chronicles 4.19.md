@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the sons of the wife of Hodiah, the sister of Naham, were the father of Keilah the Garmite, and Eshtemoa the Maacathite.
+The sons of the wife of Hodiah, the sister of Naham, were the father of Keilah the Garmite, and Eshtemoa the Maacathite.

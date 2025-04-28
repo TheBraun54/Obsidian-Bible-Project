@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I know that, whatsoever God doeth, it shall be for ever: nothing can be put to it, nor anything taken from it; and God hath done it, that men should fear before him.
+I know that whatever God does, it shall be forever. Nothing can be added to it, nor anything taken from it; and God has done it, that men should fear before him.

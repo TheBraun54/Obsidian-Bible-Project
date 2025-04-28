@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And judge not, and ye shall not be judged: and condemn not, and ye shall not be condemned: release, and ye shall be released:
+Don't judge, and you won't be judged. Don't condemn, and you won't be condemned. Set free, and you will be set free.

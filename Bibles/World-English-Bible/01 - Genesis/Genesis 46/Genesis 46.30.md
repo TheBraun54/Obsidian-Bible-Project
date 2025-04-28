@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Israel said unto Joseph, Now let me die, since I have seen thy face, that thou art yet alive.
+Israel said to Joseph, "Now let me die, since I have seen your face, that you are still alive."

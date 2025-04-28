@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-all things therefore whatsoever they bid you, [these] do and observe: but do not ye after their works; for they say, and do not.
+All things therefore whatever they tell you to observe, observe and do, but don't do their works; for they say, and don't do.

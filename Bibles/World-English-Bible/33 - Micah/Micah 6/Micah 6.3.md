@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-O my people, what have I done unto thee? and wherein have I wearied thee? testify against me.
+My people, what have I done to you? How have I burdened you? Answer me!

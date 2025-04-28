@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thus were they divided by lot, one sort with another; for there were princes of the sanctuary, and princes of God, both of the sons of Eleazar, and of the sons of Ithamar.
+Thus were they divided impartially by drawing lots; for there were princes of the sanctuary, and princes of God, both of the sons of Eleazar, and of the sons of Ithamar.

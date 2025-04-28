@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For the stars of heaven and the constellations thereof shall not give their light; the sun shall be darkened in its going forth, and the moon shall not cause its light to shine.
+For the stars of the sky and its constellations will not give their light. The sun will be darkened in its going forth, and the moon will not cause its light to shine.

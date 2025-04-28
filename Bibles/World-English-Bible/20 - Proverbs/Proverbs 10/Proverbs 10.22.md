@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The blessing of Jehovah, it maketh rich; And he addeth no sorrow therewith.
+Yahweh's blessing brings wealth, and he adds no trouble to it.

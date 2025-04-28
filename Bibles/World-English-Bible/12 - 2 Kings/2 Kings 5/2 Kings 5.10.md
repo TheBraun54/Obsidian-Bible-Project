@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Elisha sent a messenger unto him, saying, Go and wash in the Jordan seven times, and thy flesh shall come again to thee, and thou shalt be clean.
+Elisha sent a messenger to him, saying, "Go and wash in the Jordan seven times, and your flesh shall come again to you, and you shall be clean."

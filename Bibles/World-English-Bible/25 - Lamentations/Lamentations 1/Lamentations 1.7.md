@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jerusalem remembereth in the days of her affliction and of her miseries all her pleasant things that were from the days of old: When her people fell into the hand of the adversary, and none did help her, The adversaries saw her, they did mock at her desolations.
+Jerusalem remembers in the days of her affliction and of her miseries all her pleasant things that were from the days of old: when her people fell into the hand of the adversary, and none did help her, The adversaries saw her, they did mock at her desolations.

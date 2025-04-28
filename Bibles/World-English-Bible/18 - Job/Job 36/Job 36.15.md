@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He delivereth the afflicted by their affliction, And openeth their ear in oppression.
+He delivers the afflicted by their affliction, and opens their ear in oppression.

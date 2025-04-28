@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Their priests fell by the sword; And their widows made no lamentation.
+Their priests fell by the sword, and their widows couldn't weep.

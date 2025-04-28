@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hot indignation hath taken hold upon me, Because of the wicked that forsake thy law.
+Indignation has taken hold on me, because of the wicked who forsake your law.

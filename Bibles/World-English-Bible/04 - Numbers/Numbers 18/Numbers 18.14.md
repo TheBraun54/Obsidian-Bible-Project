@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Everything devoted in Israel shall be thine.
+"Everything devoted in Israel shall be yours.

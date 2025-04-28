@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he was three days without sight, and did neither eat nor drink.
+He was without sight for three days, and neither ate nor drank.

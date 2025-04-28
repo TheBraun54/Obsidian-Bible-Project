@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I saw that she was defiled; they both took one way.
+I saw that she was defiled; they both took one way.

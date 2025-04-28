@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-She considereth a field, and buyeth it; With the fruit of her hands she planteth a vineyard.
+She considers a field, and buys it. With the fruit of her hands, she plants a vineyard.

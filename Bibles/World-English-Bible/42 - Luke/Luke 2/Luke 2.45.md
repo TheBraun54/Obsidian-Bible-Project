@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and when they found him not, they returned to Jerusalem, seeking for him.
+When they didn't find him, they returned to Jerusalem, looking for him.

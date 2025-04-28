@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Son of man, I have broken the arm of Pharaoh king of Egypt; and, lo, it hath not been bound up, to apply [healing] medicines, to put a bandage to bind it, that it be strong to hold the sword.
+Son of man, I have broken the arm of Pharaoh king of Egypt; and behold, it has not been bound up, to apply [healing] medicines, to put a bandage to bind it, that it be strong to hold the sword.

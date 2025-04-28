@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the Levite, the husband of the woman that was murdered, answered and said, I came into Gibeah that belongeth to Benjamin, I and my concubine, to lodge.
+The Levite, the husband of the woman who was murdered, answered, "I came into Gibeah that belongs to Benjamin, I and my concubine, to lodge.

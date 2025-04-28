@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Balaam said unto Balak, Stand by thy burnt-offering, and I will go: peradventure Jehovah will come to meet me; and whatsoever he showeth me I will tell thee. And he went to a bare height.
+Balaam said to Balak, "Stand by your burnt offering, and I will go: perhaps Yahweh will come to meet me; and whatever he shows me I will tell you." He went to a bare height.

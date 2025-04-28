@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Benjamin is a wolf that raveneth: In the morning he shall devour the prey, And at even he shall divide the spoil.
+"Benjamin is a ravenous wolf. In the morning he will devour the prey. At evening he will divide the spoil."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be silent, all flesh, before Jehovah; for he is waked up out of his holy habitation.
+Be silent, all flesh, before Yahweh; for he has roused himself from his holy habitation!"

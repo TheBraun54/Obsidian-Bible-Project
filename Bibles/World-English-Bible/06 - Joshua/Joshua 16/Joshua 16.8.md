@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-From Tappuah the border went along westward to the brook of Kanah; and the goings out thereof were at the sea. This is the inheritance of the tribe of the children of Ephraim according to their families;
+From Tappuah the border went along westward to the brook of Kanah; and ended at the sea. This is the inheritance of the tribe of the children of Ephraim according to their families;

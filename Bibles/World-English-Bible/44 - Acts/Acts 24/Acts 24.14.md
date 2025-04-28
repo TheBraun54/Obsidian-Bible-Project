@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But this I confess unto thee, that after the Way which they call a sect, so serve I the God of our fathers, believing all things which are according to the law, and which are written in the prophets;
+But this I confess to you, that after the Way, which they call a sect, so I serve the God of our fathers, believing all things which are according to the law, and which are written in the prophets;

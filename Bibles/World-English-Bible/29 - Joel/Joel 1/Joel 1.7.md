@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath laid my vine waste, and barked my fig-tree: he hath made it clean bare, and cast it away; the branches thereof are made white.
+He has laid my vine waste, and stripped my fig tree. He has stripped its bark, and thrown it away. Its branches are made white.

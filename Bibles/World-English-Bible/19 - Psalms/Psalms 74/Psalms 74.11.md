@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Why drawest thou back thy hand, even thy right hand? [Pluck it] out of thy bosom [and] consume [them] .
+Why do you draw back your hand, even your right hand? Take it out of your pocket and consume them!

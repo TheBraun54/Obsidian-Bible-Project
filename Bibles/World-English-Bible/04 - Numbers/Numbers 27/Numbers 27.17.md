@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-who may go out before them, and who may come in before them, and who may lead them out, and who may bring them in; that the congregation of Jehovah be not as sheep which have no shepherd.
+who may go out before them, and who may come in before them, and who may lead them out, and who may bring them in; that the congregation of Yahweh not be as sheep which have no shepherd."

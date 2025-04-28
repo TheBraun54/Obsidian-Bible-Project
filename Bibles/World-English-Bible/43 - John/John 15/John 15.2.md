@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every branch in me that beareth not fruit, he taketh it away: and every [branch] that beareth fruit, he cleanseth it, that it may bear more fruit.
+Every branch in me that doesn't bear fruit, he takes away. Every branch that bears fruit, he prunes, that it may bear more fruit.

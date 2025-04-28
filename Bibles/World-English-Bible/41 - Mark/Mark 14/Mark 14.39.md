@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And again he went away, and prayed, saying the same words.
+Again he went away, and prayed, saying the same words.

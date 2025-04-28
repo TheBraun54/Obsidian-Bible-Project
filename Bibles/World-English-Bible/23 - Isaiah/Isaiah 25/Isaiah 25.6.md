@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And in this mountain will Jehovah of hosts make unto all peoples a feast of fat things, a feast of wines on the lees, of fat things full of marrow, of wines on the lees well refined.
+In this mountain, Yahweh of Armies will make all peoples a feast of fat things, a feast of choice wines, of fat things full of marrow, of well refined choice wines.

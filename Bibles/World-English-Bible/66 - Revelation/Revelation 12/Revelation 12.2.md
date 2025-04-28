@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and she was with child; and she crieth out, travailing in birth, and in pain to be delivered.
+She was with child. She cried out in pain, laboring to give birth.

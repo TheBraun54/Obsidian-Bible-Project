@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it shall come to pass that, when any shall yet prophesy, then his father and his mother that begat him shall say unto him, Thou shalt not live; for thou speakest lies in the name of Jehovah; and his father and his mother that begat him shall thrust him through when he prophesieth.
+It will happen that, when anyone still prophesies, then his father and his mother who bore him will tell him, 'You must die, because you speak lies in the name of Yahweh;' and his father and his mother who bore him will stab him when he prophesies.

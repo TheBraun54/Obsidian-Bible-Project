@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Nadab and Abihu died before Jehovah, when they offered strange fire before Jehovah, in the wilderness of Sinai, and they had no children; and Eleazar and Ithamar ministered in the priest's office in the presence of Aaron their father.
+Nadab and Abihu died before Yahweh, when they offered strange fire before Yahweh, in the wilderness of Sinai, and they had no children. Eleazar and Ithamar ministered in the priest's office in the presence of Aaron their father.

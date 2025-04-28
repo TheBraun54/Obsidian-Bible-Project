@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The hungry he hath filled with good things; And the rich he hath sent empty away.
+He has filled the hungry with good things. He has sent the rich away empty.

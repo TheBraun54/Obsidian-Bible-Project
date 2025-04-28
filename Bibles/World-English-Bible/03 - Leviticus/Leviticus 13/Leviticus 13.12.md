@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if the leprosy break out abroad in the skin, and the leprosy cover all the skin of [him that hath] the plague from his head even to his feet, as far as appeareth to the priest;
+"If the leprosy breaks out all over the skin, and the leprosy covers all the skin of the infected person from his head even to his feet, as far as it appears to the priest;

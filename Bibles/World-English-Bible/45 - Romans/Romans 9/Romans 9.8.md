@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-That is, it is not the children of the flesh that are children of God; but the children of the promise are reckoned for a seed.
+That is, it is not the children of the flesh who are children of God, but the children of the promise are counted as a seed.

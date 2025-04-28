@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he dwelt in the wilderness of Paran: and his mother took him a wife out of the land of Egypt.
+He lived in the wilderness of Paran. His mother took a wife for him out of the land of Egypt.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou shalt say in thy heart, These nations are more than I; how can I dispossess them?
+If you shall say in your heart, "These nations are more than I; how can I dispossess them?"

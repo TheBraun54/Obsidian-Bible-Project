@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He keepeth back his soul from the pit, And his life from perishing by the sword.
+He keeps back his soul from the pit, and his life from perishing by the sword.

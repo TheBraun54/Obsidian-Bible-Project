@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and his feet like unto burnished brass, as if it had been refined in a furnace; and his voice as the voice of many waters.
+His feet were like burnished brass, as if it had been refined in a furnace. His voice was like the voice of many waters.

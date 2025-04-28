@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then the channels of the sea appeared, The foundations of the world were laid bare, By the rebuke of Jehovah, At the blast of the breath of his nostrils.
+Then the channels of the sea appeared. The foundations of the world were laid bare by the rebuke of Yahweh, At the blast of the breath of his nostrils.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore he sware unto them, That he would overthrow them in the wilderness,
+Therefore he swore to them that he would overthrow them in the wilderness,

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and I will fetch a morsel of bread, and strengthen ye your heart; after that ye shall pass on: forasmuch as ye are come to your servant. And they said, So do, as thou hast said.
+I will get a morsel of bread so you can refresh your heart. After that you may go your way, now that you have come to your servant." They said, "Very well, do as you have said."

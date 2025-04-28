@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Oh taste and see that Jehovah is good: Blessed is the man that taketh refuge in him.
+Oh taste and see that Yahweh is good. Blessed is the man who takes refuge in him.

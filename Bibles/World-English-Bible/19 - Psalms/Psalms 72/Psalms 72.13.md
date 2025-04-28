@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will have pity on the poor and needy, And the souls of the needy he will save.
+He will have pity on the poor and needy. He will save the souls of the needy.

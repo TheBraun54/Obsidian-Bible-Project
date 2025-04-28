@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Look to yourselves, that ye lose not the things which we have wrought, but that ye receive a full reward.
+Watch yourselves, that we don't lose the things which we have accomplished, but that we receive a full reward.

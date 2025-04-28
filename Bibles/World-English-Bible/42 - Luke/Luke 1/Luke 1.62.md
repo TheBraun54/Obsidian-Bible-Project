@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they made signs to his father, what he would have him called.
+They made signs to his father, what he would have him called.

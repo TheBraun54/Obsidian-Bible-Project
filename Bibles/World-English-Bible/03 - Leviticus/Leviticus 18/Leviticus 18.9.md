@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The nakedness of thy sister, the daughter of thy father, or the daughter of thy mother, whether born at home, or born abroad, even their nakedness thou shalt not uncover.
+"'You shall not uncover the nakedness of your sister, the daughter of your father, or the daughter of your mother, whether born at home, or born abroad.

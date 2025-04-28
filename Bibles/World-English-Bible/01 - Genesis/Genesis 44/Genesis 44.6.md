@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he overtook them, and he spake unto them these words.
+He overtook them, and he spoke these words to them.

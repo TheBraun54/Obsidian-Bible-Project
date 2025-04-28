@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Chasten thy son, seeing there is hope; And set not thy heart on his destruction.
+Discipline your son, for there is hope; don't be a willing party to his death.

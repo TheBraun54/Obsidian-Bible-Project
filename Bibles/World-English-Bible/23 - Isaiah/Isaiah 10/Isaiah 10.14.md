@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and my hand hath found as a nest the riches of the peoples; and as one gathereth eggs that are forsaken, have I gathered all the earth: and there was none that moved the wing, or that opened the mouth, or chirped.
+My hand has found the riches of the peoples like a nest, and like one gathers eggs that are abandoned, have I gathered all the earth. There was no one who moved their wing, or that opened their mouth, or chirped."

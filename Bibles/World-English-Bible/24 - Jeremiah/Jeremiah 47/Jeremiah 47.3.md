@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At the noise of the stamping of the hoofs of his strong ones, at the rushing of his chariots, at the rumbling of his wheels, the fathers look not back to their children for feebleness of hands;
+At the noise of the stamping of the hoofs of his strong ones, at the rushing of his chariots, at the rumbling of his wheels, the fathers don't look back to their children for feebleness of hands;

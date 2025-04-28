@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He maketh the storm a calm, So that the waves thereof are still.
+He makes the storm a calm, so that its waves are still.

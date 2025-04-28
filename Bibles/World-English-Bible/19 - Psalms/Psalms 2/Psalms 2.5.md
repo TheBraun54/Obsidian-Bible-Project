@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then will he speak unto them in his wrath, And vex them in his sore displeasure:
+Then he will speak to them in his anger, and terrify them in his wrath:

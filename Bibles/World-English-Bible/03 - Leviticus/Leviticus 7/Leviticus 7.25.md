@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For whosoever eateth the fat of the beast, of which men offer an offering made by fire unto Jehovah, even the soul that eateth it shall be cut off from his people.
+For whoever eats the fat of the animal, of which men offer an offering made by fire to Yahweh, even the soul who eats it shall be cut off from his people.

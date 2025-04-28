@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Open your hearts to us: we wronged no man, we corrupted no man, we took advantage of no man.
+Open your hearts to us. We wronged no one. We corrupted no one. We took advantage of no one.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he that spake with me had for a measure a golden reed to measure the city, and the gates thereof, and the wall thereof.
+He who spoke with me had for a measure, a golden reed, to measure the city, its gates, and its walls.

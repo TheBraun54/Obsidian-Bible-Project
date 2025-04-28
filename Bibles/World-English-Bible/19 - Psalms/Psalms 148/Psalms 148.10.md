@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Beasts and all cattle; Creeping things and flying birds;
+wild animals and all livestock; small creatures and flying birds;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then Hananiah the prophet took the bar from off the prophet Jeremiah's neck, and brake it.
+Then Hananiah the prophet took the bar from off the prophet Jeremiah's neck, and broke it.

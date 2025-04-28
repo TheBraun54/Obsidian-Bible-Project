@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because they met you not with bread and with water in the way, when ye came forth out of Egypt, and because they hired against thee Balaam the son of Beor from Pethor of Mesopotamia, to curse thee.
+because they didn't meet you with bread and with water in the way, when you came forth out of Egypt, and because they hired against you Balaam the son of Beor from Pethor of Mesopotamia, to curse you.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For this cause I write these things while absent, that I may not when present deal sharply, according to the authority which the Lord gave me for building up, and not for casting down.
+For this cause I write these things while absent, that I may not deal sharply when present, according to the authority which the Lord gave me for building up, and not for tearing down.

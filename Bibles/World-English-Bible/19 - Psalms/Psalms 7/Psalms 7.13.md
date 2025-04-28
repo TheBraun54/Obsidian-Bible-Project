@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He hath also prepared for him the instruments of death; He maketh his arrows fiery [shafts] .
+He has also prepared for himself the instruments of death. He makes ready his flaming arrows.

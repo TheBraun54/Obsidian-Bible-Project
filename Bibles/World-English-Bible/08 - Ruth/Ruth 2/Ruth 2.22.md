@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Naomi said unto Ruth her daughter-in-law, It is good, my daughter, that thou go out with his maidens, and that they meet thee not in any other field.
+Naomi said to Ruth her daughter-in-law, "It is good, my daughter, that you go out with his maidens, and that they not meet you in any other field."

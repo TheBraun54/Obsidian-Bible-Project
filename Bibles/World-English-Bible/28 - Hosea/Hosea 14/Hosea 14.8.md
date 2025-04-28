@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ephraim [shall say], What have I to do any more with idols? I have answered, and will regard him: I am like a green fir-tree; from me is thy fruit found.
+Ephraim, what have I to do any more with idols? I answer, and will take care of him. I am like a green fir tree; from me your fruit is found."

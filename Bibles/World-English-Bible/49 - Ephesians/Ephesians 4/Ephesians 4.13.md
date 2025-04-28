@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-till we all attain unto the unity of the faith, and of the knowledge of the Son of God, unto a fullgrown man, unto the measure of the stature of the fulness of Christ:
+until we all attain to the unity of the faith, and of the knowledge of the Son of God, to a full grown man, to the measure of the stature of the fullness of Christ;

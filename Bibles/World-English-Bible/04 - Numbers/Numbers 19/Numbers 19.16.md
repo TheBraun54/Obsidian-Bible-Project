@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And whosoever in the open field toucheth one that is slain with a sword, or a dead body, or a bone of a man, or a grave, shall be unclean seven days.
+"Whoever in the open field touches one who is slain with a sword, or a dead body, or a bone of a man, or a grave, shall be unclean seven days.

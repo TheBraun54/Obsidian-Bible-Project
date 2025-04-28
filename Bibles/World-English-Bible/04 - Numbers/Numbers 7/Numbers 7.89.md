@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Moses went into the tent of meeting to speak with him, then he heard the Voice speaking unto him from above the mercy-seat that was upon the ark of the testimony, from between the two cherubim: and he spake unto him.
+When Moses went into the Tent of Meeting to speak with Yahweh, he heard his voice speaking to him from above the mercy seat that was on the ark of the Testimony, from between the two cherubim: and he spoke to him.

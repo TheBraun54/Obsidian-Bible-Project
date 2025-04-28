@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he came unto the men of Succoth, and said, Behold Zebah and Zalmunna, concerning whom ye did taunt me, saying, Are the hands of Zebah and Zalmunna now in thy hand, that we should give bread unto thy men that are weary?
+He came to the men of Succoth, and said, "See Zebah and Zalmunna, concerning whom you taunted me, saying, 'Are the hands of Zebah and Zalmunna now in your hand, that we should give bread to your men who are weary?'"

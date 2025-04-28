@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have heard what the prophets have said, that prophesy lies in my name, saying, I have dreamed, I have dreamed.
+I have heard what the prophets have said, who prophesy lies in my name, saying, I have dreamed, I have dreamed.

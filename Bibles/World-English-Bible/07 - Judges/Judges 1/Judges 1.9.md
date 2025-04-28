@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And afterward the children of Judah went down to fight against the Canaanites that dwelt in the hill-country, and in the South, and in the lowland.
+Afterward the children of Judah went down to fight against the Canaanites who lived in the hill country, and in the South, and in the lowland.

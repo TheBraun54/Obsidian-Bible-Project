@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Or darkness, so that thou canst not see, And abundance of waters cover thee.
+or darkness, so that you can not see, and floods of waters cover you.

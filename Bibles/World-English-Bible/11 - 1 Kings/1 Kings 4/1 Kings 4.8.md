@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And these are their names: Ben-hur, in the hill-country of Ephraim;
+These are their names: Ben Hur, in the hill country of Ephraim;

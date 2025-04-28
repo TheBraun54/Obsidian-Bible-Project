@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Paul said, I am standing before Caesar's judgment-seat, where I ought to be judged: to the Jews have I done no wrong, as thou also very well knowest.
+But Paul said, "I am standing before Caesar's judgment seat, where I ought to be tried. I have done no wrong to the Jews, as you also know very well.

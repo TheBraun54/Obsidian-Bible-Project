@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Before I was aware, my soul set me [Among] the chariots of my princely people.
+Without realizing it, my desire set me with my royal people's chariots. Friends

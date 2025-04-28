@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they taught in Judah, having the book of the law of Jehovah with them; and they went about throughout all the cities of Judah, and taught among the people.
+They taught in Judah, having the book of the law of Yahweh with them; and they went about throughout all the cities of Judah, and taught among the people.

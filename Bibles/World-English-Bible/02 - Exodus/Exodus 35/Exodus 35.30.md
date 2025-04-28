@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said unto the children of Israel, See, Jehovah hath called by name Bezalel the son of Uri, the son of Hur, of the tribe of Judah;
+Moses said to the children of Israel, "Behold, Yahweh has called by name Bezalel the son of Uri, the son of Hur, of the tribe of Judah.

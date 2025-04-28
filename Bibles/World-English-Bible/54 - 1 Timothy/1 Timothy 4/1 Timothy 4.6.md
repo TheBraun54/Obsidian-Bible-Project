@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If thou put the brethren in mind of these things, thou shalt be a good minister of Christ Jesus, nourished in the words of the faith, and of the good doctrine which thou hast followed [until now] :
+If you instruct the brothers of these things, you will be a good servant of Christ Jesus, nourished in the words of the faith, and of the good doctrine which you have followed.

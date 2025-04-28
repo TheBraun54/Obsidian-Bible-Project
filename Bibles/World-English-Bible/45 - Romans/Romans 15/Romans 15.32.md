@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that I may come unto you in joy through the will of God, and together with you find rest.
+that I may come to you in joy through the will of God, and together with you, find rest.

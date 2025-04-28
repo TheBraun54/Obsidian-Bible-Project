@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Abigail bare Amasa; and the father of Amasa was Jether the Ishmaelite.
+Abigail bore Amasa; and the father of Amasa was Jether the Ishmaelite.

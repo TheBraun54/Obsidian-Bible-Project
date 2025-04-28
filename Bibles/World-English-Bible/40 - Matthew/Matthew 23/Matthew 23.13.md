@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But woe unto you, scribes and Pharisees, hypocrites! because ye shut the kingdom of heaven against men: for ye enter not in yourselves, neither suffer ye them that are entering in to enter. [
+"Woe to you, scribes and Pharisees, hypocrites! For you devour widows' houses, and as a pretense you make long prayers. Therefore you will receive greater condemnation.

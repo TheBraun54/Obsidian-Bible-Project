@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they were come to Jerusalem, they were received of the church and the apostles and the elders, and they rehearsed all things that God had done with them.
+When they had come to Jerusalem, they were received by the assembly and the apostles and the elders, and they reported all things that God had done with them.

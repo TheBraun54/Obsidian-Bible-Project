@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and they said unto him, Behold, thou art old, and thy sons walk not in thy ways: now make us a king to judge us like all the nations.
+and they said to him, "Behold, you are old, and your sons don't walk in your ways: now make us a king to judge us like all the nations."

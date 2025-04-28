@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Sanballat the Horonite, and Tobiah the servant, the Ammonite, heard of it, it grieved them exceedingly, for that there was come a man to seek the welfare of the children of Israel.
+When Sanballat the Horonite, and Tobiah the servant, the Ammonite, heard of it, it grieved them exceedingly, because a man had come to seek the welfare of the children of Israel.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-because it goeth not into his heart, but into his belly, and goeth out into the draught? [This he said], making all meats clean.
+because it doesn't go into his heart, but into his stomach, then into the latrine, thus purifying all foods?"

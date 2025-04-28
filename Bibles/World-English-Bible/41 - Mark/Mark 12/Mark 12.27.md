@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He is not the God of the dead, but of the living: ye do greatly err.
+He is not the God of the dead, but of the living. You are therefore badly mistaken."

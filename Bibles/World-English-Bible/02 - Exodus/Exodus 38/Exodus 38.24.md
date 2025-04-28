@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-All the gold that was used for the work in all the work of the sanctuary, even the gold of the offering, was twenty and nine talents, and seven hundred and thirty shekels, after the shekel of the sanctuary.
+All the gold that was used for the work in all the work of the sanctuary, even the gold of the offering, was twenty-nine talents, and seven hundred thirty shekels, after the shekel of the sanctuary.

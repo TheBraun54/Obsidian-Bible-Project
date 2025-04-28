@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Though I walk in the midst of trouble, thou wilt revive me; Thou wilt stretch forth thy hand against the wrath of mine enemies, And thy right hand will save me.
+Though I walk in the midst of trouble, you will revive me. You will stretch forth your hand against the wrath of my enemies. Your right hand will save me.

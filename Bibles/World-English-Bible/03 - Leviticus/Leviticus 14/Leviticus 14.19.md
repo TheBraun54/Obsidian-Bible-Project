@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the priest shall offer the sin-offering, and make atonement for him that is to be cleansed because of his uncleanness: and afterward he shall kill the burnt-offering;
+"The priest shall offer the sin offering, and make atonement for him who is to be cleansed because of his uncleanness: and afterward he shall kill the burnt offering;

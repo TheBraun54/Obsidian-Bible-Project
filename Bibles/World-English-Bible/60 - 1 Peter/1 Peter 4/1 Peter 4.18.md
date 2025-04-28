@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And if the righteous is scarcely saved, where shall the ungodly and sinner appear?
+"If it is hard for the righteous to be saved, what will happen to the ungodly and the sinner?"

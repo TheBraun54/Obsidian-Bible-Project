@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Sarah died in Kiriath-arba (the same is Hebron), in the land of Canaan: and Abraham came to mourn for Sarah, and to weep for her.
+Sarah died in Kiriath Arba (the same is Hebron), in the land of Canaan. Abraham came to mourn for Sarah, and to weep for her.

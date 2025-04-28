@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-As thou didst rejoice over the inheritance of the house of Israel, because it was desolate, so will I do unto thee: thou shalt be desolate, O mount Seir, and all Edom, even all of it; and they shall know that I am Jehovah.
+As you rejoiced over the inheritance of the house of Israel, because it was desolate, so will I do to you: you shall be desolate, Mount Seir, and all Edom, even all of it; and they shall know that I am Yahweh.

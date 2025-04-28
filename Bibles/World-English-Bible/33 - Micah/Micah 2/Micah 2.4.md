@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-In that day shall they take up a parable against you, and lament with a doleful lamentation, [and] say, We are utterly ruined: he changeth the portion of my people: how doth he remove [it] from me! to the rebellious he divideth our fields.
+In that day they will take up a parable against you, and lament with a doleful lamentation, saying, 'We are utterly ruined! My people's possession is divided up. Indeed he takes it from me and assigns our fields to traitors!'"

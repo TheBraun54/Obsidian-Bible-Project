@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-TAV. Let my cry come near before thee, O Jehovah: Give me understanding according to thy word.
+Let my cry come before you, Yahweh. Give me understanding according to your word.

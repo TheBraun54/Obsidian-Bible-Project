@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Speak now in the ears of the people, and let them ask every man of his neighbor, and every woman of her neighbor, jewels of silver, and jewels of gold.
+Speak now in the ears of the people, and let them ask every man of his neighbor, and every woman of her neighbor, jewels of silver, and jewels of gold."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He layeth up sound wisdom for the upright; [He is] a shield to them that walk in integrity;
+He lays up sound wisdom for the upright. He is a shield to those who walk in integrity;

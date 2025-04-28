@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-but I trust in the Lord that I myself also shall come shortly.
+But I trust in the Lord that I myself also will come shortly.

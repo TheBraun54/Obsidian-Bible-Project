@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But God will smite through the head of his enemies, The hairy scalp of such a one as goeth on still in his guiltiness.
+But God will strike through the head of his enemies, the hairy scalp of such a one as still continues in his guiltiness.

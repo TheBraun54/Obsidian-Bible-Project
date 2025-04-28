@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he shall bring it to the priest, and the priest shall take his handful of it as the memorial thereof, and burn it on the altar, upon the offerings of Jehovah made by fire: it is a sin-offering.
+He shall bring it to the priest, and the priest shall take his handful of it as the memorial portion, and burn it on the altar, on the offerings of Yahweh made by fire. It is a sin offering.

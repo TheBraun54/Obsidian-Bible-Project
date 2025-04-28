@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Where there is no vision, the people cast off restraint; But he that keepeth the law, happy is he.
+Where there is no revelation, the people cast off restraint; but one who keeps the law is blessed.

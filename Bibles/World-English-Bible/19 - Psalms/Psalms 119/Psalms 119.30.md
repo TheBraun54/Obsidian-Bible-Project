@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I have chosen the way of faithfulness: Thine ordinances have I set [before me] .
+I have chosen the way of truth. I have set your ordinances before me.

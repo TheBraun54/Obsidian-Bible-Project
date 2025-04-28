@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But I say that so long as the heir is a child, he differeth nothing from a bondservant though he is lord of all;
+But I say that so long as the heir is a child, he is no different from a bondservant, though he is lord of all;

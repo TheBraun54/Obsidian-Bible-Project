@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[A Song of Ascents]. Jehovah, remember for David All his affliction;
+Yahweh, remember David and all his affliction,

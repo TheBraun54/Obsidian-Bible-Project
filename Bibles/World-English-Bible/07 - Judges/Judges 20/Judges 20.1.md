@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then all the children of Israel went out, and the congregation was assembled as one man, from Dan even to Beer-sheba, with the land of Gilead, unto Jehovah at Mizpah.
+Then all the children of Israel went out, and the congregation was assembled as one man, from Dan even to Beersheba, with the land of Gilead, to Yahweh at Mizpah.

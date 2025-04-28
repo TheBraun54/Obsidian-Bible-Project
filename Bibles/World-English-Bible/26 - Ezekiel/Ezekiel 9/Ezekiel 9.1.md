@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then he cried in mine ears with a loud voice, saying, Cause ye them that have charge over the city to draw near, every man with his destroying weapon in his hand.
+Then he cried in my ears with a loud voice, saying, Cause those who are in charge of the city to draw near, every man with his destroying weapon in his hand.

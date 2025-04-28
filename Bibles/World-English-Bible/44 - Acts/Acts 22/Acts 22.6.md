@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And it came to pass, that, as I made my journey, and drew nigh unto Damascus, about noon, suddenly there shone from heaven a great light round about me.
+It happened that, as I made my journey, and came close to Damascus, about noon, suddenly there shone from the sky a great light around me.

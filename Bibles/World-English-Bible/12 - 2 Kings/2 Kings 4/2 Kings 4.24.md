@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Then she saddled an ass, and said to her servant, Drive, and go forward; slacken me not the riding, except I bid thee.
+Then she saddled a donkey, and said to her servant, "Drive, and go forward! Don't slow down for me, unless I ask you to."

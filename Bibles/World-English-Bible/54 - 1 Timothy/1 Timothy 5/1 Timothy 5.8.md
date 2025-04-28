@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But if any provideth not for his own, and specially his own household, he hath denied the faith, and is worse than an unbeliever.
+But if anyone doesn't provide for his own, and especially his own household, he has denied the faith, and is worse than an unbeliever.

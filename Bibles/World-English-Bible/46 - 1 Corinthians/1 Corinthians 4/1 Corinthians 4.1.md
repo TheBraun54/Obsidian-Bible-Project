@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let a man so account of us, as of ministers of Christ, and stewards of the mysteries of God.
+So let a man think of us as Christ's servants, and stewards of God's mysteries.

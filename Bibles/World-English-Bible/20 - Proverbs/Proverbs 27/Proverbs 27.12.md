@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A prudent man seeth the evil, [and] hideth himself; [But] the simple pass on, [and] suffer for it.
+A prudent man sees danger and takes refuge; but the simple pass on, and suffer for it.

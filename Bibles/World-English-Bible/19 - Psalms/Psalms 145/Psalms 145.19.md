@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He will fulfil the desire of them that fear him; He also will hear their cry and will save them.
+He will fulfill the desire of those who fear him. He also will hear their cry, and will save them.

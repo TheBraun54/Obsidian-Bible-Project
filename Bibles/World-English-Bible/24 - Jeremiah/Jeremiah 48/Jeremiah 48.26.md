@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Make ye him drunken; for he magnified himself against Jehovah: and Moab shall wallow in his vomit, and he also shall be in derision.
+Make him drunken; for he magnified himself against Yahweh: and Moab shall wallow in his vomit, and he also shall be in derision.

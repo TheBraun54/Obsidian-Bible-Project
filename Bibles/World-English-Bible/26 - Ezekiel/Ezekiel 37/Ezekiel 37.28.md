@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the nations shall know that I am Jehovah that sanctifieth Israel, when my sanctuary shall be in the midst of them for evermore.
+The nations shall know that I am Yahweh who sanctifies Israel, when my sanctuary shall be in the midst of them forevermore.

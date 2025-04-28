@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy head upon thee is like Carmel, And the hair of thy head like purple; The king is held captive in the tresses [thereof] .
+Your head on you is like Carmel. The hair of your head like purple. The king is held captive in its tresses.

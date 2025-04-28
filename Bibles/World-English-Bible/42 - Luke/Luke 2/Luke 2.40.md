@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the child grew, and waxed strong, filled with wisdom: and the grace of God was upon him.
+The child was growing, and was becoming strong in spirit, being filled with wisdom, and the grace of God was upon him.

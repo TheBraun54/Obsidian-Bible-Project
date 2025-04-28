@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou art nigh, O Jehovah; And all thy commandments are truth.
+You are near, Yahweh. All your commandments are truth.

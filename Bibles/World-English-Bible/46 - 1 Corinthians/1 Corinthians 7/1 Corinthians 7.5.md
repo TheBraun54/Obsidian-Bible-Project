@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Defraud ye not one the other, except it be by consent for a season, that ye may give yourselves unto prayer, and may be together again, that Satan tempt you not because of your incontinency.
+Don't deprive one another, unless it is by consent for a season, that you may give yourselves to fasting and prayer, and may be together again, that Satan doesn't tempt you because of your lack of self-control.

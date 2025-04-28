@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall dwell with us: and the land shall be before you; dwell and trade ye therein, and get you possessions therein.
+You shall dwell with us, and the land will be before you. Live and trade in it, and get possessions in it."

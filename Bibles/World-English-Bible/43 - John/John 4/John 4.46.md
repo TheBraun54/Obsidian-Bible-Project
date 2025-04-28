@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He came therefore again unto Cana of Galilee, where he made the water wine. And there was a certain nobleman, whose son was sick at Capernaum.
+Jesus came therefore again to Cana of Galilee, where he made the water into wine. There was a certain nobleman whose son was sick at Capernaum.

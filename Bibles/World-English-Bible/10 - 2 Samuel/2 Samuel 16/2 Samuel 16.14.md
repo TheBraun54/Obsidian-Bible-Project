@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king, and all the people that were with him, came weary; and he refreshed himself there.
+The king, and all the people who were with him, came weary; and he refreshed himself there.

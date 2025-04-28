@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Even as Abraham believed God, and it was reckoned unto him for righteousness.
+Even as Abraham "believed God, and it was counted to him for righteousness."

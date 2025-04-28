@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that ye shall say, It is the sacrifice of Jehovah's passover, who passed over the houses of the children of Israel in Egypt, when he smote the Egyptians, and delivered our houses. And the people bowed the head and worshipped.
+that you shall say, 'It is the sacrifice of Yahweh's Passover, who passed over the houses of the children of Israel in Egypt, when he struck the Egyptians, and spared our houses.'" The people bowed their heads and worshiped.

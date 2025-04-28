@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[ Thou art] a fountain of gardens, A well of living waters, And flowing streams from Lebanon.
+a fountain of gardens, a well of living waters, flowing streams from Lebanon. Beloved

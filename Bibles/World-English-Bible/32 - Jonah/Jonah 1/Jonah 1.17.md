@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah prepared a great fish to swallow up Jonah; and Jonah was in the belly of the fish three days and three nights.
+Yahweh prepared a great fish to swallow up Jonah, and Jonah was in the belly of the fish three days and three nights.

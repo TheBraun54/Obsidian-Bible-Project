@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Pharaoh turned and went into his house, neither did he lay even this to heart.
+Pharaoh turned and went into his house, neither did he lay even this to heart.

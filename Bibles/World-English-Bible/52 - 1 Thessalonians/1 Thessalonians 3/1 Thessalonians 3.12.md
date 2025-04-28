@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the Lord make you to increase and abound in love one toward another, and toward all men, even as we also [do] toward you;
+and the Lord make you to increase and abound in love one toward another, and toward all men, even as we also do toward you,

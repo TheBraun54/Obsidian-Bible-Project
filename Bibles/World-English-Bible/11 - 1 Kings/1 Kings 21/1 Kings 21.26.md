@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he did very abominably in following idols, according to all that the Amorites did, whom Jehovah cast out before the children of Israel.)
+He did very abominably in following idols, according to all that the Amorites did, whom Yahweh cast out before the children of Israel.

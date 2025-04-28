@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For verily not to angels doth he give help, but he giveth help to the seed of Abraham.
+For most certainly, he doesn't give help to angels, but he gives help to the seed of Abraham.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye shall observe to do therefore as Jehovah your God hath commanded you: ye shall not turn aside to the right hand or to the left.
+You shall observe to do therefore as Yahweh your God has commanded you: you shall not turn aside to the right hand or to the left.

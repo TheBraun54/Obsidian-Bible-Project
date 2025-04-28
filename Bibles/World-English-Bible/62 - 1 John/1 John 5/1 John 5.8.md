@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For there are three who bear witness, the Spirit, and the water, and the blood: and the three agree in one.
+the Spirit, the water, and the blood; and the three agree as one.

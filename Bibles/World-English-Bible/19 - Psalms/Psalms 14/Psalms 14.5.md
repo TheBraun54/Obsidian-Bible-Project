@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-There were they in great fear; For God is in the generation of the righteous.
+There they were in great fear, for God is in the generation of the righteous.

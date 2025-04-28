@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Samson went to Gaza, and saw there a harlot, and went in unto her.
+Samson went to Gaza, and saw there a prostitute, and went in to her.

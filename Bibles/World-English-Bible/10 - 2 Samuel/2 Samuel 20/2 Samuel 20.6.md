@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David said to Abishai, Now will Sheba the son of Bichri do us more harm than did Absalom: take thou thy lord's servants, and pursue after him, lest he get him fortified cities, and escape out of our sight.
+David said to Abishai, "Now Sheba the son of Bichri will do us more harm than did Absalom. Take your lord's servants, and pursue after him, lest he get himself fortified cities, and escape out of our sight."

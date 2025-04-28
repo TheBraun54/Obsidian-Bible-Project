@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-I chose out their way, and sat [as] chief, And dwelt as a king in the army, As one that comforteth the mourners.
+I chose out their way, and sat as chief. I lived as a king in the army, as one who comforts the mourners.

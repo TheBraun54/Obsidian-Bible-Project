@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-saying, Sir, we remember that that deceiver said while he was yet alive, After three days I rise again.
+saying, "Sir, we remember what that deceiver said while he was still alive: 'After three days I will rise again.'

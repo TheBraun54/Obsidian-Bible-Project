@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Every valley shall be filled, And every mountain and hill shall be brought low; And the crooked shall become straight, And the rough ways smooth;
+Every valley will be filled. Every mountain and hill will be brought low. The crooked will become straight, and the rough ways smooth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Moreover thou shalt say unto them, Thus saith Jehovah: Shall men fall, and not rise up again? Shall one turn away, and not return?
+Moreover you shall tell them, Thus says Yahweh: Shall men fall, and not rise up again? Shall one turn away, and not return?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore on that day he called him Jerubbaal, saying, Let Baal contend against him, because he hath broken down his altar.
+Therefore on that day he named him Jerub-Baal, saying, "Let Baal contend against him, because he has broken down his altar."

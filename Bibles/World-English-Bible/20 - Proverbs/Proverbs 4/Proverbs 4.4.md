@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he taught me, and said unto me: Let thy heart retain my words; Keep my commandments, and live;
+He taught me, and said to me: "Let your heart retain my words. Keep my commandments, and live.

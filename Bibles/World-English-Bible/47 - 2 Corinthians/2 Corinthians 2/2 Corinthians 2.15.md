@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For we are a sweet savor of Christ unto God, in them that are saved, and in them that perish;
+For we are a sweet aroma of Christ to God, in those who are saved, and in those who perish;

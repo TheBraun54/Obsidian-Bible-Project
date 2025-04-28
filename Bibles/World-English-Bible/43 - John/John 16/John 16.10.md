@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-of righteousness, because I go to the Father, and ye behold me no more;
+about righteousness, because I am going to my Father, and you won't see me any more;

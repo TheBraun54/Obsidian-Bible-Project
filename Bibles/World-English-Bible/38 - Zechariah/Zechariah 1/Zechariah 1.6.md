@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But my words and my statutes, which I commanded my servants the prophets, did they not overtake your fathers? and they turned and said, Like as Jehovah of hosts thought to do unto us, according to our ways, and according to our doings, so hath he dealt with us.
+But my words and my decrees, which I commanded my servants the prophets, didn't they overtake your fathers? "Then they repented and said, 'Just as Yahweh of Armies determined to do to us, according to our ways, and according to our practices, so he has dealt with us.'"

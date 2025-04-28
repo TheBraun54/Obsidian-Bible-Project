@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To whom art thou thus like in glory and in greatness among the trees of Eden? yet shalt thou be brought down with the trees of Eden unto the nether parts of the earth: thou shalt lie in the midst of the uncircumcised, with them that are slain by the sword. This is Pharaoh and all his multitude, saith the Lord Jehovah.
+To whom are you thus like in glory and in greatness among the trees of Eden? yet you will be brought down with the trees of Eden to the lower parts of the earth: you shall lie in the midst of the uncircumcised, with those who are slain by the sword. This is Pharaoh and all his multitude, says the Lord Yahweh.

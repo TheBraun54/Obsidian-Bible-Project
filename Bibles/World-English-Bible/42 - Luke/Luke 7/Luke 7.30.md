@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the Pharisees and the lawyers rejected for themselves the counsel of God, being not baptized of him.
+But the Pharisees and the lawyers rejected the counsel of God, not being baptized by him themselves.

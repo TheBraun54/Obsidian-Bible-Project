@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the wave-breast and the heave-thigh shall ye eat in a clean place, thou, and thy sons, and thy daughters with thee: for they are given as thy portion, and thy sons' portion, out of the sacrifices of the peace-offerings of the children of Israel.
+The waved breast and the heaved thigh you shall eat in a clean place, you, and your sons, and your daughters with you: for they are given as your portion, and your sons' portion, out of the sacrifices of the peace offerings of the children of Israel.

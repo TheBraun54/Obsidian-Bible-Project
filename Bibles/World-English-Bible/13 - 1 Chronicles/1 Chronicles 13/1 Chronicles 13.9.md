@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when they came unto the threshing-floor of Chidon, Uzza put forth his hand to hold the ark; for the oxen stumbled.
+When they came to the threshing floor of Chidon, Uzza put forth his hand to hold the ark; for the oxen stumbled.

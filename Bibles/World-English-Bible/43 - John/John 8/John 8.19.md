@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-They said therefore unto him, Where is thy Father? Jesus answered, Ye know neither me, nor my Father: if ye knew me, ye would know my Father also.
+They said therefore to him, "Where is your Father?" Jesus answered, "You know neither me, nor my Father. If you knew me, you would know my Father also."

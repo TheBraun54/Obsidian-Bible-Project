@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and without a parable spake he not unto them: but privately to his own disciples he expounded all things.
+Without a parable he didn't speak to them; but privately to his own disciples he explained everything.

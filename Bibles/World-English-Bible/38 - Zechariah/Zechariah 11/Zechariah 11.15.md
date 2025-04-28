@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah said unto me, Take unto thee yet again the instruments of a foolish shepherd.
+Yahweh said to me, "Take for yourself yet again the equipment of a foolish shepherd.

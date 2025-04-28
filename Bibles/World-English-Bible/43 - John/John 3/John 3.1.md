@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now there was a man of the Pharisees, named Nicodemus, a ruler of the Jews:
+Now there was a man of the Pharisees named Nicodemus, a ruler of the Jews.

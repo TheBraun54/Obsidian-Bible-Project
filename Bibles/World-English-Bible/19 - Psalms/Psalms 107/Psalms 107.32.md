@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let them exalt him also in the assembly of the people, And praise him in the seat of the elders.
+Let them exalt him also in the assembly of the people, and praise him in the seat of the elders.

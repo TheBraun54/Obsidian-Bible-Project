@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The words of the wise are as goads; and as nails well fastened are [the words of] the masters of assemblies, [which] are given from one shepherd.
+The words of the wise are like goads; and like nails well fastened are words from the masters of assemblies, which are given from one shepherd.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And strangers shall stand and feed your flocks, and foreigners shall be your plowmen and your vinedressers.
+Strangers shall stand and feed your flocks, and foreigners shall be your plowmen and your vinedressers.

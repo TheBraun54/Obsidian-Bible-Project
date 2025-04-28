@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And ye shall keep the charge of the sanctuary, and the charge of the altar; that there be wrath no more upon the children of Israel.
+"You shall perform the duty of the sanctuary, and the duty of the altar; that there be wrath no more on the children of Israel.

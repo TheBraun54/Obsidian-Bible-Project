@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-On the north side shall be the standard of the camp of Dan according to their hosts: and the prince of the children of Dan shall be Ahiezer the son of Ammishaddai.
+"On the north side shall be the standard of the camp of Dan according to their divisions: and the prince of the children of Dan shall be Ahiezer the son of Ammishaddai.

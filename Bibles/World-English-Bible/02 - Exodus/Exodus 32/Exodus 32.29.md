@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses said, Consecrate yourselves to-day to Jehovah, yea, every man against his son, and against his brother; that he may bestow upon you a blessing this day.
+Moses said, "Consecrate yourselves today to Yahweh, yes, every man against his son, and against his brother; that he may bestow on you a blessing this day."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-that ye be not sluggish, but imitators of them who through faith and patience inherit the promises.
+that you won't be sluggish, but imitators of those who through faith and patience inherited the promises.

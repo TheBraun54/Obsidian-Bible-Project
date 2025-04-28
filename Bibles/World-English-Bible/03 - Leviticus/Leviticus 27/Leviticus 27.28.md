@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Notwithstanding, no devoted thing, that a man shall devote unto Jehovah of all that he hath, whether of man or beast, or of the field of his possession, shall be sold or redeemed: every devoted thing is most holy unto Jehovah.
+"'Notwithstanding, no devoted thing, that a man shall devote to Yahweh of all that he has, whether of man or animal, or of the field of his possession, shall be sold or redeemed: every devoted thing is most holy to Yahweh.

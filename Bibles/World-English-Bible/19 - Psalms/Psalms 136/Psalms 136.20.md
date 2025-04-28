@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Og king of Bashan; For his lovingkindness [endureth] for ever;
+Og king of Bashan; for his loving kindness endures forever;

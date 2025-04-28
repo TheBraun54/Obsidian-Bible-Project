@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he doeth great signs, that he should even make fire to come down out of heaven upon the earth in the sight of men.
+He performs great signs, even making fire come down out of the sky to the earth in the sight of people.

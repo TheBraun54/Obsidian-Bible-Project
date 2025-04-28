@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Lift up thy feet unto the perpetual ruins, All the evil that the enemy hath done in the sanctuary.
+Lift up your feet to the perpetual ruins, all the evil that the enemy has done in the sanctuary.

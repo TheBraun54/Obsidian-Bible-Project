@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Be not desirous of his dainties; Seeing they are deceitful food.
+Don't be desirous of his dainties, since they are deceitful food.

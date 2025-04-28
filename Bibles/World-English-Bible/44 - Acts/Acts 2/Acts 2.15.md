@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For these are not drunken, as ye suppose; seeing it is [but] the third hour of the day.
+For these aren't drunken, as you suppose, seeing it is only the third hour of the day.

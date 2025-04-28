@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou didst establish to thyself thy people Israel to be a people unto thee for ever; and thou, Jehovah, becamest their God.
+You established for yourself your people Israel to be a people to you forever; and you, Yahweh, became their God.

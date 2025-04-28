@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Cast off among the dead, Like the slain that lie in the grave, Whom thou rememberest no more, And they are cut off from thy hand.
+set apart among the dead, like the slain who lie in the grave, whom you remember no more. They are cut off from your hand.

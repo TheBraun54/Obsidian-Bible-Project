@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-When they were come to the land of Zuph, Saul said to his servant that was with him, Come, and let us return, lest my father leave off caring for the asses, and be anxious for us.
+When they had come to the land of Zuph, Saul said to his servant who was with him, "Come, and let us return, lest my father stop caring about the donkeys, and be anxious for us."

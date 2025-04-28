@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And David's heart smote him after that he had numbered the people. And David said unto Jehovah, I have sinned greatly in that which I have done: but now, O Jehovah, put away, I beseech thee, the iniquity of thy servant; for I have done very foolishly.
+David's heart struck him after that he had numbered the people. David said to Yahweh, "I have sinned greatly in that which I have done. But now, Yahweh, put away, I beg you, the iniquity of your servant; for I have done very foolishly."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And thou shalt remember all the way which Jehovah thy God hath led thee these forty years in the wilderness, that he might humble thee, to prove thee, to know what was in thy heart, whether thou wouldest keep his commandments, or not.
+You shall remember all the way which Yahweh your God has led you these forty years in the wilderness, that he might humble you, to prove you, to know what was in your heart, whether you would keep his commandments, or not.

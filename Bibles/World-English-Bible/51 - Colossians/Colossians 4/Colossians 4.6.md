@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Let your speech be always with grace, seasoned with salt, that ye may know how ye ought to answer each one.
+Let your speech always be with grace, seasoned with salt, that you may know how you ought to answer each one.

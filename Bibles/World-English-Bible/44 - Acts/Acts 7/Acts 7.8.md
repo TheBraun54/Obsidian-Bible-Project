@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he gave him the covenant of circumcision: and so [Abraham] begat Isaac, and circumcised him the eighth day; and Isaac [begat] Jacob, and Jacob the twelve patriarchs.
+He gave him the covenant of circumcision. So Abraham became the father of Isaac, and circumcised him the eighth day. Isaac became the father of Jacob, and Jacob became the father of the twelve patriarchs.

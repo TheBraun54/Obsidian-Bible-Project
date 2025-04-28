@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Whosoever shall confess that Jesus is the Son of God, God abideth in him, and he in God.
+Whoever confesses that Jesus is the Son of God, God remains in him, and he in God.

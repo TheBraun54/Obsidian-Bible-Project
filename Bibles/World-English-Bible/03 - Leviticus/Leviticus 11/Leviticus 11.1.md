@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah spake unto Moses and to Aaron, saying unto them,
+Yahweh spoke to Moses and to Aaron, saying to them,

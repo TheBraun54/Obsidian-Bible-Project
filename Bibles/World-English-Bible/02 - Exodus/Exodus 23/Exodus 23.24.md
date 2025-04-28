@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not bow down to their gods, nor serve them, nor do after their works; but thou shalt utterly overthrow them, and break in pieces their pillars.
+You shall not bow down to their gods, nor serve them, nor follow their practices, but you shall utterly overthrow them and demolish their pillars.

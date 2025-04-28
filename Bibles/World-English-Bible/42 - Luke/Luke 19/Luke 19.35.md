@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they brought him to Jesus: and they threw their garments upon the colt, and set Jesus thereon.
+They brought it to Jesus. They threw their cloaks on the colt, and set Jesus on them.

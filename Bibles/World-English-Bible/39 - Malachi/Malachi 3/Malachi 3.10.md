@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Bring ye the whole tithe into the store-house, that there may be food in my house, and prove me now herewith, saith Jehovah of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough [to receive it] .
+Bring the whole tithe into the storehouse, that there may be food in my house, and test me now in this," says Yahweh of Armies, "if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough for.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thy holy cities are become a wilderness, Zion is become a wilderness, Jerusalem a desolation.
+Your holy cities are become a wilderness, Zion is become a wilderness, Jerusalem a desolation.

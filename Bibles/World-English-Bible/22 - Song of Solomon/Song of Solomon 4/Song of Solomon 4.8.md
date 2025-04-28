@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Come with me from Lebanon, [my] bride, With me from Lebanon: Look from the top of Amana, From the top of Senir and Hermon, From the lions' dens, From the mountains of the leopards.
+Come with me from Lebanon, my bride, with me from Lebanon. Look from the top of Amana, from the top of Senir and Hermon, from the lions' dens, from the mountains of the leopards.

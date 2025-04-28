@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he did that which was right in the eyes of Jehovah, and walked in all the way of David his father, and turned not aside to the right hand or to the left.
+He did that which was right in the eyes of Yahweh, and walked in all the way of David his father, and didn't turn aside to the right hand or to the left.

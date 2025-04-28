@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But when the Comforter is come, whom I will send unto you from the Father, [even] the Spirit of truth, which proceedeth from the Father, he shall bear witness of me:
+"When the Counselor has come, whom I will send to you from the Father, the Spirit of truth, who proceeds from the Father, he will testify about me.

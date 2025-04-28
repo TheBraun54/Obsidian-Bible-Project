@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Moses and the priests the Levites spake unto all Israel, saying, Keep silence, and hearken, O Israel: this day thou art become the people of Jehovah thy God.
+Moses and the priests the Levites spoke to all Israel, saying, "Keep silence, and listen, Israel: this day you have become the people of Yahweh your God.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-one male of the goats for a sin-offering;
+one male goat for a sin offering;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and say, Thus saith the Lord Jehovah: Behold, I am against thee, O Gog, prince of Rosh, Meshech, and Tubal:
+and say, Thus says the Lord Yahweh: Behold, I am against you, Gog, prince of Rosh, Meshech, and Tubal:

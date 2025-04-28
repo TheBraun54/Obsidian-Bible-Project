@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and the law is not of faith; but, He that doeth them shall live in them.
+The law is not of faith, but, "The man who does them will live by them."

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore he that resisteth the power, withstandeth the ordinance of God: and they that withstand shall receive to themselves judgment.
+Therefore he who resists the authority, withstands the ordinance of God; and those who withstand will receive to themselves judgment.

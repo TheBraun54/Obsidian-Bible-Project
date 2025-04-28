@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the children of Israel set forward according to their journeys out of the wilderness of Sinai; and the cloud abode in the wilderness of Paran.
+The children of Israel went forward according to their journeys out of the wilderness of Sinai; and the cloud stayed in the wilderness of Paran.

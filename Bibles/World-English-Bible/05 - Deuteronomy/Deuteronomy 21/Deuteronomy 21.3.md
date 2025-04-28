@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and it shall be, that the city which is nearest unto the slain man, even the elders of that city shall take a heifer of the herd, which hath not been wrought with, and which hath not drawn in the yoke;
+and it shall be, that the city which is nearest to the slain man, even the elders of that city shall take a heifer of the herd, which hasn't been worked with, and which has not drawn in the yoke;

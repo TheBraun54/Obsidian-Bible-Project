@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Forasmuch as ye have taken my silver and my gold, and have carried into your temples my goodly precious things,
+Because you have taken my silver and my gold, and have carried my finest treasures into your temples,

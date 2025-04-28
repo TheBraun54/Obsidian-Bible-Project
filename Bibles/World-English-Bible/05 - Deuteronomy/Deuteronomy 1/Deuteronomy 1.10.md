@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Jehovah your God hath multiplied you, and, behold, ye are this day as the stars of heaven for multitude.
+Yahweh your God has multiplied you, and behold, you are this day as the stars of the sky for multitude.

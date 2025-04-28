@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Spikenard and saffron, Calamus and cinnamon, with all trees of frankincense; Myrrh and aloes, with all the chief spices.
+spikenard and saffron, calamus and cinnamon, with every kind of incense tree; myrrh and aloes, with all the best spices,

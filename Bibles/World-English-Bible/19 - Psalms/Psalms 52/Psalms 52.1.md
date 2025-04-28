@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-[For the Chief Musician. Maschil of David; when Doeg the Edomite came and told Saul, and said unto him, David is come to the house of Ahimelech]. Why boastest thou thyself in mischief, O mighty man? The lovingkindness of God [endureth] continually.
+Why do you boast of mischief, mighty man? God's loving kindness endures continually.

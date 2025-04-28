@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And this is the number of them: thirty platters of gold, a thousand platters of silver, nine and twenty knives,
+This is the number of them: thirty platters of gold, one thousand platters of silver, twenty-nine knives,

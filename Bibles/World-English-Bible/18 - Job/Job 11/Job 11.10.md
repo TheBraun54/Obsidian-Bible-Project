@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If he pass through, and shut up, And call unto judgment, then who can hinder him?
+If he passes by, or confines, or convenes a court, then who can oppose him?

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt not follow a multitude to do evil; neither shalt thou speak in a cause to turn aside after a multitude to wrest [justice] :
+"You shall not follow a crowd to do evil; neither shall you testify in court to side with a multitude to pervert justice;

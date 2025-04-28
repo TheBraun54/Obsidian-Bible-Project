@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And all the city was moved, and the people ran together; and they laid hold on Paul, and dragged him out of the temple: and straightway the doors were shut.
+All the city was moved, and the people ran together. They seized Paul and dragged him out of the temple. Immediately the doors were shut.

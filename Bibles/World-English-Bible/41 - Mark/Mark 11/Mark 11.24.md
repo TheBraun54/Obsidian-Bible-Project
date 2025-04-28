@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Therefore I say unto you, All things whatsoever ye pray and ask for, believe that ye receive them, and ye shall have them.
+Therefore I tell you, all things whatever you pray and ask for, believe that you have received them, and you shall have them.

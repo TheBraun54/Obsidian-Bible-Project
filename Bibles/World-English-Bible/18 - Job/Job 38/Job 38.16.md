@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Hast thou entered into the springs of the sea? Or hast thou walked in the recesses of the deep?
+"Have you entered into the springs of the sea? Or have you walked in the recesses of the deep?

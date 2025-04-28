@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And a woman having an issue of blood twelve years, who had spent all her living upon physicians, and could not be healed of any,
+A woman who had a flow of blood for twelve years, who had spent all her living on physicians, and could not be healed by any,

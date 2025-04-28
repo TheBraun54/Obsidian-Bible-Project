@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The rich man had exceeding many flocks and herds;
+The rich man had very many flocks and herds,

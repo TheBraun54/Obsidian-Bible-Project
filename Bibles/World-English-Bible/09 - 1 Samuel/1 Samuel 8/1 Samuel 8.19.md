@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But the people refused to hearken unto the voice of Samuel; and they said, Nay: but we will have a king over us,
+But the people refused to listen to the voice of Samuel; and they said, "No; but we will have a king over us,

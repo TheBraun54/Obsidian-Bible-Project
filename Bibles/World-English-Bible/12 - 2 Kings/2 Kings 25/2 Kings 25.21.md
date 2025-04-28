@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And the king of Babylon smote them, and put them to death at Riblah in the land of Hamath. So Judah was carried away captive out of his land.
+The king of Babylon struck them, and put them to death at Riblah in the land of Hamath. So Judah was carried away captive out of his land.

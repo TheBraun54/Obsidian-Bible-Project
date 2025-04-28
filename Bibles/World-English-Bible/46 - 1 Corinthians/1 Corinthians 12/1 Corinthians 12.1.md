@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Now concerning spiritual [gifts], brethren, I would not have you ignorant.
+Now concerning spiritual things, brothers, I don't want you to be ignorant.

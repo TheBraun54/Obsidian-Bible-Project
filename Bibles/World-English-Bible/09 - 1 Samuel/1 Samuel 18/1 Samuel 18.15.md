@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Saul saw that he behaved himself very wisely, he stood in awe of him.
+When Saul saw that he behaved himself very wisely, he stood in awe of him.

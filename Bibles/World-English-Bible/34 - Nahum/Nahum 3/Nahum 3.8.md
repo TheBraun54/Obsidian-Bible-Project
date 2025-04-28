@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Art thou better than No-amon, that was situate among the rivers, that had the waters round about her; whose rampart was the sea, [and] her wall was of the sea? [
+Are you better than No-Amon, who was situated among the rivers, who had the waters around her; whose rampart was the sea, and her wall was of the sea?

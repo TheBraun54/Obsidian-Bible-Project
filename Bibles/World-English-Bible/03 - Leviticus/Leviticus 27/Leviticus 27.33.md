@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-He shall not search whether it be good or bad, neither shall he change it: and if he change it at all, then both it and that for which it is changed shall be holy; it shall not be redeemed.
+He shall not search whether it is good or bad, neither shall he change it: and if he changes it at all, then both it and that for which it is changed shall be holy. It shall not be redeemed.'"

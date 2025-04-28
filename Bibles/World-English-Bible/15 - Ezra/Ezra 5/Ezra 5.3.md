@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-At the same time came to them Tattenai, the governor beyond the River, and Shethar-bozenai, and their companions, and said thus unto them, Who gave you a decree to build this house, and to finish this wall?
+At the same time came to them Tattenai, the governor beyond the River, and Shetharbozenai, and their companions, and said thus to them, "Who gave you a decree to build this house, and to finish this wall?"

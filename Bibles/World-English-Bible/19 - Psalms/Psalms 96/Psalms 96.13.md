@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Before Jehovah; For he cometh, For he cometh to judge the earth: He will judge the world with righteousness, And the peoples with his truth.
+before Yahweh; for he comes, for he comes to judge the earth. He will judge the world with righteousness, the peoples with his truth.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And when Paul and Barnabas had no small dissension and questioning with them, [the brethren] appointed that Paul and Barnabas, and certain other of them, should go up to Jerusalem unto the apostles and elders about this question.
+Therefore when Paul and Barnabas had no small discord and discussion with them, they appointed Paul and Barnabas, and some others of them, to go up to Jerusalem to the apostles and elders about this question.

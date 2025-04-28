@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The voice of Jehovah breaketh the cedars; Yea, Jehovah breaketh in pieces the cedars of Lebanon.
+The voice of Yahweh breaks the cedars. Yes, Yahweh breaks in pieces the cedars of Lebanon.

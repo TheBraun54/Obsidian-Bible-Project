@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Shall the throne of wickedness have fellowship with thee, Which frameth mischief by statute?
+Shall the throne of wickedness have fellowship with you, which brings about mischief by statute?

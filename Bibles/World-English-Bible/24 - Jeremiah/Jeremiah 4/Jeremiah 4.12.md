@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-a full wind from these shall come for me: now will I also utter judgments against them.
+a full wind from these shall come for me. Now I will also utter judgments against them."

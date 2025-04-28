@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But these are they of which ye shall not eat: the eagle, and the gier-eagle, and the ospray,
+But these are they of which you shall not eat: the eagle, and the vulture, and the osprey,

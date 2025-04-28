@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Ye are my witnesses, saith Jehovah, and my servant whom I have chosen; that ye may know and believe me, and understand that I am he: before me there was no God formed, neither shall there be after me.
+"You are my witnesses," says Yahweh, "With my servant whom I have chosen; that you may know and believe me, and understand that I am he. Before me there was no God formed, neither will there be after me.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And they blew the three hundred trumpets, and Jehovah set every man's sword against his fellow, and against all the host; and the host fled as far as Beth-shittah toward Zererah, as far as the border of Abel-meholah, by Tabbath.
+They blew the three hundred trumpets, and Yahweh set every man's sword against his fellow, and against all the army; and the army fled as far as Beth Shittah toward Zererah, as far as the border of Abel Meholah, by Tabbath.

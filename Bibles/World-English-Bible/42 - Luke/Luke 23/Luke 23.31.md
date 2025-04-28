@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-For if they do these things in the green tree, what shall be done in the dry?
+For if they do these things in the green tree, what will be done in the dry?"

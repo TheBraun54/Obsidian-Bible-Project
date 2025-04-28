@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But Jehovah sent out a great wind upon the sea, and there was a mighty tempest on the sea, so that the ship was like to be broken.
+But Yahweh sent out a great wind on the sea, and there was a mighty storm on the sea, so that the ship was likely to break up.

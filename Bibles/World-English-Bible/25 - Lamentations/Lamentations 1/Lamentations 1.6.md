@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And from the daughter of Zion all her majesty is departed: Her princes are become like harts that find no pasture, And they are gone without strength before the pursuer.
+From the daughter of Zion all her majesty is departed: her princes are become like harts that find no pasture, they are gone without strength before the pursuer.

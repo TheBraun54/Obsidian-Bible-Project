@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-To know wisdom and instruction; To discern the words of understanding;
+to know wisdom and instruction; to discern the words of understanding;

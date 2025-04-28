@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-It cannot be gotten for gold, Neither shall silver be weighed for the price thereof.
+It can't be gotten for gold, neither shall silver be weighed for its price.

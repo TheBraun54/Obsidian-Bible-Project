@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Thou shalt no more be termed Forsaken; neither shall thy land any more be termed Desolate: but thou shalt be called Hephzi-bah, and thy land Beulah; for Jehovah delighteth in thee, and thy land shall be married.
+You shall no more be termed Forsaken; neither shall your land any more be termed Desolate: but you shall be called Hephzibah, and your land Beulah; for Yahweh delights in you, and your land shall be married.

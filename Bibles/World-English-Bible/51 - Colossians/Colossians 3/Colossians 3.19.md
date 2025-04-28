@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Husbands, love your wives, and be not bitter against them.
+Husbands, love your wives, and don't be bitter against them.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Jehovah God commanded the man, saying, Of every tree of the garden thou mayest freely eat:
+Yahweh God commanded the man, saying, "Of every tree of the garden you may freely eat;

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And Joshua said unto the children of Israel, Come hither, and hear the words of Jehovah your God.
+Joshua said to the children of Israel, "Come here, and hear the words of Yahweh your God."

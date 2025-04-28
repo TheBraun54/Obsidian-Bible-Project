@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-A wise man is strong; Yea, a man of knowledge increaseth might.
+A wise man has great power; and a knowledgeable man increases strength;

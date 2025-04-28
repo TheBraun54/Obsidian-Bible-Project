@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And forces shall stand on his part, and they shall profane the sanctuary, even the fortress, and shall take away the continual [burnt-offering], and they shall set up the abomination that maketh desolate.
+Forces shall stand on his part, and they shall profane the sanctuary, even the fortress, and shall take away the continual [burnt offering], and they shall set up the abomination that makes desolate.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and stooping and looking in, he seeth the linen cloths lying; yet entered he not in.
+Stooping and looking in, he saw the linen cloths lying, yet he didn't enter in.

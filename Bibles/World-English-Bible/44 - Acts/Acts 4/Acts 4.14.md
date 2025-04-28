@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And seeing the man that was healed standing with them, they could say nothing against it.
+Seeing the man who was healed standing with them, they could say nothing against it.

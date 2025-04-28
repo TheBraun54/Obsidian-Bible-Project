@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Keep thy heart with all diligence; For out of it are the issues of life.
+Keep your heart with all diligence, for out of it is the wellspring of life.

@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-If ye will not hear, and if ye will not lay it to heart, to give glory unto my name, saith Jehovah of hosts, then will I send the curse upon you, and I will curse your blessings; yea, I have cursed them already, because ye do not lay it to heart.
+If you will not listen, and if you will not lay it to heart, to give glory to my name," says Yahweh of Armies, "then will I send the curse on you, and I will curse your blessings. Indeed, I have cursed them already, because you do not lay it to heart.

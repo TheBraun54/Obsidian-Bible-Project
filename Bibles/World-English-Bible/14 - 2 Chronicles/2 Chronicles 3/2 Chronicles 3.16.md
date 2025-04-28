@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And he made chains in the oracle, and put [them] on the tops of the pillars; and he made a hundred pomegranates, and put them on the chains.
+He made chains in the oracle, and put [them] on the tops of the pillars; and he made one hundred pomegranates, and put them on the chains.

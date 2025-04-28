@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-and why not (as we are slanderously reported, and as some affirm that we say), Let us do evil, that good may come? whose condemnation is just.
+Why not (as we are slanderously reported, and as some affirm that we say), "Let us do evil, that good may come?" Those who say so are justly condemned.

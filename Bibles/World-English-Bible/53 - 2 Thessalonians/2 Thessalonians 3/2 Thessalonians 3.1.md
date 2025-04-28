@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Finally, brethren, pray for us, that the word of the Lord may run and be glorified, even as also [it is] with you;
+Finally, brothers, pray for us, that the word of the Lord may spread rapidly and be glorified, even as also with you;

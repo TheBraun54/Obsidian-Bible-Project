@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-And I will set apart in that day the land of Goshen, in which my people dwell, that no swarms of flies shall be there; to the end thou mayest know that I am Jehovah in the midst of the earth.
+I will set apart in that day the land of Goshen, in which my people dwell, that no swarms of flies shall be there; to the end you may know that I am Yahweh in the midst of the earth.

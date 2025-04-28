@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-The lot causeth contentions to cease, And parteth between the mighty.
+The lot settles disputes, and keeps strong ones apart.

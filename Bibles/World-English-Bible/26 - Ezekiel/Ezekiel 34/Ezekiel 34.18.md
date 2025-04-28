@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Seemeth it a small thing unto you to have fed upon the good pasture, but ye must tread down with your feet the residue of your pasture? and to have drunk of the clear waters, but ye must foul the residue with your feet?
+Does it seem a small thing to you to have fed on the good pasture, but you must tread down with your feet the residue of your pasture? and to have drunk of the clear waters, but you must foul the residue with your feet?

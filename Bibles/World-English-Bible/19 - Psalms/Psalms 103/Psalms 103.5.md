@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-Who satisfieth thy desire with good things, [So that] thy youth is renewed like the eagle.
+who satisfies your desire with good things, so that your youth is renewed like the eagle's.

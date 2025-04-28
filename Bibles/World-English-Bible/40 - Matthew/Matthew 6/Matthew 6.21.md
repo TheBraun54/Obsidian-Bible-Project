@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-for where thy treasure is, there will thy heart be also.
+for where your treasure is, there your heart will be also.

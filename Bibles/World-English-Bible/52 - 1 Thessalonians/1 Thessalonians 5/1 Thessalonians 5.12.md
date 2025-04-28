@@ -15,4 +15,4 @@ notes: >
   
 ---
 
-But we beseech you, brethren, to know them that labor among you, and are over you in the Lord, and admonish you;
+But we beg you, brothers, to know those who labor among you, and are over you in the Lord, and admonish you,
