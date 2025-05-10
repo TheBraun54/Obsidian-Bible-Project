@@ -52,7 +52,7 @@ with open(csv_path, newline='', encoding='utf-8') as file:
         verse = int(row['Verse'])
         text = row['Text'].strip()
 
-        tag = "bible/nt" if book in NT_BOOKS else "bible/ot"
+        tag = "NT" if book in NT_BOOKS else "OT"
 
         book_code = BOOK_CODES.get(book)
         verse_id = f"{book_code}{str(chapter).zfill(2)}{str(verse).zfill(2)}"
@@ -75,12 +75,13 @@ with open(csv_path, newline='', encoding='utf-8') as file:
             vf.write(f"reference: {book} {chapter}:{verse}\n")
             vf.write(f"verse_id: {verse_id}\n")
             vf.write(f"translation: {translation}\n")
-            vf.write(f"tags: [bible/verse/{tag}]\n")
+            vf.write(f"tags: [bible/{tag}/verse]\n")
             vf.write(f"strongs: []\n")
             vf.write(f"topics: []\n")
             vf.write(f"themes: []\n")
-            vf.write(f"people: []\n")
-            vf.write(f"places: []\n")
+            vf.write(f"carded: [false]\n")
+            vf.write(f"card number: []\n")
+            vf.write(f"memorized: [false]\n")
             vf.write(f"notes: >\n  \n")
             vf.write(f"---\n\n")
             vf.write(text + "\n")
@@ -97,7 +98,7 @@ for (book, chapter, book_num), verse_embeds in chapters.items():
     chapter_number = int(chapter)
     prev_chapter = chapter_number - 1
     next_chapter = chapter_number + 1
-    tag = "bible/nt" if book in NT_BOOKS else "bible/ot"
+    tag = "NT" if book in NT_BOOKS else "OT"
 
     with open(chapter_path, 'w', encoding='utf-8') as cf:
         cf.write("---\n")
@@ -105,7 +106,7 @@ for (book, chapter, book_num), verse_embeds in chapters.items():
         cf.write(f"chapter: {chapter}\n")
         cf.write(f"reference: {book} {chapter}\n")
         cf.write(f"translation: {translation}\n")
-        cf.write(f"tags: [bible/chapter/{tag}]\n")
+        cf.write(f"tags: [bible/{tag}/chapter]\n")
         cf.write(f"topics: []\n")
         cf.write(f"themes: []\n")
         cf.write(f"people: []\n")

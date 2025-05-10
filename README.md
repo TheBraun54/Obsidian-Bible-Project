@@ -35,7 +35,11 @@ The project includes **scripts** and **CSV files** that are useful for:
 The verse-by-verse breakdown gives you **more granular control**, but the chapter-based organization is also available through the scripts if you'd prefer to work with entire chapters.
 
 ## How to Use
-1. **Linking Verses**: In Obsidian, you can create a note for a verse (e.g., `John 3:16.md`), and when you mention that verse in another note, you can link to it like so: `[[John 3:16]]`. This creates a direct link to the individual verse file.
+### Recommended Way (Better Performance)
+1. **Embedding Verses** In Obsidian, to embed a verse in the current note you are in, for example, you would type `![[John 3:16.md]]`
+
+### Different Way (Less Performant)
+1. **Back Linking Verses**: In Obsidian, you can create a note for a verse (e.g., `John 3:16.md`), and when you mention that verse in another note, you can link to it like so: `[[John 3:16]]`. This creates a direct link to the individual verse file.
 2. **Cross-Referencing**: By linking verses, you can quickly cross-reference related verses and build a web of connections. This is particularly useful for topical studies or creating your own personal commentary.
 
 ## Additional Information
