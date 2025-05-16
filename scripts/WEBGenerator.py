@@ -3,7 +3,7 @@ import csv
 from collections import defaultdict
 
 # === CONFIG ===
-csv_path = "./data/web.csv"
+csv_path = "./Data/English/web.csv"
 csv_path = os.path.join(os.path.dirname(__file__), '..', csv_path)
 csv_path = os.path.abspath(csv_path)
 
@@ -127,5 +127,3 @@ for (book, chapter, book_num), verse_embeds in chapters.items():
             cf.write(f"[[{book} {prev_chapter}|<-]] ")
         cf.write("✞ ")
         cf.write(f"[[{book} {next_chapter}|->]]\n")
-
-print(f"✅ Markdown files created in the '{output_folder}' folder.")
