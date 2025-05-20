@@ -199,7 +199,7 @@ for translation, path in translations_paths.items():
                 lower_trans_name = trans_name.lower()
                 if lower_trans_name == "tr" and tag == "OT":
                     continue
-                vf.write(f"## {trans_name}\n")
+                vf.write(f"###### {trans_name}\n")
                 vf.write(f"{book_chap_vers}\n")
                 vf.write(translations[trans].get((book, chapter, verse), "") + "\n\n")
 
