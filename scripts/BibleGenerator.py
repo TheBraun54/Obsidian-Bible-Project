@@ -277,6 +277,7 @@ for (book, chapter), translations_in_chapter in chapters.items():
         cf.write(f"verse_count: {verse_count}\n")
         cf.write(f"tags: [bible/chapter]\n")
         cf.write(f"people: []\n")
+        cf.write(f"locations: [] \n")
         cf.write(f"topics: []\n")
         cf.write(f"themes: []\n")
         cf.write(f"elaborated: false\n")
