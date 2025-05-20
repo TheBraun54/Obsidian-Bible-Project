@@ -6,15 +6,15 @@ from collections import defaultdict
 
 # Paths for different translations
 translations_paths = {
-    "NET (2005)": "./Data/English/net.csv",                 # NET translation
-    "WEB (2000/2002)": "./Data/English/web.csv",            # WEB translation
-    "KJV (1611)": "./Data/English/kjv.csv",                 # KJV translation
-    #"ASV (1901)": "./Data/English/asv.csv",                 # ASV translation
-    #"BISHOPS (1568)": "./Data/English/bishops.csv",         # BISHOPS translation
-    "GENEVA (1560)": "./Data/English/geneva.csv",           # GENEVA translation
-    #"COVERDALE (1535)": "./Data/English/coverdale.csv",     # COVERDALE translation
-    #"TYNDALE (1525-1536)": "./Data/English/tyndale.csv",    # TYNDALE translation
-    "TR (Greek)": "./Data/Greek/tr.csv",                    # TEXTUS RECEPTUS translation (GREEK NEW TESTAMENT)
+    "NET": "./Data/English/net.csv",                 # NET (2005) translation
+    "WEB": "./Data/English/web.csv",                 # WEB (2000/2002) translation
+    "KJV": "./Data/English/kjv.csv",                 # KJV (1611) translation
+    #"ASV": "./Data/English/asv.csv",                # ASV (1901) translation
+    #"BISHOPS": "./Data/English/bishops.csv",        # BISHOPS (1568) translation
+    "GENEVA": "./Data/English/geneva.csv",           # GENEVA (1560) translation
+    #"COVERDALE": "./Data/English/coverdale.csv",    # COVERDALE (1535) translation
+    #"TYNDALE": "./Data/English/tyndale.csv",        # TYNDALE (1525-1536) translation
+    "TR": "./Data/Greek/tr.csv",                     # TEXTUS RECEPTUS translation (GREEK NEW TESTAMENT)
 }
 
 # Absolute paths for translations
@@ -169,28 +169,29 @@ for translation, path in translations_paths.items():
         verse_file = f"{book} {chapter}.{verse}.md"
         tag = "NT" if book in NT_BOOKS else "OT"
 
-
+        book_chap_vers = f"{book} {chapter}:{verse}"
 
         folder_path = os.path.join(output_folder, book_folder, chapter_folder)
         ensure_dir(folder_path)
 
         verse_path = os.path.join(folder_path, verse_file)
         with open(verse_path, 'w', encoding='utf-8') as vf:
-            vf.write(f"---\n")
-            vf.write(f"book: {book}\n")
-            vf.write(f"chapter: {chapter}\n")
-            vf.write(f"verse: {verse}\n")
-            vf.write(f"reference: {book} {chapter}:{verse}\n")
-            vf.write(f"testament: {tag}\n")
-            vf.write(f"verse_id: {verse_id}\n")
-            vf.write(f"tags: [bible/verse]\n")
-            vf.write(f"topics: []\n")
-            vf.write(f"themes: []\n")
-            vf.write(f"carded: [false]\n")
-            vf.write(f"memorized: [false]\n")
-            vf.write(f"---\n\n")
+            vf.write(f'---\n')
+            vf.write(f'book: "{book}"\n')
+            vf.write(f'chapter: "{chapter}"\n')
+            vf.write(f'verse: "{verse}"\n')
+            vf.write(f'reference: "{book} {chapter}:{verse}"\n')
+            vf.write(f'testament: "{tag}"\n')
+            vf.write(f'verse_id: "{verse_id}"\n')
+            vf.write(f'tags: ["bible/verse"]\n')
+            vf.write(f'topics: []\n')
+            vf.write(f'themes: []\n')
+            vf.write(f'elaborated: false\n')
+            vf.write(f'carded: false\n')
+            vf.write(f'memorized: false\n')
+            vf.write(f'---\n\n')
 
-            vf.write(f"# {book} {chapter}:{verse}\n\n")
+            vf.write(f"# {book_chap_vers}\n\n")
 
             # Write out the texts for all translations (no year in verse files)
             for trans in translations.keys():
@@ -199,7 +200,7 @@ for translation, path in translations_paths.items():
                 if lower_trans_name == "tr" and tag == "OT":
                     continue
                 vf.write(f"## {trans_name}\n")
-                vf.write(f"^{lower_trans_name}\n")
+                vf.write(f"{book_chap_vers}\n")
                 vf.write(translations[trans].get((book, chapter, verse), "") + "\n\n")
 
             vf.write("---\n")
@@ -259,6 +260,8 @@ for (book, chapter), translations_in_chapter in chapters.items():
 
     tag = "NT" if book in NT_BOOKS else "OT"
 
+    verse_count = books_chapters_verses[book][chapter]
+
     folder_path = os.path.join(output_folder, book_folder, chapter_folder)
     ensure_dir(folder_path)
 
@@ -271,12 +274,15 @@ for (book, chapter), translations_in_chapter in chapters.items():
         cf.write(f"chapter: {chapter}\n")
         cf.write(f"reference: {book} {chapter}\n")
         cf.write(f"testament: {tag}\n")
+        cf.write(f"verse_count: {verse_count}")
         cf.write(f"tags: [bible/chapter]\n")
+        cf.write(f"people: []\n")
         cf.write(f"topics: []\n")
         cf.write(f"themes: []\n")
+        cf.write(f"elaborated: false\n")
         cf.write("---\n\n")
 
-        chapter_navigation(book, chapter, cf, True)
+        # chapter_navigation(book, chapter, cf, True)
 
         cf.write(f"# {book} {chapter}\n\n")
 
@@ -292,4 +298,5 @@ for (book, chapter), translations_in_chapter in chapters.items():
 
         cf.write(f"---\n")
         cf.write(f"# Notes\n\n\n\n")
-        chapter_navigation(book, chapter, cf, False)
+        
+        # chapter_navigation(book, chapter, cf, False)
