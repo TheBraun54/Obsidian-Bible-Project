@@ -1,6 +1,9 @@
 import os
 import csv
+import time
 from collections import defaultdict
+
+start_time = time.time()
 
 # === CONFIG ===
 
@@ -121,6 +124,9 @@ books_chapters_verses = {
     "Revelation": {1: 20, 2: 29, 3: 22, 4: 11, 5: 14, 6: 17, 7: 17, 8: 13, 9: 21, 10: 11, 11: 19, 12: 17, 13: 18, 14: 20, 15: 8, 16: 21, 17: 18, 18: 24, 19: 21, 20: 15, 21: 27, 22: 21}
 }
 
+# Directory paths for Old and New Testaments
+old_testament_folder = os.path.join(output_folder, "1 - Old Testament")
+new_testament_folder = os.path.join(output_folder, "2 - New Testament")
 
 def ensure_dir(path):
     os.makedirs(path, exist_ok=True)
@@ -134,6 +140,12 @@ translations = {key: defaultdict(dict) for key in translations_paths}
 # Function to clean the "¶ " character from the verse text
 def clean_text(text):
     return text.replace("¶ ", "")
+
+def get_bible_folder(book_name):
+    if book_name in NT_BOOKS:
+        return new_testament_folder  # Place in New Testament folder
+    else:
+        return old_testament_folder  # Place in Old Testament folder
 
 for translation, path in translations_paths.items():
     with open(path, newline='', encoding='utf-8') as file:
@@ -171,7 +183,7 @@ for translation, path in translations_paths.items():
 
         book_chap_vers = f"{book} {chapter}:{verse}"
 
-        folder_path = os.path.join(output_folder, book_folder, chapter_folder)
+        folder_path = os.path.join(get_bible_folder(book), book_folder, chapter_folder)
         ensure_dir(folder_path)
 
         verse_path = os.path.join(folder_path, verse_file)
@@ -262,7 +274,7 @@ for (book, chapter), translations_in_chapter in chapters.items():
 
     verse_count = books_chapters_verses[book][chapter]
 
-    folder_path = os.path.join(output_folder, book_folder, chapter_folder)
+    folder_path = os.path.join(get_bible_folder(book), book_folder, chapter_folder)
     ensure_dir(folder_path)
 
     chapter_path = os.path.join(folder_path, chapter_file)
@@ -301,3 +313,5 @@ for (book, chapter), translations_in_chapter in chapters.items():
         cf.write(f"# Notes\n\n\n\n")
         
         # chapter_navigation(book, chapter, cf, False)
+
+print(f"{round(time.time() - start_time, 2)}s")

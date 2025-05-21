@@ -1,4 +1,4 @@
-## 📘 Book Code Reference
+## Book Code Reference
 
 ### Old Testament
 
